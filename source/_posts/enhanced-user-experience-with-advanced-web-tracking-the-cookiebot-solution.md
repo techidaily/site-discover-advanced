@@ -1,7 +1,7 @@
 ---
 title: "Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution"
-date: 2024-08-20 17:38:19
-updated: 2024-08-22 11:17:35
+date: 2024-08-21T14:58:57.670Z
+updated: 2024-08-22T14:58:57.670Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a71e7a06fbd4b66d64319f0c.jpg
@@ -25,10 +25,16 @@ Social Work
 
 Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen Aufgabe gegenüber, Dokumente zu verarbeiten, die so schnell und kostengünstig wie möglich digital erfasst werden müssen. Connexions Berkshire – einer von mehreren Connexions Standorten im Vereinigten Königreich – ist eine dieser Organisationen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Der Hintergrund
 
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die Lösung
 
 Steve Maddison testete und verglich eine Reihe verschiedener Optionen auf der Suche nach der  
@@ -40,16 +46,25 @@ Es ging eine Anfrage an ABBYY, das Software-Portfolio vorzustellen, worauf die A
 
 Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional ist das Handling der im Connexions Büro eingehenden Umfragedaten recht einfach. Alle Fragebögen werden vor Ort schnell eingescannt und mit FlexiCapture verarbeitet, anschließend werden die Daten erfasst und in die Connexions Datenbank exportiert. FlexiCapture unterstützt Connexions bei der zentralen Sammlung und Zuordnung der Daten und macht das Outsourcing einzelner Arbeitsschritte überflüssig. So sind sowohl die zeitgerechte Verarbeitung als auch die sichere Überwachung der Daten garantiert.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Das Ergebnis
 
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Der Blick nach vorn
 
 Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu erwerben. Zudem urden die Funktionalitäten von ABBYY FlexiCapture und die Ergebnisse des Pilotprojekts in der Berkshire Niederlassung den anderen Connexions Organisationen in England präsentiert. Daraufhin haben sich viele weitere Organisationen ebenfalls für die Nutzung von FlexiCapture entschieden, und aufgrund des Erfolges des Pilotprojekts in Berkshire ist eine umfassende, nationale Befragung mit 600.000 Teilnehmern geplant. „Ich verstehe ehrlich gesagt nicht, wie wir bislang ohne diese Technologie auskommen konnten", erklärt Maddison. „Wir gehen davon aus, dass die Umfragen jedes Jahr in ihrem Umfang wachsen werden, und ohne ABBYY könnten wir den zusätzlichen Arbeitsaufwand gar nicht bewältigen."
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -58,6 +73,9 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

@@ -1,7 +1,7 @@
 ---
 title: Customized Personalization with Automated Marketing Bot
-date: 2024-08-21 22:29:38
-updated: 2024-08-22 11:57:53
+date: 2024-08-21T14:58:57.172Z
+updated: 2024-08-22T14:58:57.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659cd0b84f4316b6b432fb112c.jpg
@@ -47,10 +47,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 (949) 370-0941

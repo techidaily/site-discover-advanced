@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY TextGrabber: New Feature - Live OCR for Immediate Text Processing & Task Automation"
-date: 2024-08-21 10:18:29
-updated: 2024-08-22 12:44:29
+date: 2024-08-21T14:58:57.041Z
+updated: 2024-08-22T14:58:57.041Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d5597ded286e2b977dc206141e5.jpg
@@ -81,3 +81,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

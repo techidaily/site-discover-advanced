@@ -1,7 +1,7 @@
 ---
 title: Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology
-date: 2024-08-21 11:58:55
-updated: 2024-08-22 11:29:22
+date: 2024-08-21T14:58:58.078Z
+updated: 2024-08-22T14:58:58.078Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fff656b551e024a92bec77f08e34169fdbb7972daf3e003aecf76e9fd40fed20.jpg
@@ -80,6 +80,9 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

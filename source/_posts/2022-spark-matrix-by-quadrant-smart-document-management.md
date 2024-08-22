@@ -1,7 +1,7 @@
 ---
 title: "2022 Spark Matrix by Quadrant: Smart Document Management"
-date: 2024-08-19 15:53:52
-updated: 2024-08-22 12:39:59
+date: 2024-08-21T14:58:57.921Z
+updated: 2024-08-22T14:58:57.921Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e4382ef455cbbee6f6a39f5f377.jpg
@@ -75,3 +75,7 @@ Copyright 2022 © Quadrant Knowledge Solutions Private Limited 09 For Citation, 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->

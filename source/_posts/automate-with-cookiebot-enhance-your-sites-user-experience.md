@@ -1,7 +1,7 @@
 ---
 title: "Automate with Cookiebot: Enhance Your Site's User Experience"
-date: 2024-08-20 19:46:50
-updated: 2024-08-22 11:38:40
+date: 2024-08-21T14:58:57.996Z
+updated: 2024-08-22T14:58:57.996Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822bc0678be6a1186e4efd451b.jpg
@@ -89,6 +89,9 @@ Grâce à l’intégration de la solution IDP d’ABBYY au processus de numéris
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

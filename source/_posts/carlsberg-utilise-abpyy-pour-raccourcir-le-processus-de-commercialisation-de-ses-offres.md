@@ -1,7 +1,7 @@
 ---
 title: Carlsberg Utilise ABPyy Pour Raccourcir Le Processus De Commercialisation De Ses Offres
-date: 2024-08-19 10:44:11
-updated: 2024-08-22 11:39:43
+date: 2024-08-21T14:58:58.013Z
+updated: 2024-08-22T14:58:58.013Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe965da9d03779dc5b0786c10.jpg
@@ -46,10 +46,18 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_

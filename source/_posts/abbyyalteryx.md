@@ -1,7 +1,7 @@
 ---
 title: ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる
-date: 2024-08-21 22:46:44
-updated: 2024-08-22 11:33:13
+date: 2024-08-21T14:58:57.468Z
+updated: 2024-08-22T14:58:57.468Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
@@ -104,3 +104,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

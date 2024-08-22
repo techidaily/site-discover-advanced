@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-08-21 11:42:22
-updated: 2024-08-22 11:12:20
+date: 2024-08-21T14:58:57.324Z
+updated: 2024-08-22T14:58:57.324Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -60,3 +60,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

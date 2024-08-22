@@ -1,7 +1,7 @@
 ---
 title: How ABBYY Achieved a Remarkable 25%% Increase in Revenue for the Year 2N 2017
-date: 2024-08-21 11:12:40
-updated: 2024-08-22 12:10:47
+date: 2024-08-21T14:58:58.821Z
+updated: 2024-08-22T14:58:58.821Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2522eefb8fbc96fa570f56849cfdf92d72e221bd3a27b7e0b7d3fec1332bd02.png
@@ -73,3 +73,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->

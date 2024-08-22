@@ -1,7 +1,7 @@
 ---
 title: Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community
-date: 2024-08-19 12:29:43
-updated: 2024-08-22 12:39:40
+date: 2024-08-21T14:58:58.244Z
+updated: 2024-08-22T14:58:58.244Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb81dcbc464d7190885cdca32.jpg
@@ -104,3 +104,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->

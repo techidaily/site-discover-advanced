@@ -1,7 +1,7 @@
 ---
 title: "Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications"
-date: 2024-08-21 15:34:31
-updated: 2024-08-22 12:23:42
+date: 2024-08-21T14:58:57.280Z
+updated: 2024-08-22T14:58:57.280Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0697447c3ea6b08edc7929364d24aaff9babf43934271a1bc595c07d928a8cf.jpg
@@ -23,6 +23,9 @@ Finance/Banking | Mobile Capture
 
 Banking | Mobile Capture 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

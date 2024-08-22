@@ -1,7 +1,7 @@
 ---
 title: スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ
-date: 2024-08-21 12:43:14
-updated: 2024-08-22 12:38:41
+date: 2024-08-21T14:58:58.194Z
+updated: 2024-08-22T14:58:58.194Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e81f992123e17db59f89c6842ca48bb426d509215d95604071818ec4e7dc281.jpg
@@ -44,6 +44,13 @@ OCR
 
 ![Finereader 80X77](https://static1.abbyy.com/abbyycommedia/22921/finereader-80x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### FineReader 
 
 OCR
@@ -56,6 +63,12 @@ OCR
 
 ![MWC 77X77](https://static1.abbyy.com/abbyycommedia/22267/mwc-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ### Mobile 
 
 SDK
@@ -117,6 +130,9 @@ ABBYY Mobile Web Captureで撮ったDocument画像を[ABBYY FlexiCapture](https:
 
 ![ABBYY AI OCR](https://static1.abbyy.com/abbyycommedia/35068/image-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 最後に、[事例紹介](https://tools.techidaily.com/abbyy/products/)からいくつか抜粋し、ABBYY Mobile Web Captureの事例を紹介します。
 
 * #### [パーソルグループ名刺管理システムにABBYYのモバイル対応AI OCRソリューションを採用](https://tools.techidaily.com/abbyy/products/)
@@ -157,6 +173,9 @@ ABBYY Mobile Web Captureについての概要、デモの依頼、お問い合�
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ABBYY Japan ソリューションコンサルティングチーム
 
 ### いいね！、シェア、再投稿

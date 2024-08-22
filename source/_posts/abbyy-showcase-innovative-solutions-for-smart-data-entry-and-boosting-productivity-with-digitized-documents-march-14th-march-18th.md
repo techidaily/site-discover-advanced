@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)"
-date: 2024-08-20 17:57:49
-updated: 2024-08-22 12:35:51
+date: 2024-08-21T14:58:58.720Z
+updated: 2024-08-22T14:58:58.720Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e5055c3da2f210571c617d420a7c156f394da05b547450d519d5355d85d7de7a.jpg
@@ -72,3 +72,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products"
-date: 2024-08-21 11:59:56
-updated: 2024-08-22 10:59:53
+date: 2024-08-21T14:58:57.336Z
+updated: 2024-08-22T14:58:57.336Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8abafba9a85f8f7a9ea54801a273e110b7cee0bf022a9217ff3a409cbc876b2b.jpg
@@ -54,3 +54,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

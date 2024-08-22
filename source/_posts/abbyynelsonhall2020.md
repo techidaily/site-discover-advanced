@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-08-20 19:16:14
-updated: 2024-08-22 10:49:50
+date: 2024-08-21T14:58:58.317Z
+updated: 2024-08-22T14:58:58.317Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -68,3 +68,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

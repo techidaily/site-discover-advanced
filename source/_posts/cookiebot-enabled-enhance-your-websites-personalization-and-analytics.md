@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's Personalization and Analytics"
-date: 2024-08-19 21:36:46
-updated: 2024-08-22 10:34:35
+date: 2024-08-21T14:58:58.033Z
+updated: 2024-08-22T14:58:58.033Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e909ca12d5d0ef3819e924e4b2acc53554680366614c69f27f338ed1d92d5d7.jpg
@@ -21,10 +21,17 @@ Despite advances in digital technology, 76 percent of physician referrals are st
 
 No wonder only 54 percent of traditional referrals result in scheduled appointments. But it doesn’t have to be this way.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 This eBook, brought to you by HIMSS and ABBYY, explores how intelligent automation is resolving hospitals’ most pressing referral management challenges, resulting in improved patient experiences and reduced revenue losses from referral leakage.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://global.abbyy.com/hubfs/documents/content/ebook-healthcare-referral-management-HIMSS-en.pdf "Read eBook") 

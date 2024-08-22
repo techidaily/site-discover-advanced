@@ -1,7 +1,7 @@
 ---
 title: Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status
-date: 2024-08-20 21:52:52
-updated: 2024-08-22 11:46:17
+date: 2024-08-21T14:58:57.257Z
+updated: 2024-08-22T14:58:57.257Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ff66889aaf2236739a2923efe4cfc57f9cd9ea7ad49a91b99fcb2a46f695a7e.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

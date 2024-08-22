@@ -1,7 +1,7 @@
 ---
 title: "Top DocuAI Master: How ABBYY Reigned as the 2021 Pioneer in Smart Document Solutions - Insights From ISG"
-date: 2024-08-21 22:13:49
-updated: 2024-08-22 11:40:37
+date: 2024-08-21T14:58:58.667Z
+updated: 2024-08-22T14:58:58.667Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe288167493a224a8c1401933c662484.jpeg
@@ -47,10 +47,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### ABBYY editorial contacts
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Catherine Johnson
 
 _Director of Analyst Relations & Global Media Relations_
@@ -59,6 +65,9 @@ _Director of Analyst Relations & Global Media Relations_
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_

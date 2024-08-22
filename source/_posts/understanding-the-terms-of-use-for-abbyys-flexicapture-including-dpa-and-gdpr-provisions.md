@@ -1,7 +1,7 @@
 ---
 title: Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions
-date: 2024-08-21 11:35:19
-updated: 2024-08-22 10:23:24
+date: 2024-08-21T14:58:57.866Z
+updated: 2024-08-22T14:58:57.866Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/90e284fb29c37a4c0c2a2e6970ee3fa6b56745fa434982e234c62e6bb83237e0.jpg
@@ -186,3 +186,7 @@ Client is liable for any Personal Data that is provided or otherwise made availa
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

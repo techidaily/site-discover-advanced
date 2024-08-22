@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled Personalized Experience: Optimize Your Site's Engagement"
-date: 2024-08-20 15:25:28
-updated: 2024-08-22 12:39:18
+date: 2024-08-21T14:58:58.471Z
+updated: 2024-08-22T14:58:58.471Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/93c58d18d4169d1b8be3151f6e561548c6b0c37eb736f1516830c78d9ab2d4d1.jpg
@@ -57,6 +57,9 @@ Le système M-Files contrôle le flux de travail de validation et gère la distr
 
 Transmission des factures validées aux services financiers pour le traitement du paiement.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Avantages de l’intégration
 
 ##### Obtenir une plus grande précision 
@@ -71,6 +74,9 @@ M-Files élimine les silos en délivrant une expérience en contexte permettant 
 
 Le processus de traitement des factures en bout en bout entièrement automatisé aide à obtenir une grande précision et facilite le traitement direct (Straight-Through-Processing, STP) pour des gains d’efficacité optimaux.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ce qu’en disent nos clients 
 
 Le partenariat entre ABBYY et M-Files nous a permis d’utiliser ces technologies pour rationaliser nos processus de gestion des factures et mieux servir nos fournisseurs. Nous utilisons la solution ABBYY et M-Files pour traiter des milliers de factures chaque mois et nous avons été en mesure de réduire considérablement les dépenses opérationnelles, de raccourcir les délais de traitement et de faciliter la recherche conviviale et la récupération des documents de facturation. 
@@ -85,6 +91,12 @@ La combinaison d’ABBYY FlexiCapture for Invoices et M-Files offre une solution
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/m-files.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)

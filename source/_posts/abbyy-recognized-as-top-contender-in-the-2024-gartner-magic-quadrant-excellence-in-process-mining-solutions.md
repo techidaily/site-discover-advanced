@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions
-date: 2024-08-20 13:54:18
-updated: 2024-08-22 12:25:23
+date: 2024-08-21T14:58:57.966Z
+updated: 2024-08-22T14:58:57.966Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ba823e70571284a0c45a2acec26bb9d28a4fab8bdde6a1d84cbac37f185e31d.jpg
@@ -39,6 +39,9 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read the report](https://www.gartner.com/reprints/?id=1-2HU9T8IX&ct=240614&st=sb "Read the report") 

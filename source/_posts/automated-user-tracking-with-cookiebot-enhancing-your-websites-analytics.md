@@ -1,7 +1,7 @@
 ---
 title: "Automated User Tracking with Cookiebot: Enhancing Your Website's Analytics"
-date: 2024-08-19 12:44:11
-updated: 2024-08-22 10:15:39
+date: 2024-08-21T14:58:58.341Z
+updated: 2024-08-22T14:58:58.341Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea53a869dc57cfed236317a58.png
@@ -39,3 +39,7 @@ thumbnail: https://thmb.techidaily.com/6308ca1326b9f5602e19bd1098908b4cdc545e2ea
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->

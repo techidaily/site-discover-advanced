@@ -1,7 +1,7 @@
 ---
 title: Enhanced Traffic Optimization with Cookiebot Technology
-date: 2024-08-19 11:30:29
-updated: 2024-08-22 10:48:46
+date: 2024-08-21T14:58:56.826Z
+updated: 2024-08-22T14:58:56.826Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960550c4309b2e36a11fd875c9.jpg
@@ -19,20 +19,36 @@ English
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Marisa Murton
 
 Moderator, Founder, **Data Strategy as a Service**
 
 ![Eileenpotter 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Eileenpotter 198X198](https://static1.abbyy.com/abbyycommedia/35572/eileenpotter-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Eileen Potter
 
 Solution Marketing Manager, Insurance, **ABBYY**
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Matthew Norris
 
 Head of Digital Distribution UK and Europe, **Beazley**
@@ -45,6 +61,13 @@ Chief Distribution Officer at UK General Insurance, **Aviva**
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ### James Russell
 
 Co-Founder & CEO, **Brisk**
@@ -58,6 +81,9 @@ Co-Founder & CEO, **Brisk**
 * Feed claims data back into underwriting in a robust and standardised way to enable a better view of risk, as well as more accurate pricing and reserving.
 * How insurers and brokers can grasp a better understanding of their internal processes and how to analyse where digitisation and automation can provide additional benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Watch now
 
 ### Get in touch with us

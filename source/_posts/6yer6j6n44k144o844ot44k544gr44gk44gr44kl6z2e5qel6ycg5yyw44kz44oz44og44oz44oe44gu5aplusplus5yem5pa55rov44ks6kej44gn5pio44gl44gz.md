@@ -1,7 +1,7 @@
 ---
 title: 金融サービスにおける非構造化コンテンツの対処方法を解き明かす
-date: 2024-08-19 22:39:56
-updated: 2024-08-22 11:10:41
+date: 2024-08-21T14:58:57.937Z
+updated: 2024-08-22T14:58:57.937Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a98c24ab59e2903c5366daaa.jpg
@@ -33,18 +33,40 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 
 ![workers using NLP in finance](https://static1.abbyy.com/abbyycommedia/34754/skills-for-finansial-services-2-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 金融における自然言語処理（NLP）
 
 自然言語処理（NLP）は、金融機関が非構造化文書から価値のあるデータや事実を発掘し、財務報告書、法的命令、定款、契約書、合意書、物件説明書、さらにはニュース、ブログ、およびソーシャルメディアのコンテンツなど、顧客に関する重要な詳細情報が含まれている可能性のある複雑な文書の面倒な調査を最適化するのに役立ちます。 これらの情報源からインサイトを得るためのソリューションとして、これまで手作業による調査が行われてきましたが、これは本質的に不正確で一貫性がなく、重要な詳細情報を見落とすリスクが高くなります。
 
 これらのデータソースやその他のデータソースを効率的に分析し、非構造化データからインサイトを導き出すことができれば、銀行やその他の金融サービス機関が現在および将来の顧客について適切な判断を下すことができます。 このように活用されていないコンテンツから、有意義な情報を得られる可能性があります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### 金融サービスにおける文書処理プロセスの自動化をお考えですか？
 
 当社にはそのためのスキルがあります。
 
 [ABBYY Marketplaceにアクセスする](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
 Forresterによると、成功している金融機関は、パートナーの能力を活用して迅速に行動し、他者のイノベーションを利用します。 これこそが、まさに新しい[ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/)の背景にある考え方です。ABBYY Marketplaceは、企業の文書を処理・理解するための初のデジタルマーケットプレイスであり、スキル、コネクター、アセットを豊富に提供します。 米国のトップ銀行4行と多くのクラウドベースの企業が、数分ですぐに使用できる、使いやすく設定可能でプラグイン可能な当社のプラットフォームを使って、ビジネスユーザーとシチズンディベロッパーに対し業界最高レベルの文書およびコンテンツ処理を提供しています。
@@ -57,8 +79,14 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Cheryl Chiodi
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

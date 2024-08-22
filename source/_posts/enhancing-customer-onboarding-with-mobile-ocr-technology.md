@@ -1,7 +1,7 @@
 ---
 title: Enhancing Customer Onboarding with Mobile OCR Technology
-date: 2024-08-20 15:10:36
-updated: 2024-08-22 10:45:52
+date: 2024-08-21T14:58:57.229Z
+updated: 2024-08-22T14:58:57.229Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8404aae8332517e90ea13209ccbcb49d56b9cbe41228f9bbeee698b42d6caf34.jpg
@@ -27,14 +27,23 @@ Mobile OCR may seem trendy, but it is a trend with a variety of benefits for com
 
 Allowing engaged customers ‘self-service experience’ can engender in them self-confidence and pave the way for building trust and credibility. New mobile capture technology also enables customer-facing teams to manage customers and recruit prospects, while enhancing customer loyalty and retention.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Data protection and security
 
 According to a recent [Pew Research](http://www.pewinternet.org/2015/04/01/chapter-one-a-portrait-of-smartphone-ownership/), 24 percent of U.S. citizens have paid their bills using smartphones, while 44 percent said they are aware of such services. Yet, most people surveyed - 73 percent - avoid mobile payment apps, citing security and privacy as top worries. New mobile OCR technology now offers not only a fast, safe and convenient user experience, but data security as well. Data such as bank details, credit card number, card owner’s name or payment amount can be instantly captured, processed and transferred without saving copies on the device. For banks and insurance companies, this is a sure way to build trust and credibility with engaged customers.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Customer-onboarding with ease
 
 Real-time recognition technology promises [efficient customer onboarding](https://www.forbes.com/sites/adrianbridgwater/2017/04/19/abbyy-builds-instant-text-capture-recognition-tool-for-mobile/#3cb40997521f) that can help small businesses create a positive first impression and turn their customers into advocates. This is particularly true for front-end service providers such as airlines, hotels and car rental companies. Manual registration process for new customers is often frustrating, cumbersome and time-consuming. With the new technology, however, customers can simply point their mobile phone cameras at their identification documents and have their data transferred into a company's system without leaving a trace on the device.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Facilitating visual connection
 
 Mobile capture technology is also becoming increasingly popular with road warriors, who are more likely to use it in travelling apps to translate airport and train station signs, restaurant menus, road or street signs. A less obvious feature of real-time recognition technology is that it combines with text-to-speech technology to help visually impaired, elderly people or children interact with their surroundings. Simply pointing their mobile phone camera at a text in a book, a magazine page or at a street sign enable them to listen to words converted into an audio format in real time.
@@ -53,6 +62,9 @@ To see ABBYY's latest technology solutions, visit the [ABBYY Products page](http
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

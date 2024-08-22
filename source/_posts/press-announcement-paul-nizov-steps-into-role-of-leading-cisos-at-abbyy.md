@@ -1,7 +1,7 @@
 ---
 title: "Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY"
-date: 2024-08-21 22:10:24
-updated: 2024-08-22 12:12:12
+date: 2024-08-21T14:58:58.237Z
+updated: 2024-08-22T14:58:58.237Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ed59cfb64274f1c3cef31ec193da51a46dc4b1758c31b372bba92f57a24379da.jpg
@@ -41,10 +41,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 (949) 370-0941

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine
-date: 2024-08-19 17:19:30
-updated: 2024-08-22 10:35:39
+date: 2024-08-21T14:58:58.293Z
+updated: 2024-08-22T14:58:58.293Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f047e2d65acdb07711442e0f2bbaf634be9eacb93e4be86849bf37896b7a66cb.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->

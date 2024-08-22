@@ -1,7 +1,7 @@
 ---
 title: "Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen"
-date: 2024-08-20 19:24:28
-updated: 2024-08-22 10:53:51
+date: 2024-08-21T14:58:58.700Z
+updated: 2024-08-22T14:58:58.700Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abed208ce9a52f3e4561b6e4e9.jpg
@@ -49,16 +49,25 @@ Die gesamten Studienergebnisse sowie weiterführende Informationen erhalten Sie 
 
 Als Partner für Digitalisierung, Industrie 4.0 und das Internet der Dinge entwickelt das Fraunhofer-Institut für Angewandte Informationstechnik FIT seit knapp 40 Jahren IT-Lösungen, die auf Menschen zugeschnitten sind und sich nahtlos in Unternehmensprozesse einfügen. Als Innovationstreiber bietet es nicht nur Orientierung, sondern gestaltet auch den digitalen Wandel in Wirtschaft, Umwelt und Gesellschaft. Die Projektgruppe Wirtschaftsinformatik des Fraunhofer FIT hat sich als international anerkanntes Forschungszentrum an der Schnittstelle von Finanzmanagement, Informationsmanagement und Wirtschaftsinformatik etabliert. Derzeit arbeiten wir insbesondere in den Geschäftsbereichen Digital Disruption, Digital Business und Digital Transformation. Die Grundsätze unserer Forschung sind Innovation, Interdisziplinarität und Ganzheitlichkeit. Darauf basierend wurde gemeinsam mit der Abteilung Data Science und Künstliche Intelligenz des Fraunhofer FIT das [Center for Process Intelligence](https://cpi.fit.fraunhofer.de/) (CPI) gegründet, welches ganzheitliche Beratungsleistungen im Bereich der datengetriebenen Prozessanalyse, Prozessmodellierung und Prozessanalyse für die Industrie anbietet.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich [Intelligent Document Processing (IDP)](https://www.abbyy.com/company/news/everest-group-recognizes-abbyy-as-a-leader-in-intelligent-document-processing-products-peak-matrix-assessment-for-second-consecutive-year-2020/ "Everest Group Recognizes ABBYY as a Leader in Intelligent Document Processing Products") und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 **ABBYY**

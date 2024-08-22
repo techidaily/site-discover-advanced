@@ -1,7 +1,7 @@
 ---
 title: Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers
-date: 2024-08-19 21:13:45
-updated: 2024-08-22 11:12:36
+date: 2024-08-21T14:58:58.162Z
+updated: 2024-08-22T14:58:58.162Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8cca3cd844fe92c1c213c87ec.jpg
@@ -69,3 +69,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

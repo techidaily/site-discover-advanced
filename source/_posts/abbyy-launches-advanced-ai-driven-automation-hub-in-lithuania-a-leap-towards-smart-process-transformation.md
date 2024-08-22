@@ -1,7 +1,7 @@
 ---
 title: "Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation"
-date: 2024-08-21 19:50:46
-updated: 2024-08-22 12:44:32
+date: 2024-08-21T14:58:56.654Z
+updated: 2024-08-22T14:58:56.654Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec122694d578843a25c7f44c71.jpg
@@ -31,10 +31,16 @@ ABBYY powers intelligent automation. We reimagine the way people work and how co
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 ABBYY

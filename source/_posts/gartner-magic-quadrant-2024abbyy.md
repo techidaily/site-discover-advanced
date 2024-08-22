@@ -1,7 +1,7 @@
 ---
 title: "Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選"
-date: 2024-08-19 21:41:19
-updated: 2024-08-22 12:35:27
+date: 2024-08-21T14:58:56.884Z
+updated: 2024-08-22T14:58:56.884Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0004bab4ed76fb3b0e7b5e78faee5c8cd34739a5594338591ba06831ec971383.jpg
@@ -39,6 +39,9 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
 [レポートを読む](https://www.gartner.com/reprints/?id=1-2HU9T8IX&ct=240614&st=sb "Read the report") 

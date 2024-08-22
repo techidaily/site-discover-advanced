@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives
-date: 2024-08-21 13:56:46
-updated: 2024-08-22 11:44:58
+date: 2024-08-21T14:58:57.954Z
+updated: 2024-08-22T14:58:57.954Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8902585d66f327811523945d1407154d052552e159a549922c8c259267eab9e9.png
@@ -57,3 +57,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

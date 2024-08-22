@@ -1,7 +1,7 @@
 ---
 title: "Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality"
-date: 2024-08-19 16:57:54
-updated: 2024-08-22 11:55:16
+date: 2024-08-21T14:58:57.743Z
+updated: 2024-08-22T14:58:57.743Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7143579495d0f62e1a2cda12fd626d9036d87a576b32c356f772aa95549b6f82.jpg
@@ -69,3 +69,9 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->

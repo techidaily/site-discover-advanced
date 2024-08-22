@@ -1,7 +1,7 @@
 ---
 title: Experience Improved Behavioral Analytics Through Cookiebot Solutions
-date: 2024-08-21 19:22:58
-updated: 2024-08-22 11:52:54
+date: 2024-08-21T14:58:56.875Z
+updated: 2024-08-22T14:58:56.875Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ade566529a7bc97aed23a78dd1be17314340f234a16c9d2f0b2b465091d3ea91.jpg
@@ -43,6 +43,9 @@ Only 6% of attendees to the SSON webinar described their AP department as being 
 
 ![blog-ap-challenge-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Uncovering AP challenges
 
 "Before automating its AP process with AI-powered IDP solutions, this global snack-food supplier used to face data entry errors and the other types of AP challenges identified by shared services leaders who attended the SSON webinar,” said Donald Bunch, senior manager for automation development and governance at the multinational food enterprise. In many cases, staff had to handle the same document multiple times. 
@@ -59,6 +62,9 @@ As a result, invoices were processed differently in France, Brazil, and Italy.
 
 “We needed to design a solution that would encompass all these different markets and variations and still allow the company to service the unique needs of individual localities,” Bunch explained. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### How AI is used in invoice processing
 
 That’s where AI proved very beneficial, the company uses a combination of natural language processing (NLP) and machine learning (ML) for [automated invoice processing](https://tools.techidaily.com/abbyy/products/). 
@@ -74,6 +80,12 @@ AI-powered solutions can liberate AP staff from the manual, repetitive tasks tha
 
 ![blog-ap-challenge-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Benefits of transforming AP into a strategic powerhouse
 
 Purpose-built AI technology enabled this multinational organization to achieve faster invoice approval times, greater accuracy, and a higher percentage of invoices posted directly to its ERP without human operator intervention. 
@@ -96,6 +108,9 @@ Curious to learn more about how a multinational snack food supplier used AI-powe
 
 ![Mark-Brousseau](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/Mark-Brousseau.png)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 Mark Brousseau
 
 President of Brousseau & Associates

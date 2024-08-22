@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-08-21 19:37:10
-updated: 2024-08-22 10:24:15
+date: 2024-08-21T14:58:57.559Z
+updated: 2024-08-22T14:58:57.559Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -29,12 +29,18 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. DXの成功はプロセスの真実を理解することから
 
 デジタルインテリジェンスは、企業にとって今最も重要と考えられている場所、つまり顧客体験、競争上の優位性、可視性、コンプライアンスに多大な影響を与えます。 ABBYYのデジタルマーケティングのディレクターでありプロセスのエキスパートであるRyan Raikerは、RTInsights.comの記事で、どのようにビジネスが組織のプロセスを深く理解する必要としているかを説明しています。
 
 [記事はこちら](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. 業務プロセスとリスク、失敗の理解
 
 自動化は企業を根本的に変革しました。ワークフローの合理化、運用効率の向上から顧客体験の向上まで、自動化はビジネスに不可欠な機能を強化し、DXを推進します。
@@ -61,12 +67,18 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 [記事はこちら](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ### 6\. 壊れた業務プロセスを修正することによる利益率の活性化
 
 今日では、医療提供者は利益率を確保し、保険会社が支払うべきすべてのドルを取得する必要があります。 運用効率の向上と管理プロセスの合理化は、請求拒否を減らし、請求ワークフローに伴うやり直しの量を最小限に抑えるのに大いに役立ちます。 Bruce Orcuttは、ヘルスケアリーダーが、どこにボトルネックがあり、どのプロセスにコストがかかっているのかを特定できる高度なソリューションの必要性について語っています。
 
 [記事はこちら](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. 強烈な効果をもたらすRPAにタスクマイニングとプロセスマイニングで明確な道筋を
 
 テクノロジージャーナリストのAdrian Bridgwaterは、彼の最新のIDG Connectの記事の中で、デジタルビジネスが機能する方法を最も詳細なレベルで理解し、さまざまなワークフローを定義済みの個別要素に分類できるようにすることをおこなわない限り、人を効果的に管理しつつ、並行して人の代わりに最大限の力を発揮するようRPAボットを配置することはできないと言っています。 この記事には、「エンドツーエンド」で事業を展開している1つの企業としてABBYYが含まれています。
@@ -75,12 +87,18 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
 
 **_詳細、体験版申し込みは[こちら](https://tools.techidaily.com/abbyy/products/)より承ります。_**
 
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

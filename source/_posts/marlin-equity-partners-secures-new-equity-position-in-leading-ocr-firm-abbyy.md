@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY
-date: 2024-08-19 19:33:47
-updated: 2024-08-22 10:29:59
+date: 2024-08-21T14:58:58.841Z
+updated: 2024-08-22T14:58:58.841Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
@@ -109,3 +109,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->

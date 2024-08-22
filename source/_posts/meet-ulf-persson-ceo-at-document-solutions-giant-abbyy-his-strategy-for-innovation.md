@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-08-19 18:26:23
-updated: 2024-08-22 11:33:30
+date: 2024-08-21T14:58:56.970Z
+updated: 2024-08-22T14:58:56.970Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -41,3 +41,7 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->

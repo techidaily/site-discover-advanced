@@ -1,7 +1,7 @@
 ---
 title: "Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!"
-date: 2024-08-19 18:31:26
-updated: 2024-08-22 11:38:30
+date: 2024-08-21T14:58:57.188Z
+updated: 2024-08-22T14:58:57.188Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
@@ -27,6 +27,9 @@ Apart from the finished works of fiction - prose, poetry, drama - these volumes 
 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How Tolstoy fans used technologies
 
 When Leo Tolstoy State Museum in Moscow, Russia, decided to digitize complete works of Tolstoy, they turned to ABBYY, aware of the company’s similar projects with European universities and libraries. The company’s text recognition technologies have already been successfully used to digitize works for Project Gutenberg digital library, [IMPACT](http://www.frakturschrift.com/en:projects:impact), [METAe](http://www.frakturschrift.com/en:projects:metae) and [Southampton University library](https://www.theguardian.com/higher-education-network/blog/2012/jul/09/university-of-southampton-library-digitising-resources) to name a few.
@@ -41,6 +44,9 @@ The work of volunteers was organized through a dedicated website – [readingtol
 
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## From archive digitization to a trendsetting project
 
 Once all 90 volumes went online, ABBYY specialists joined efforts with tablet-maker Wexler to create 761 electronic books: one for each volume and for each piece of work. Now all of them are accessible at www.tolstoy.ru, the official Internet portal dedicated to the writer’s life and writings, developed by the Tolstoy Museum and the Tolstoy’s Estate-Museum in Yasnaya Polyana.
@@ -53,6 +59,9 @@ _By Daria Kertsenbaum_
 
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

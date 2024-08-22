@@ -1,7 +1,7 @@
 ---
 title: Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights
-date: 2024-08-19 20:22:18
-updated: 2024-08-22 11:46:44
+date: 2024-08-21T14:58:57.317Z
+updated: 2024-08-22T14:58:57.317Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/de67db97111b230778d53cfacb51bb9c7a1356b2082aff96997373a5633f37e3.jpg
@@ -45,6 +45,10 @@ ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可�
 
 また、冗長化構成によりHA/DR (High Availability/Disaster Recovery)も実現可能となっています。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ### 2\. セキュリティ
 
 ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件である、以下のようなセキュリティ対策機能をサポートしています。
@@ -53,6 +57,9 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![secure FlexiCapture platofrm](https://static1.abbyy.com/abbyycommedia/29915/image-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 **\- データレベル**
 
 ストレージ：EFS対応
@@ -61,6 +68,9 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![encryption for security](https://static1.abbyy.com/abbyycommedia/29916/image-4.png)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 **\- アクセスレベル**
 
 認証によるアクセス
@@ -73,6 +83,9 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. 様々なワークフローへの対応
 
 ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合わせ、柔軟にワークフローを設定する事が可能です。
@@ -83,6 +96,9 @@ ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合�
 
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. 外部接続・連携
 
 ABBYY FlexiCaptureは、コネクタやAPIを介して様々な外部システム・アプリケーションとの接続・連携が可能です。以下、いくつかの例を紹介します。
@@ -115,6 +131,9 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 
 ABBYY Japan エンジニアリングチーム
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

@@ -1,7 +1,7 @@
 ---
 title: Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT
-date: 2024-08-19 18:36:46
-updated: 2024-08-22 12:12:46
+date: 2024-08-21T14:58:56.724Z
+updated: 2024-08-22T14:58:56.724Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ca38034074275621f4e2db5f63e60466f24745c2303d23667377ba30f3317569.jpg
@@ -102,3 +102,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

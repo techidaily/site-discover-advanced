@@ -1,7 +1,7 @@
 ---
 title: "Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin"
-date: 2024-08-21 20:38:39
-updated: 2024-08-22 12:17:58
+date: 2024-08-21T14:58:58.610Z
+updated: 2024-08-22T14:58:58.610Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/289536a26b86dc5c26586097f9ebf58e81d35aa537c61d20d15b54d1edc660b4.jpg
@@ -75,3 +75,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->

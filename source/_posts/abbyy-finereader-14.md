@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール"
-date: 2024-08-21 14:17:26
-updated: 2024-08-22 11:44:47
+date: 2024-08-21T14:58:57.462Z
+updated: 2024-08-22T14:58:57.462Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29fde795ffee614c269b7a4e148b93d0201f16c6e463e2b9427b9aa8d21b5faf.jpg
@@ -59,3 +59,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->

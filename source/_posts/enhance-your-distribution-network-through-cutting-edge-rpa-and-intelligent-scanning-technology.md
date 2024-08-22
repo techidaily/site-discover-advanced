@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology
-date: 2024-08-20 18:13:58
-updated: 2024-08-22 11:13:26
+date: 2024-08-21T14:58:57.641Z
+updated: 2024-08-22T14:58:57.641Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcefc70e1397a53b37f683a84de.jpg
@@ -33,6 +33,9 @@ Documents are containers of vital information to any supply chain operation. Sou
 
 All too often, technology providers and companies are quick to reduce documents to data problems for systems of record, and this set of assumptions creates its own vulnerabilities to disruption and competition. Instead, documents contain both valuable data and content—the latter requiring skilled reading and context-grounded interpretation to make quick decisions. Skilled workforces interact with documents and content for this express purpose, since data only provides part of the picture needed to make critical decisions that move shipments or source materials and services every day. Artificial intelligence (AI) can add the dimension of skilled reading to documents, filling in that missing link between experience and data, but supply chains have yet to realize its potential for transforming their operations.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Add document ‘skills’ to your operations
 
 If a skilled, trained, and experienced workforce were not required, the “document problem” would have been solved a decade ago, but the reality is that these skills and experience are needed frequently to make decisions on content—decisions on sourcing, shipping, and receiving. Data extraction is sufficient in most cases, and straight-through processing of documents at 90 percent or better has become a common expectation. But even that level of efficiency requires some built-in Intelligent Document Processing capabilities in the tools, and the rest requires advanced decision-making skills.
@@ -41,12 +44,18 @@ Having the right tools with experienced, human-like skills built in with new-gen
 
 No longer do you need big capture platforms or frameworks to get the operational benefits of document skills. With the help of AI with pre-trained containerized document “skills” (pre-trained actions that understand the document, not just the data, but the actions needed to be taken on it), supply chains can finally remove common bottlenecks and gain control of the document-driven processes that all levels of business operations rely on—Transport & Logistics to Accounts Payable (AP) payment processing.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Want to optimize your Transportation & Logistics operations for rapid change?
 
 We have a skill for that.
 
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A marketplace approach
 
 Speed is the key to customer satisfaction and competitive advantage in [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/). That is precisely the idea behind the new [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), the first digital marketplace for processing and understanding enterprise documents that provides a rich collection of content skills, connectors, and assets. Many of the top shippers and logistics providers, and many cloud-based companies, are providing their business users and citizen developers the best-in-class document and content processing with our easy-to-use, configurable, and pluggable platform, which is ready to use within minutes.
@@ -59,8 +68,14 @@ Learn more about how ABBYY is[helping Transportation and Logistics providers](ht
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

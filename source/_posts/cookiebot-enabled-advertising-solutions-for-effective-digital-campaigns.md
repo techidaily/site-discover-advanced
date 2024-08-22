@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns
-date: 2024-08-21 21:40:47
-updated: 2024-08-22 11:50:12
+date: 2024-08-21T14:58:58.436Z
+updated: 2024-08-22T14:58:58.436Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/65fba9a952c6564fd879ce858daef732be8f2531c9874f65aafa43e482841322.jpg
@@ -117,6 +117,9 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

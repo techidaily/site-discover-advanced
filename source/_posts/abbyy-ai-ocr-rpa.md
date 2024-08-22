@@ -1,7 +1,7 @@
 ---
 title: 伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減
-date: 2024-08-19 12:58:50
-updated: 2024-08-22 11:46:29
+date: 2024-08-21T14:58:58.283Z
+updated: 2024-08-22T14:58:58.283Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c010ac8c095463e82a02d0121c6ae49a6934a26c38ee953e2dee2be944508d80.jpg
@@ -46,6 +46,10 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

@@ -1,7 +1,7 @@
 ---
 title: Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets
-date: 2024-08-20 15:13:19
-updated: 2024-08-22 11:29:33
+date: 2024-08-21T14:58:56.954Z
+updated: 2024-08-22T14:58:56.954Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4ccd50e41e8a2b78b87f09590.jpg
@@ -41,6 +41,9 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

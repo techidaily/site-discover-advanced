@@ -1,7 +1,7 @@
 ---
 title: "Globale Allianz: ABBYY Bildet Mit Synpulse Eine Umfassende Europapartnerschaft"
-date: 2024-08-21 23:28:30
-updated: 2024-08-22 11:13:40
+date: 2024-08-21T14:58:58.568Z
+updated: 2024-08-22T14:58:58.568Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/389ba287b9f30e51bc8552f55032d1c330a9a54c78aa8404f53a5e2618efdf4c.jpg
@@ -95,3 +95,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->

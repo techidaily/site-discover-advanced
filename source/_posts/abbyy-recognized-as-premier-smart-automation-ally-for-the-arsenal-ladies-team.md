@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team
-date: 2024-08-19 22:23:30
-updated: 2024-08-22 11:53:30
+date: 2024-08-21T14:58:58.713Z
+updated: 2024-08-22T14:58:58.713Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9b9110ec4a61375e331a8801ee2c3323c1b29e5d640a76c9d9df4c625ff11a27.jpg
@@ -47,16 +47,25 @@ Investment in women’s sports leagues, teams, and athletes — from organizatio
 
 [_TechCrunch, 2023 "Women’s sports investment deserves the same consideration tech receives"_](https://techcrunch.com/2023/08/16/womens-sports-investment-deserves-the-same-consideration-tech-receives/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Happy, but not satisfied: celebrating wins while looking ahead
 
 The partnership with ABBYY and Arsenal Women highlights our commitment to supporting gender equity and equality, diversity, and inclusion – a powerful mission rooted in ABBYY’s history. ABBYY has been supporting female athletes for years through our sponsorship of PFU BlueCats volleyball team in Japan. Challenging the gender gap in the tech industry, we are proud of our above-industry-average representation of women in the workplace. Women at ABBYY represent over 35 percent of our workforce (compared to the tech industry average of 28 percent), and more than a third of our team leaders.![Arsenal Womens](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/let-get-real-abbyy-x-arsenal-women/Arsenal-Women-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 **From the solutions we provide to how we lead our organization, ABBYY believes that everything we do should reflect positively on the world; now we are partnering with Arsenal Women to bring positive change both in the local communities and on a global level.** Not only do companies leading in diversity and inclusion initiatives see higher employee retention, productivity, and profitability, but diversity also fosters better ideas and increased innovation. As ABBYY and Arsenal Women join forces, the stage is set for an exciting journey that will undoubtedly leave a mark on both industries, inspiring individual, and organizations alike to aim higher and achieve more.
 
 Be a game changer with [ABBYY and Arsenal Women](https://tools.techidaily.com/abbyy/products/). To speak to an ABBYY representative, [contact us](https://tools.techidaily.com/abbyy/products/).
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### Be a Game Changer with ABBYY
 
 To get guidance on intelligent automation and learn more about how ABBYY can help you, or if you want to join the ABBYY team, get in touch with us.
@@ -67,12 +76,18 @@ To get guidance on intelligent automation and learn more about how ABBYY can hel
 
 ![Catherine Johnson](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/Autors-Headshots/catherinejohnson-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 Catherine Johnson
 
 Senior Director of Brand and Industry Relations at ABBYY
 
 Catherine Johnson is the Senior Director of Brand and Industry Relations at ABBYY leading brand and analyst relations strategy to maximize ABBYY’s visibility in key markets and industries. Catherine has more than 10 years of experience in managing and executing media and analyst relations, brand positioning, and thought leadership programs for ABBYY, as well as overseeing the product PR team and managing brand partnerships, such as ABBYY’s partnership with Arsenal Women Football Club. She is passionate about leveraging innovative technology to change people’s lives for the better. Catherine is based in Chicago, Illinois.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

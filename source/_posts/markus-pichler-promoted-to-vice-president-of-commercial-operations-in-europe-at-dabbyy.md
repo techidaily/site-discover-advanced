@@ -1,7 +1,7 @@
 ---
 title: Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy
-date: 2024-08-21 23:57:33
-updated: 2024-08-22 12:29:25
+date: 2024-08-21T14:58:57.782Z
+updated: 2024-08-22T14:58:57.782Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3b7699086866b0998ff7b7cb.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->

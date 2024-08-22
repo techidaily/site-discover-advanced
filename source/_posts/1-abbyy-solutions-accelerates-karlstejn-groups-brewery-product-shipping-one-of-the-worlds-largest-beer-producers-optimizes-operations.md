@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations"
-date: 2024-08-19 22:52:24
-updated: 2024-08-22 11:21:37
+date: 2024-08-21T14:58:58.274Z
+updated: 2024-08-22T14:58:58.274Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/25f844691822ba4cb5e360ab99f911dddda24c96d9c140ba9ad85b4664a5d151.png
@@ -89,6 +89,9 @@ ABBYYのIDPソリューションを納品書のスキャンプロセスに導入
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

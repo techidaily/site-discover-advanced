@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics"
-date: 2024-08-19 19:51:10
-updated: 2024-08-22 12:49:58
+date: 2024-08-21T14:58:57.551Z
+updated: 2024-08-22T14:58:57.551Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1945857397ebd75b26ddd988969514bcfe07be7bef56803fb658a77091d094a7.jpg
@@ -34,6 +34,9 @@ ABBYYs Lösung für Blue Prism eröffnet Ihnen neue Möglichkeiten:
 * Automatisieren Sie die Klassifizierung von Dokumenten und die Extraktion von Daten durch kontinuierliches Auto-Learning und Benutzereingaben.
 * Erweitern Sie den Einsatz von RPA um die Fähigkeit, inhaltsbasierte Prozesse zu automatisieren, die Dokumente, Bilder und Text enthalten, um auf diese Weise strategische Initiativen zur digitalen Transformation zu unterstützen.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Vorteile der Integration 
 
 ##### Achten Sie auf Compliance 
@@ -62,6 +65,9 @@ Der ABBYY FlexiCapture-Konnektor für Blue Prism ermöglicht die Integration der
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Nachricht
 
 #### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
@@ -102,6 +108,9 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ##### Broschüre 
 
 #### Blue Prism und die ABBYY Timeline Technology Alliance 
@@ -110,6 +119,9 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### Lösungsüberblick 
 
 #### Optimieren Sie Patientenerlebnis & Patient Journey 
@@ -128,6 +140,9 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
 
 ##### Broschüre 
@@ -138,12 +153,18 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### Lösungsüberblick 
 
 #### Optimieren Sie Patientenerlebnis & Patient Journey 
 
 [Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Möchten Sie mit unserem Expertenteam sprechen?
 
 [Demo vereinbaren](https://tools.techidaily.com/abbyy/products/)[Kontakt aufnehmen](https://tools.techidaily.com/abbyy/products/)

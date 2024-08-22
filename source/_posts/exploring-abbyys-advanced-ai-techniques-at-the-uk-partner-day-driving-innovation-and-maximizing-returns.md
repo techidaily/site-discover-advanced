@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Advanced AI Techniques at the UK Partner Day – Driving Innovation and Maximizing Returns
-date: 2024-08-21 22:24:50
-updated: 2024-08-22 12:55:30
+date: 2024-08-21T14:58:57.700Z
+updated: 2024-08-22T14:58:57.700Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7c07b94a0d6b31286cb181ffa8593e2e10d0215534d64f40b8e2e1bab83a4ee.jpg
@@ -137,3 +137,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

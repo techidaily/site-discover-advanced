@@ -1,7 +1,7 @@
 ---
 title: Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande
-date: 2024-08-21 23:56:40
-updated: 2024-08-22 11:40:41
+date: 2024-08-21T14:58:58.186Z
+updated: 2024-08-22T14:58:58.186Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/264f7e50d992f10f22f440e035402650c9e912cde2fed4f7c2aee477f6b93402.jpg
@@ -96,6 +96,9 @@ Sur la base de son expérience positive avec ABBYY Recognition Server au sein de
 
 Partager  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

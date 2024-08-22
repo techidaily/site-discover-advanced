@@ -1,7 +1,7 @@
 ---
 title: Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade
-date: 2024-08-21 12:12:32
-updated: 2024-08-22 11:43:54
+date: 2024-08-21T14:58:58.051Z
+updated: 2024-08-22T14:58:58.051Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0507e17ed881794538b9389fa94e191219e441e589bdee2dcef8997d622851b.png
@@ -86,3 +86,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->

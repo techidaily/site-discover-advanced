@@ -1,7 +1,7 @@
 ---
 title: Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers
-date: 2024-08-20 18:13:43
-updated: 2024-08-22 12:21:53
+date: 2024-08-21T14:58:58.890Z
+updated: 2024-08-22T14:58:58.890Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7857315bad256fdc5741086fa363d0007b6f6fca6b50e61093052da5a00ac70.jpg
@@ -23,12 +23,21 @@ Education/Research
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 329 kb)](https://static4.abbyy.com/abbyycommedia/10189/cs-unisouthampton-rs-f.pdf) 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Contexte
 
 ![](https://tools.techidaily.com/abbyy/products/)La bibliothèque de l’université de Southampton accueille environ 35 000 étudiants et membres de son personnel. Elle offre un accès à une très vaste collection de qualité supérieure : 1,5 millions de livres et plusieurs millions de pages de documents d’archive. La bibliothèque s’est récemment lancée dans un programme de numérisation d’un nombre important de textes clés via l’Unité de numérisation de bibliothèques (LDU, Library Digitisation Unit). La LDU est une opération phare dans le secteur de l’éducation et se spécialise dans la capture numérique d’un large éventail de documents pour les référentiels ou la distribution sur Internet via des liens du catalogue de la bibliothèque. La démarche de la bibliothèque universitaire consiste à offrir un accès complet aux documents numériques qu’elle crée, chaque fois que cela est possible et autorisé.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ABBYY FineReader, un produit logiciel conçu pour la numérisation et la numérisation ad-hoc, a été utilisé par la bibliothèque pendant un certain nombre d’années pour numériser une petite quantité de pages, et occasionnellement l’intégralité de livres. Ce programme est aussi utilisé pour la reconnaissance de texte et la reconnaissance optique de caractères (OCR, optical character recognition). La bibliothèque s’est rapidement rendue compte que pour automatiser le processus OCR, avec un rendement élevé, et atteindre son objectif, qui est de numériser un demi-million de pages par an, elle aurait besoin d’un produit plus robuste et capable de traiter automatiquement d’importants volumes de documents.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Solution
 
 Pour trouver une solution permettant de traiter les documents imprimés, de les convertir en formats interrogeables, tels que le PDF et le PDF/A, et de numériser la création d’archives ou de dossiers, la bibliothèque a examiné diverses options disponibles sur le marché. Les critères suivants ont été examinés pour un certain nombre de produits: rapidité et qualité de l’OCR, gamme de formats et de compressions à l’exportation et possibilité d’intégrer des API/workflows. Après avoir examiné un certain nombre de produits, la bibliothèque a sélectionné ABBYY Recognition Server comme solution la plus performante.
@@ -60,6 +69,9 @@ La réussite de la numérisation peut également être attribuée à la soupless
 
 « L’installation d’ABBYY Recognition Server a été rapide. Les premières réponses d’ABBYY et de leurs équipes de support vis-à-vis de toutes les questions posées ont été rapides, avec un suivi de bonne qualité. Nous avons été très satisfaits des résultats et nous avons hâte d’utiliser le produit pour continuer à remplir nos objectifs en termes de numérisation. »
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## À propos de l’université de Southampton
 
 L’unité de numérisation de bibliothèques de l’université de Southampton propose  
@@ -69,6 +81,9 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu)
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## À propos d’ABBYY et contact
 
 [Vers la description d’ABBYY ›](https://tools.techidaily.com/abbyy/products/)
@@ -77,6 +92,9 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu)
 
 Partager 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

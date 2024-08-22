@@ -1,7 +1,7 @@
 ---
 title: Specialized Support Vendors Powering ABBYY's Comprehensive Service Portfolio
-date: 2024-08-20 23:14:57
-updated: 2024-08-22 10:38:10
+date: 2024-08-21T14:58:57.812Z
+updated: 2024-08-22T14:58:57.812Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d03489546d1b061501196d90eec003105f028cda35360df03f790bed178f4837.jpg
@@ -79,3 +79,7 @@ Client acknowledges that ABBYY's contractual obligations under Professional Serv
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

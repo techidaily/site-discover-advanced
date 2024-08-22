@@ -1,7 +1,7 @@
 ---
 title: Innovating AP Workflow Management with Advanced Automated Solutions
-date: 2024-08-19 21:14:52
-updated: 2024-08-22 12:33:26
+date: 2024-08-21T14:58:58.154Z
+updated: 2024-08-22T14:58:58.154Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e54865f3f57ec57dc69d69631538169245afb52f02b58f105955b7146a11c16.jpg
@@ -21,6 +21,9 @@ June 01, 2023 | English
 
 ![Andrew Pery 125X125](https://static2.abbyy.com/abbyycommedia/37387/andrew-pery-125x125.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### Andrew Pery
 
 Product Marketing, Finance & Accounting, **ABBYY**
@@ -29,16 +32,25 @@ Product Marketing, Finance & Accounting, **ABBYY**
 
 ![Gaurang Pagdi 125X125](https://static4.abbyy.com/abbyycommedia/37389/gaurang-pagdi-125x125.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Gaurang Pagdi
 
 Principal Analyst, **ISG**
 
 ![Chris Gaetano 125X125](https://static4.abbyy.com/abbyycommedia/37388/chris-gaetano-125x125.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Chris Gaetano
 
 Technology Editor, **Accounting Today** (Moderator)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Accelerate Accounts Payable Operations with a new Generation of Low Code/No Code Solutions
 
 In a 2022 study from the Institute of Finance & Management (IOFM), over 75 percent of AP teams reported an increase in invoice volume in the most recent quarter, and 80 percent reported an increase in spending on invoice processing tasks.
@@ -60,10 +72,16 @@ You’ll also get the latest insights on the AP automation market and see how AB
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

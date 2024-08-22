@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-08-19 15:16:51
-updated: 2024-08-22 11:20:27
+date: 2024-08-21T14:58:57.252Z
+updated: 2024-08-22T14:58:57.252Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -65,3 +65,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->

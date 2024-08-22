@@ -1,7 +1,7 @@
 ---
 title: "Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role"
-date: 2024-08-21 15:40:27
-updated: 2024-08-22 11:30:25
+date: 2024-08-21T14:58:57.310Z
+updated: 2024-08-22T14:58:57.310Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16477a8d9fa6304264e3f24e3.jpg
@@ -42,10 +42,16 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Gina Ray
 
 _ABBYY_

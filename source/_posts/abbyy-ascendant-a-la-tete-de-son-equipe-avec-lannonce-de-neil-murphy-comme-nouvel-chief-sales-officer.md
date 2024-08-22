@@ -1,7 +1,7 @@
 ---
 title: ABBYY Ascendant À La Tête De Son Équipe Avec L'annonce De Neil Murphy Comme Nouvel Chief Sales Officer
-date: 2024-08-19 11:36:18
-updated: 2024-08-22 12:35:58
+date: 2024-08-21T14:58:58.288Z
+updated: 2024-08-22T14:58:58.288Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292fbd537e9c3d8dd96d06bbb96.jpg
@@ -39,10 +39,16 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 14 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

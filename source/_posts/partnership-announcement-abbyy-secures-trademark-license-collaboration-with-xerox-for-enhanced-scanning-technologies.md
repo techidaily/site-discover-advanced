@@ -1,7 +1,7 @@
 ---
 title: "Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies"
-date: 2024-08-19 16:53:41
-updated: 2024-08-22 12:47:38
+date: 2024-08-21T14:58:56.997Z
+updated: 2024-08-22T14:58:56.997Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f411804b07d8feb5757ac6a37c514ffad28202840ac720d56c6054350be2fb61.jpg
@@ -62,3 +62,8 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide"
-date: 2024-08-19 12:58:25
-updated: 2024-08-22 12:51:25
+date: 2024-08-21T14:58:58.089Z
+updated: 2024-08-22T14:58:58.089Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d01f6c0274e2880e91afbb32b22a67b6646c0f35efcd7b7e4395e6722afaacb2.jpg
@@ -57,6 +57,10 @@ The M-Files system controls the approval workflow and manages routing and respon
 
 Forward approved invoices to Finance for payment processing.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Integration benefits
 
 ##### Find and use information more effectively 
@@ -71,6 +75,9 @@ Turn robots into the next class of digital workers by providing content skills t
 
 The fully [automated end-to-end invoice process](https://tools.techidaily.com/abbyy/products/) helps to achieve high accuracy and facilitates straight-through-processing (STP) for optimal efficiency gains.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## What our customers say
 
 The partnership between ABBYY and M-Files has allowed us to leverage the respective technologies to streamline our invoice processes and better serve our suppliers. We use the ABBYY and M-Files solution to process thousands of invoices monthly and have been able to substantially reduce operating expenses, shorten processing times and facilitate user friendly search and retrieval of invoice documents. 
@@ -85,6 +92,12 @@ The combination of ABBYY FlexiCapture for Invoices and M-Files delivers a compel
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/m-files.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)

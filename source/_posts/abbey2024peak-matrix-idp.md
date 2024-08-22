@@ -1,7 +1,7 @@
 ---
 title: ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題
-date: 2024-08-21 19:33:34
-updated: 2024-08-22 10:15:12
+date: 2024-08-21T14:58:56.633Z
+updated: 2024-08-22T14:58:56.633Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453eb6e04c1cfde40ef70bbce3.jpg
@@ -27,6 +27,9 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
 [レポートを読む](https://global.abbyy.com/hubfs/documents/content/report-everest-group-idp-products-peak-matrix-assessment-2024-en.pdf "Read the report") 

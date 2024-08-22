@@ -1,7 +1,7 @@
 ---
 title: Driven by the Leading Conversion-Optimized Analytics Platform
-date: 2024-08-21 10:39:49
-updated: 2024-08-22 12:42:47
+date: 2024-08-21T14:58:56.785Z
+updated: 2024-08-22T14:58:56.785Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/95b8f9c2962817f4c1d111a9c4869e31921442b0ad6b9a26e74db8ab6e71425f.jpg
@@ -55,6 +55,9 @@ Constant **synchronization with services, background app refresh** — all of th
 
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
 
 Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of creating a virtual business card right in front of you? Well, not a real one of course, we are talking augmented reality here. And by the way, there are not that many apps that employ augmented reality capabilities. Are you excited to try this out? Here’s a list of steps:
@@ -66,12 +69,19 @@ Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of cre
 
 Note that this feature is only available in iOS 11 for iPhone SE, 6s, and newer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **App of the Week: Loop**
 
 Do you promise yourself to start a new life on Monday but never actually do? Try [Loop](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en) — an app that helps to develop and maintain habits. Detailed diagrams and statistics show what habits have already been consolidated and what must still be worked on.
 
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
 
 The app is available on [Android](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en).
@@ -82,6 +92,9 @@ P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/p
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

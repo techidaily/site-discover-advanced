@@ -1,7 +1,7 @@
 ---
 title: Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration
-date: 2024-08-21 17:39:48
-updated: 2024-08-22 12:45:33
+date: 2024-08-21T14:58:58.255Z
+updated: 2024-08-22T14:58:58.255Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb278836c3c88e9ce1c38fad2ba00.jpg
@@ -77,3 +77,8 @@ French investment bank processes 10 million+ pages, 400 different document types
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->

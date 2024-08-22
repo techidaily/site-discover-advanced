@@ -1,7 +1,7 @@
 ---
 title: ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration
-date: 2024-08-21 22:59:49
-updated: 2024-08-22 10:54:19
+date: 2024-08-21T14:58:58.303Z
+updated: 2024-08-22T14:58:58.303Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ee23f258f8acc5ad2795e172a146cef682a3a259b32871693580ae9137133cdf.jpg
@@ -84,3 +84,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->

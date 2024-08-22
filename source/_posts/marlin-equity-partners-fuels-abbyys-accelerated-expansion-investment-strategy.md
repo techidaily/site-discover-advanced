@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy
-date: 2024-08-21 16:30:19
-updated: 2024-08-22 11:30:28
+date: 2024-08-21T14:58:58.604Z
+updated: 2024-08-22T14:58:58.604Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5599db5b0351dfe7fe4d3ef01a51b823176684e86c63c43fb2d60eaab80af0aa.jpg
@@ -58,3 +58,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021
-date: 2024-08-19 19:11:39
-updated: 2024-08-22 10:43:45
+date: 2024-08-21T14:58:57.069Z
+updated: 2024-08-22T14:58:57.069Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -47,10 +47,16 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020
-date: 2024-08-21 23:27:53
-updated: 2024-08-22 10:13:28
+date: 2024-08-21T14:58:58.320Z
+updated: 2024-08-22T14:58:58.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefedba62d12174cf3ff84234d4.jpg
@@ -33,3 +33,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->

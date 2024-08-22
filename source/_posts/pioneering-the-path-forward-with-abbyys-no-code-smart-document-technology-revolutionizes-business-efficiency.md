@@ -1,7 +1,7 @@
 ---
 title: Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency
-date: 2024-08-21 10:33:13
-updated: 2024-08-22 10:51:48
+date: 2024-08-21T14:58:58.230Z
+updated: 2024-08-22T14:58:58.230Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d64275a707a4eb2f0cc766f8.jpg
@@ -41,16 +41,25 @@ ABBYY Vantage & Marketplace can be purchased directly through ABBYY or via a glo
 
 ABBYY’s full suite of Digital Intelligence solutions can be found [here](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and are recognized for their leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy/ "ABBYY - LinkedIn"), [Twitter](https://twitter.com/abbyy%5Fsoftware "ABBYY - Twitter"), and [Facebook](https://www.facebook.com/ABBYYsoft "ABBYY - Facebook").
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYY editorial contacts
 
 ![02C Catherinejohnson](https://static1.abbyy.com/abbyycommedia/23661/02c-catherinejohnson.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Catherine Johnson
 
 _Director of Analyst Relations & Global Media Relations_
@@ -59,6 +68,9 @@ _Director of Analyst Relations & Global Media Relations_
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_

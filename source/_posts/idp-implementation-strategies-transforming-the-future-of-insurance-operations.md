@@ -1,7 +1,7 @@
 ---
 title: "IDP Implementation Strategies: Transforming the Future of Insurance Operations"
-date: 2024-08-21 19:30:29
-updated: 2024-08-22 11:21:34
+date: 2024-08-21T14:58:58.827Z
+updated: 2024-08-22T14:58:58.827Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91f7f58741561326931ca324590beadc475f32b45bcc3a270b10ca0d40e00353.jpg
@@ -19,6 +19,9 @@ Excel at customer satisfaction. Comply with regulations. Increase process effici
 
 The data inside of insurance claims, correspondence, other documents contain a wealth of information to drive insurance processes—but only when that data is easily accessible, accurate, and able to inform action.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 This eBook shares eight impactful use cases where AI-driven intelligent document processing (IDP) is enabling our customers to achieve results like 80% reduction in manual data entry, 25% productivity increase in policy lifecycle, and 40% of incoming invoices processed automatically, including:
@@ -27,6 +30,9 @@ This eBook shares eight impactful use cases where AI-driven intelligent document
 * Policy services
 * Claims management
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/ebook-use-case-insurance-intelligent-document-processing-en.pdf  "Read eBook") 

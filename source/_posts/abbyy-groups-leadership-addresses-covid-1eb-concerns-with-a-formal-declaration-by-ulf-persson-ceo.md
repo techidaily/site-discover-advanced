@@ -1,7 +1,7 @@
 ---
 title: ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO
-date: 2024-08-21 22:15:41
-updated: 2024-08-22 11:20:11
+date: 2024-08-21T14:58:57.959Z
+updated: 2024-08-22T14:58:57.959Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -48,3 +48,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
