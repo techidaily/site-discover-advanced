@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY"
-date: 2024-08-21T14:58:57.028Z
-updated: 2024-08-22T14:58:57.028Z
+date: 2024-08-25T23:17:59.277Z
+updated: 2024-08-26T23:17:59.277Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8497a84119e0a96a5c983db49610c81e2418d1546f465ac4877a5dbfe4aa35e7.JPG
@@ -351,3 +351,51 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-exploring-the-validity-of-instagram-photos/"><u>[New] 2024 Approved  Exploring the Validity of Instagram Photos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-time-honored-vhs-hacks-a-curators-choice-of-visual-tricks/"><u>[New] Time-Honored VHS Hacks  A Curator’s Choice of Visual Tricks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-tips-for-easily-accessing-videos-on-facebook-for-2024/"><u>[New] Tips for Easily Accessing Videos on Facebook for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-to-whatsapp-direct-video-distribution/"><u>[New] Tweeting to WhatsApp  Direct Video Distribution</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-premier-ringtone-makers-for-iphone-users/"><u>[Updated] 2024 Approved  Premier Ringtone Makers for iPhone Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-abbyy-textgrabber-new-feature-live-ocr-for-immediate-text-processing-and-task-automation/"><u>1. ABBYY TextGrabber: New Feature - Live OCR for Immediate Text Processing & Task Automation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-timeline-commercial-alliance-document-template-strengthen-your-corporate-relationships/"><u>ABBYY Timeline Commercial Alliance Document Template: Strengthen Your Corporate Relationships</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-von-soft-gmbh-and-co-kg-marktfuhrer-bei-der-intelligenten-textanalyse-und-datenextraktion-preisgekront-2021/"><u>ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-conversions-with-cookiebot-integration-optimized-user-experience-and-analytics-solutions/"><u>Boost Conversions with Cookiebot Integration – Optimized User Experience & Analytics Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-campaigns-using-cutting-edge-cookiebot-technology/"><u>Boost Your Campaigns Using Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boosting-digital-marketing-with-cookiebot-technology/"><u>Boosting Digital Marketing with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boosting-online-presence-through-effective-webpage-strategies-seo-techniques-for-success/"><u>Boosting Online Presence Through Effective Webpage Strategies: SEO Techniques for Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boosting-sap-bot-capabilities-through-abbyys-advanced-content-analytics/"><u>Boosting SAP Bot Capabilities Through ABBYY's Advanced Content Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/capitalizing-on-growth-streamline-revenue-management-using-abbyy-solutions/"><u>Capitalizing on Growth: Streamline Revenue Management Using ABBYY Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/changer-la-maniere-de-traiter-les-documents-avec-doxio-et-abbyy-une-revolution-dans-le-gestionnaire-papier/"><u>Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Personalization: Enhance User Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-websites-performance-with-cutting-edge-analytics/"><u>Cookiebot-Enabled: Boost Your Website's Performance with Cutting-Edge Analytics</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-google-pixel-8-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Google Pixel 8</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-apple-iphone-13-mini-to-chromecast-drfone-by-drfone-ios/"><u>How to Cast Apple iPhone 13 mini to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-fix-a-blue-screen-of-death-bsod-error-in-windows-10/"><u>How to Fix a Blue Screen of Death (BSOD) Error in Windows 10</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-camon-20-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Camon 20 FRP Bypass</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-iphonepcs-best-video-conversion-software-8/"><u>In 2024, Unveiling iPhone/PC's Best Video Conversion Software #8</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/incorporating-ai-strategies-for-better-team-participation-mastery-of-insights-from-corporate-records/"><u>Incorporating AI Strategies for Better Team Participation: Mastery of Insights From Corporate Records</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-with-salesforce-made-easy-abbyy-updates-android-business-card-reader-with-new-functionality/"><u>Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-mastery-transform-images-to-searchable-text-via-scan-ocr-and-pdf-creation/"><u>IPhone App Mastery: Transform Images to Searchable Text via Scan, OCR, and PDF Creation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-cookiebot-technology-for-superior-web-analytics-and-conversion-optimization/"><u>Leverage Cookiebot Technology for Superior Web Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/markus-pichler-promoted-to-vice-president-of-commercial-operations-in-europe-at-dabbyy/"><u>Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastermind-mind-games-trivia-channel-hunt-for-24/"><u>Mastermind Mind Games - Trivia Channel Hunt for '24</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-technology-boost-online-engagement-and-insights-today/"><u>Optimized With Cookiebot Technology - Boost Online Engagement & Insights Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-sites-structure-key-techniques-for-enhanced-page-ranking/"><u>Optimizing Your Site's Structure: Key Techniques for Enhanced Page Ranking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-better-search-engine-ranking/"><u>Optimizing Your Website's Pages for Better Search Engine Ranking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/rechnungsautomation-durch-abbyy-software-in-deurag-ags-prozessen/"><u>Rechnungsautomation Durch ABBYY Software in DEURAG AG's Prozessen</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/specialized-support-vendors-powering-abbyys-comprehensive-service-portfolio/"><u>Specialized Support Vendors Powering ABBYY's Comprehensive Service Portfolio</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-iphone-guide-for-stunning-photo-mashups-for-2024/"><u>Step-by-Step iPhone Guide for Stunning Photo Mashups for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-evolution-of-smartphone-scanners-iphone-x-versus-xs-insights-from-abbyys-latest-updates/"><u>The Evolution of Smartphone Scanners: IPhone X versus Xs - Insights From ABBYY's Latest Updates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-seamless-shift-to-perfect-insta-pics-mac-driven-video-size-evolution-for-2024/"><u>The Seamless Shift to Perfect Insta Pics  Mac-Driven Video Size Evolution for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transform-your-iphone-photos-of-texts-into-editable-files-with-scan-and-ocr-technology/"><u>Transform Your iPhone Photos of Texts Into Editable Files with Scan & OCR Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-patient-interactions-with-abbyy-cutting-edge-innovations-for-modern-telehealth-services/"><u>Transforming Patient Interactions with ABBYY: Cutting-Edge Innovations for Modern Telehealth Services</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-selections-premium-webcam-platforms-for-2024/"><u>Ultimate Selections  Premium Webcam Platforms for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-the-terms-of-use-for-abbyys-flexicapture-including-dpa-and-gdpr-provisions/"><u>Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unleash-potential-with-advanced-analytics-experience-custom-built-solutions-from-cookiebot-innovations/"><u>Unleash Potential with Advanced Analytics - Experience Custom-Built Solutions From Cookiebot Innovations</u></a></li>
+<li><a href="https://win-dash.techidaily.com/windows-7810-logitech-rx250-driver-download-step-by-step-guide/"><u>Windows 7/8/10 Logitech RX250 Driver Download: Step-by-Step Guide</u></a></li>
+</ul></div>

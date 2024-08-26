@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-08-21T14:58:57.324Z
-updated: 2024-08-22T14:58:57.324Z
+date: 2024-08-25T23:18:36.388Z
+updated: 2024-08-26T23:18:36.388Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -64,3 +64,40 @@ Connect with us
 <!-- affiliate ads begin -->
 <a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-audio-alchemy-fusing-music-and-visuals-on-instagram/"><u>[New] Audio Alchemy  Fusing Music and Visuals on Instagram</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-prime-gopro-protectors-top-10-reviewed/"><u>[New] Guide to Prime GoPro Protectors - Top 10 Reviewed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-bright-ideas-in-film-setup-secrets-to-perfect-lighting/"><u>[Updated] Bright Ideas in Film Setup  Secrets to Perfect Lighting</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-enhanced-marketing-insights-with-cookiebot-technology/"><u>1. Enhanced Marketing Insights with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/2022-spark-matrix-by-quadrant-smart-document-management/"><u>2022 Spark Matrix by Quadrant: Smart Document Management</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-compre-written-by-daniel-kelley/"><u>2024 Approved  A Compre Written by Daniel Kelley</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-faces-of-technology-analyzing-face-detection-in-phones/"><u>2024 Approved  Faces of Technology  Analyzing Face Detection in Phones</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-interpreting-user-inactivity-could-it-be-a-blocked-status/"><u>2024 Approved  Interpreting User Inactivity  Could It Be a Blocked Status?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/6yer6j6n44k144o844ot44k544gr44gk44gr44kl6z2e5qel6ycg5yyw44kz44oz44og44oz44oe44gu5aplusplus5yem5pa55rov44ks6kej44gn5pio44gl44gz/"><u>金融サービスにおける非構造化コンテンツの対処方法を解き明かす</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbeyy-finescanner-80-abbeyy/"><u>ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-nintendo-entertainment-system-classics-with-these-game-adding-hacks/"><u>Enhance Your Nintendo Entertainment System Classics With These Game-Adding Hacks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-note-13-proplus-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Xiaomi Redmi Note 13 Pro+ 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/is-it-lawful-to-screen-capture-youtube-content-for-2024/"><u>Is It Lawful to Screen-Capture YouTube Content for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/laserfiche-optimization-with-abbyy-discover-flexicaptures-power/"><u>Laserfiche Optimization with ABBYY: Discover FlexiCapture's Power</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-track-in-the-air-parody-anthems-for-2024/"><u>Laugh Track in the Air  Parody Anthems for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-abbyy-forward-robert-youngjohns-at-the-helm-of-its-governing-board/"><u>Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-the-pack-abbyy-secures-top-position-in-qkss-2022-spark-index-for-smart-document-processing-technologies/"><u>Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/masterclass-in-3d-color-grading-with-custom-luts-for-2024/"><u>Masterclass in 3D Color Grading with Custom LUTs for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigate-the-future-of-insurance-with-our-digital-agility-advancement-ebook-your-guide-to-modernization-in-insurtech/"><u>Navigate the Future of Insurance with Our 'Digital Agility Advancement' EBook – Your Guide to Modernization in InsurTech</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/norton-rose-llp-setzt-auf-fortschrittliche-dokumentenverarbeitung-mit-abbyy-recognition-server-zentralisierte-digitalisierung-fur-anwalte/"><u>Norton Rose LLP Setzt Auf Fortschrittliche Dokumentenverarbeitung Mit ABBYY Recognition Server – Zentralisierte Digitalisierung Für Anwälte</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-boosting-user-engagement-through-tailored-experiences/"><u>Optimize With Cookiebot: Boosting User Engagement Through Tailored Experiences</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-the-help-of-cookiebot-enhancing-your-websites-performance/"><u>Optimized with the Help of CookieBot: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-infinix-zero-30-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Infinix Zero 30 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/perfecting-presentations-choosing-from-top-10-free-screen-captures-for-mac/"><u>Perfecting Presentations  Choosing From Top 10 Free Screen Captures for Mac</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamping-business-practices-for-enhanced-profitability-within-the-banking-sector/"><u>Revamping Business Practices for Enhanced Profitability Within the Banking Sector</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionize-your-digital-campaigns-using-advanced-cookiebot-driven-insights/"><u>Revolutionize Your Digital Campaigns Using Advanced Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/smart-document-handling-unlock-the-power-of-ai-with-this-5-step-guide-to-automating-data-entry-using-abbyy/"><u>Smart Document Handling: Unlock the Power of AI with This 5-Step Guide to Automating Data Entry Using ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-docuai-master-how-abbyy-reigned-as-the-2021-pioneer-in-smart-document-solutions-insights-from-isg/"><u>Top DocuAI Master: How ABBYY Reigned as the 2021 Pioneer in Smart Document Solutions - Insights From ISG</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/uk-labor-seeks-robot-assistance-for-overworked-job-responsibilities-reports-by-abbyy/"><u>UK Labor Seeks Robot Assistance for Overworked Job Responsibilities: Reports by ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/viacheslav-prodan-expertise-in-directing-systemic-operations-and-streamlined-automation/"><u>Viacheslav Prodan: Expertise in Directing Systemic Operations & Streamlined Automation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wie-abbyy-und-fraunhofer-die-digitalisierung-im-geschaftsumfeld-erforschen-einblicke-in-prozessinnovationen/"><u>Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
+</ul></div>
