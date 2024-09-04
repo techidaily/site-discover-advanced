@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy
-date: 2024-08-25T23:21:18.385Z
-updated: 2024-08-26T23:21:18.385Z
+date: 2024-09-03T22:50:23.896Z
+updated: 2024-09-04T22:50:23.896Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5599db5b0351dfe7fe4d3ef01a51b823176684e86c63c43fb2d60eaab80af0aa.jpg
@@ -59,9 +59,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-animating-elegance-self-designed-tricks-and-effects/"><u>[New] 2024 Approved  Animating Elegance  Self-Designed Tricks & Effects</u></a></li>
@@ -129,3 +126,10 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/wie-abbyy-und-fraunhofer-die-digitalisierung-im-geschaftsumfeld-erforschen-einblicke-in-prozessinnovationen/"><u>Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

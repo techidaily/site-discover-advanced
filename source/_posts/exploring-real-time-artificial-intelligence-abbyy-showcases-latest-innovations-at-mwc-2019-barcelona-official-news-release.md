@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-08-25T23:18:27.837Z
-updated: 2024-08-26T23:18:27.837Z
+date: 2024-09-03T22:50:20.887Z
+updated: 2024-09-04T22:50:20.887Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -66,10 +66,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://extra-lessons.techidaily.com/new-boosting-engagement-adjusting-speed-of-instagram-stories/"><u>[New] Boosting Engagement  Adjusting Speed of Instagram Stories</u></a></li>
@@ -109,3 +105,10 @@ Connect with us
 <li><a href="https://ai-vdieo-software.techidaily.com/unleash-pro-level-video-editing-on-windows-8-and-beyond/"><u>Unleash Pro-Level Video Editing on Windows 8 and Beyond</u></a></li>
 <li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-ultimate-guide-to-installing-kinemaster-on-a-mac/"><u>Updated 2024 Approved The Ultimate Guide to Installing KineMaster on a Mac</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

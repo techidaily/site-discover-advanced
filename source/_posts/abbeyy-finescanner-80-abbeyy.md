@@ -1,7 +1,7 @@
 ---
 title: "ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ"
-date: 2024-08-25T23:19:51.004Z
-updated: 2024-08-26T23:19:51.004Z
+date: 2024-09-03T22:50:22.405Z
+updated: 2024-09-04T22:50:22.405Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92aed76fb6bf5194cca7db102.jpg
@@ -46,8 +46,16 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 我々のテスト結果によると、分類の精度は約90〜95％です。 しかし、それはギャラリーの写真品質に大きく依存します。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<span id="1982596">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## テキスト検索を使って写真を見つける
 
@@ -55,6 +63,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
 
 ## 新しいスマートギャラリーと検索機能の活用
@@ -78,7 +92,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 デバイスプラットフォームに関係なく、iOSでもAndroidでも、使用可能です。
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## iOSデバイスでAR（拡張現実）を使用してドキュメントサイズを測定する
 
@@ -158,13 +175,13 @@ Connect with us
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 今回は、ABBYY Mobileの中から最新世代のモバイルスキャナーであるFineScannerAI 8をご紹介します。FineScannerはドキュメントをスキャンして保存するだけでなく、個人のスマートフォンアーキビスト（記録、公文書保管人）にもなります。 また、今Updateより、FineScannerは、すべての写真を7つの異なるドキュメントタイプに自動的に並べ替え、検索機能を使用して特定の写真を検索し、AR（拡張現実）を使用してドキュメントのサイズを正確に測定できるようになりました。
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 新世代のスマートギャラリー
 
 [第一世代のAI](https://tools.techidaily.com/abbyy/products/)ギャラリーはスマートフォンの写真アーカイブを自動的にスキャンして、テキスト付きのドキュメントを探すことを可能としました。つまり[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)は、猫や夕焼けの写真を含むイメージの中から、最も重要なドキュメントをすばやく選び出し、気を散らすことなく作業に集中できるようにしました。ただし、これはほんの始まりに過ぎず、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)の最大のアップデートの時期が来ました。
@@ -187,6 +204,12 @@ Connect with us
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ニューラルネットワークの「トレーニング」には、多数のABBYY従業員から提供された何万枚もの写真の調査が含まれていました。 AIは、他の勤勉な学生と同様に、学ぶために豊富な知識を必要とします。 このプロセスの一環として、ABBYYの開発者は、提供された各写真を手作業で細心の注意を払ってマークしました。 これが、AIが本とA4ドキュメント、名刺とIDなどの違いを「教えた」方法でした。[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)にアップロードされた最も人気のあるドキュメントタイプに対して、7つの異なるセクションを実装することにしました。 このデータは、ユーザーが回答したアンケートによって取得されました。
 
 我々のテスト結果によると、分類の精度は約90〜95％です。 しかし、それはギャラリーの写真品質に大きく依存します。
@@ -197,10 +220,6 @@ Connect with us
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
 
 ## 新しいスマートギャラリーと検索機能の活用
@@ -239,7 +258,10 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ドキュメントのサイズが標準サイズの1つ（A4や運転免許証など）に対応している場合、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)では、その特定のサイズのドキュメントとして扱われるようにドキュメントを設定するかどうかの確認が求められます。 非標準サイズのドキュメントの場合、あとで使用するために検出されたサイズを保存することを選択できます。 これを行うためには、検出されたドキュメント測定値をタップし、「リストに保存」を「オン」に切り替えます。 それが完了したら、「Flyer」など、新しいフォーマットの名前を指定します。
 
@@ -252,7 +274,10 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

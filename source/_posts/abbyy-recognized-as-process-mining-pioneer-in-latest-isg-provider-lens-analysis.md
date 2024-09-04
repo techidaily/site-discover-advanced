@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis
-date: 2024-08-25T23:17:12.817Z
-updated: 2024-08-26T23:17:12.817Z
+date: 2024-09-03T22:50:19.654Z
+updated: 2024-09-04T22:50:19.654Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae42c21363a9149298cc2eac3.jpg
@@ -22,40 +22,58 @@ The 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services 
 **ABBYY’s process mining platform, ABBYY Timeline, features advanced task and process mining technology. Using the latest artificial intelligence (AI), it enables businesses to automatically build an interactive digital twin of their processes, analyze them in real time to identify bottlenecks, and predict future outcomes to facilitate decision-making of technology investments.**
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Download it now!
 
 **![Quadrant Knowledge Solutions SPARK Matrix : Process Mining 2021](https://static1.abbyy.com/abbyycommedia/35080/process-discovery-and-mining.png)**
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ISG Provider Lens™ quadrant focuses on providers that offer proprietary software platforms, tools and associated services to help clients automatically discover, monitor and improve real-time processes from event logs and user interactions.
 
 Process mining is the key to proving automation opportunities and benefits. Use of [process mining](https://tools.techidaily.com/abbyy/products/) solutions is not only aimed at eliminating inefficiencies in business operations and paving the way for reduced cost, but also improving workforce productivity and enhancing customer experience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/analystreport-process-mining-isg-provider-lens-en.pdf "Read the report") 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### You migt also be interested in...
 
 [![NelsonHall Process Discovery and Process Mining NEAT Evaluation 2021](https://static1.abbyy.com/abbyycommedia/34916/136-nelsonhall-2021-en-360x232.jpg) NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment See report](https://digital.abbyy.com/hubfs/documents/content/report-process-discovery-and-mining-evaluation-nelsonhall-2021-en.pdf "NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment")[![ABBYY Timeline Process Mining](https://static4.abbyy.com/abbyycommedia/31769/02-timeline-video-2021.jpg) ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform Learn more](https://www.abbyy.com/timeline/ "ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform")[![Data Transformation in Process Mining | ABBYY Blog](https://static3.abbyy.com/abbyycommedia/33166/colleagues-whiteboarding.jpg) The Importance of Data Transformation in Process Mining and Discovery Read article](https://www.abbyy.com/blog/data-transformation-in-process-mining-and-discovery/ "The Importance of Data Transformation in Process Mining and Discovery") 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 

@@ -1,7 +1,7 @@
 ---
 title: Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board
-date: 2024-08-25T23:21:16.191Z
-updated: 2024-08-26T23:21:16.191Z
+date: 2024-09-03T22:50:23.863Z
+updated: 2024-09-04T22:50:23.863Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ca1823a541bb8f1b1b4e3f36dc533291122ea53e71344224f2ca3a62defe8ec.jpg
@@ -40,9 +40,6 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-footage.techidaily.com/new-2017-data-overload-infographics-and-surprising-yt-stats-for-2024/"><u>[New] 2017 Data Overload  Infographics & Surprising YT Stats for 2024</u></a></li>
@@ -90,3 +87,10 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
 <li><a href="https://tech-hub.techidaily.com/unraveling-ai-chat-expertise-gpt-versus-bings-bot/"><u>Unraveling AI Chat Expertise: GPT versus Bing's Bot</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

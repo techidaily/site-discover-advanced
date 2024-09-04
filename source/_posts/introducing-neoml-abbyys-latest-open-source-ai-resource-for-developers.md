@@ -1,7 +1,7 @@
 ---
 title: Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers
-date: 2024-08-25T23:20:25.549Z
-updated: 2024-08-26T23:20:25.549Z
+date: 2024-09-03T22:50:22.949Z
+updated: 2024-09-04T22:50:22.949Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8cca3cd844fe92c1c213c87ec.jpg
@@ -70,9 +70,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://some-techniques.techidaily.com/new-highlighted-best-free-efficient-3d-videos-player-software/"><u>[New] Highlighted  Best Free, Efficient 3D Videos Player Software</u></a></li>
@@ -135,3 +132,16 @@ Vernetzen Sie sich mit uns
 <li><a href="https://ai-driven-video-production.techidaily.com/updated-watch-your-local-videos-on-tv-chromecast-streaming-tutorial-for-windows-mac-android-and-ios-for-2024/"><u>Updated Watch Your Local Videos on TV Chromecast Streaming Tutorial for Windows, Mac, Android, and iOS for 2024</u></a></li>
 <li><a href="https://graphic-issues.techidaily.com/windows-10-display-stabilization-achieved/"><u>Windows 10 Display Stabilization Achieved</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

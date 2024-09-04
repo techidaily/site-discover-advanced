@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Weronika Niemczyk to Lead Human Resources as New C-Level Executive
-date: 2024-08-25T23:19:55.348Z
-updated: 2024-08-26T23:19:55.348Z
+date: 2024-09-03T22:50:22.480Z
+updated: 2024-09-04T22:50:22.480Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/49ffa66d38abced0cb3f87fd6a7f07b59b78823dd67224be4906012f3135d98a.jpg
@@ -59,9 +59,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capturing-life-one-click-at-a-time-the-ultimate-guide-for-documenting-your-sims-journey-in-sims-4/"><u>[New] 2024 Approved  Capturing Life, One Click at a Time  The Ultimate Guide for Documenting Your Sim's Journey in Sims 4</u></a></li>
@@ -108,3 +105,10 @@ Connect with us
 <li><a href="https://digital-screen-recording.techidaily.com/obs-mastered-functioning-camera-now-for-2024/"><u>OBS Mastered  Functioning Camera Now for 2024</u></a></li>
 <li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-samsung-galaxy-a15-4g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Samsung Galaxy A15 4G Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

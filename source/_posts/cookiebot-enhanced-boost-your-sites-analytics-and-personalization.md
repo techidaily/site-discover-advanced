@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-08-25T23:19:09.668Z
-updated: 2024-08-26T23:19:09.668Z
+date: 2024-09-03T22:50:21.598Z
+updated: 2024-09-04T22:50:21.598Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -30,7 +30,10 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. DXの成功はプロセスの真実を理解することから
 
@@ -39,7 +42,10 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 [記事はこちら](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. 業務プロセスとリスク、失敗の理解
 
@@ -47,6 +53,12 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 RPA技術により、従業員は日常的な簡単な繰り返し業務ではなく、収益に直接影響する高価値で創造的な業務に集中することができます。 ただし、大きなメリットがあるにもかかわらず、RPA技術だけでは、自動化の可能性を最大限に引き出すには十分ではありません。 ABBYY CIO（最高イノベーション責任者）のAnthony Macciolaは、このForbesの記事で、コンテンツのコンテキストと意味を理解するために、デジタルインテリジェンスソリューションを使用するよう企業組織にアドバイスしています。
 
 [記事はこちら](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
@@ -68,7 +80,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 [記事はこちら](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. 壊れた業務プロセスを修正することによる利益率の活性化
 
@@ -76,9 +91,6 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 [記事はこちら](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. 強烈な効果をもたらすRPAにタスクマイニングとプロセスマイニングで明確な道筋を
 
 テクノロジージャーナリストのAdrian Bridgwaterは、彼の最新のIDG Connectの記事の中で、デジタルビジネスが機能する方法を最も詳細なレベルで理解し、さまざまなワークフローを定義済みの個別要素に分類できるようにすることをおこなわない限り、人を効果的に管理しつつ、並行して人の代わりに最大限の力を発揮するようRPAボットを配置することはできないと言っています。 この記事には、「エンドツーエンド」で事業を展開している1つの企業としてABBYYが含まれています。
@@ -88,7 +100,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
 
@@ -97,7 +112,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

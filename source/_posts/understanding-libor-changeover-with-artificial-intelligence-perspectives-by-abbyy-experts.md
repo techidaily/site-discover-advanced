@@ -1,7 +1,7 @@
 ---
 title: "Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts"
-date: 2024-08-25T23:21:57.716Z
-updated: 2024-08-26T23:21:57.716Z
+date: 2024-09-03T22:50:24.555Z
+updated: 2024-09-04T22:50:24.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e54865f3f57ec57dc69d69631538169245afb52f02b58f105955b7146a11c16.jpg
@@ -60,7 +60,10 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

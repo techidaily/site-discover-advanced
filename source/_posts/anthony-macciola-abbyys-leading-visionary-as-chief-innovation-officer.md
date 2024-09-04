@@ -1,7 +1,7 @@
 ---
 title: "Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer"
-date: 2024-08-25T23:20:48.145Z
-updated: 2024-08-26T23:20:48.145Z
+date: 2024-09-03T22:50:23.340Z
+updated: 2024-09-04T22:50:23.340Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5599db5b0351dfe7fe4d3ef01a51b823176684e86c63c43fb2d60eaab80af0aa.jpg
@@ -84,9 +84,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-docs.techidaily.com/-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications-for-2024/"><u>[New] A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications for 2024</u></a></li>
@@ -145,3 +142,10 @@ Connect with us
 <li><a href="https://article-knowledge.techidaily.com/winning-the-race-elite-video-apps-for-windows-phones/"><u>Winning the Race  Elite Video Apps for Windows Phones</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

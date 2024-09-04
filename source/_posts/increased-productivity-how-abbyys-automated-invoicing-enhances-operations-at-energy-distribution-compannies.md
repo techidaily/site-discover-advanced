@@ -1,7 +1,7 @@
 ---
 title: "Increased Productivity: How ABBYY's Automated Invoicing Enhances Operations at Energy Distribution Compannies"
-date: 2024-08-25T23:21:13.410Z
-updated: 2024-08-26T23:21:13.410Z
+date: 2024-09-03T22:50:23.833Z
+updated: 2024-09-04T22:50:23.833Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c7637037d5e86d15b1b9eaa1.png
@@ -24,7 +24,10 @@ Oil & Gas | Accounts Payable Automation
 石油関連 | 支払業務自動化 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 

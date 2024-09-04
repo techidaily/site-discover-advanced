@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-08-25T23:20:44.897Z
-updated: 2024-08-26T23:20:44.897Z
+date: 2024-09-03T22:50:23.287Z
+updated: 2024-09-04T22:50:23.287Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -69,9 +69,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-recording.techidaily.com/new-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>[New] 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
@@ -116,3 +113,10 @@ Connect with us
 <li><a href="https://on-screen-recording.techidaily.com/vlc-screencasting-live-feed-webcam-integration/"><u>VLC  Screencasting Live Feed – Webcam Integration</u></a></li>
 <li><a href="https://instagram-videos.techidaily.com/watch-unseen-selective-tools-for-insta-enthusiasts-for-2024/"><u>Watch Unseen  Selective Tools for Insta Enthusiasts for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

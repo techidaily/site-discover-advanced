@@ -1,7 +1,7 @@
 ---
 title: ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO
-date: 2024-08-25T23:19:53.216Z
-updated: 2024-08-26T23:19:53.216Z
+date: 2024-09-03T22:50:22.435Z
+updated: 2024-09-04T22:50:22.435Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -49,9 +49,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-content.techidaily.com/new-bridging-social-media-posting-tweets-on-fb-for-2024/"><u>[New] Bridging Social Media  Posting Tweets on FB for 2024</u></a></li>
@@ -115,3 +112,16 @@ Vernetzen Sie sich mit uns
 <li><a href="https://mondly-stories.techidaily.com/unlock-communication-skills-with-these-10-essential-and-versatile-spanish-salutations/"><u>Unlock Communication Skills With These 10 Essential & Versatile Spanish Salutations</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-get-the-best-view-16-free-avi-video-rotators-for-perfect-orientation-on-any-device-for-2024/"><u>Updated Get the Best View 16 Free AVI Video Rotators for Perfect Orientation on Any Device for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="540" height="960" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

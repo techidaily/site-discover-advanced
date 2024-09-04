@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-08-25T23:18:36.388Z
-updated: 2024-08-26T23:18:36.388Z
+date: 2024-09-03T22:50:21.031Z
+updated: 2024-09-04T22:50:21.031Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -61,9 +61,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://extra-hints.techidaily.com/new-audio-alchemy-fusing-music-and-visuals-on-instagram/"><u>[New] Audio Alchemy  Fusing Music and Visuals on Instagram</u></a></li>
@@ -101,3 +98,16 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/wie-abbyy-und-fraunhofer-die-digitalisierung-im-geschaftsumfeld-erforschen-einblicke-in-prozessinnovationen/"><u>Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

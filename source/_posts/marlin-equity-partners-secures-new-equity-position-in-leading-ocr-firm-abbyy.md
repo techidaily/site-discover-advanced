@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY
-date: 2024-08-25T23:21:49.118Z
-updated: 2024-08-26T23:21:49.118Z
+date: 2024-09-03T22:50:24.407Z
+updated: 2024-09-04T22:50:24.407Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
@@ -110,9 +110,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-info.techidaily.com/new-master-the-art-of-tokenization-with-these-7-nft-creation-apps/"><u>[New] Master the Art of Tokenization with These 7 NFT Creation Apps</u></a></li>
@@ -150,3 +147,10 @@ Connect with us
 <li><a href="https://instagram-clips.techidaily.com/techniques-to-enhance-your-slow-motion-photos-for-instagram-audiences-for-2024/"><u>Techniques to Enhance Your Slow Motion Photos for Instagram Audiences for 2024</u></a></li>
 <li><a href="https://youtube-tips.techidaily.com/-vs-youtube-differences-between-vimeo-and-youtube-for-2024/"><u>Vimeo vs YouTube  Differences Between Vimeo and YouTube for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

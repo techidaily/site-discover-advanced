@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-08-25T23:17:50.175Z
-updated: 2024-08-26T23:17:50.175Z
+date: 2024-09-03T22:50:20.270Z
+updated: 2024-09-04T22:50:20.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -42,9 +42,6 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-share.techidaily.com/new-easily-erase-identity-blurring-techniques-in-videos-for-2024/"><u>[New] Easily Erase Identity  Blurring Techniques in Videos for 2024</u></a></li>
@@ -109,3 +106,10 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
 <li><a href="https://discover-advanced.techidaily.com/unleash-potential-with-advanced-analytics-experience-custom-built-solutions-from-cookiebot-innovations/"><u>Unleash Potential with Advanced Analytics - Experience Custom-Built Solutions From Cookiebot Innovations</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-10-powerful-video-editing-software-alternatives-to-final-cut-pro-x/"><u>Updated In 2024, 10 Powerful Video Editing Software Alternatives to Final Cut Pro X</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

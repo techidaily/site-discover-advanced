@@ -1,7 +1,7 @@
 ---
 title: Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status
-date: 2024-08-25T23:18:28.887Z
-updated: 2024-08-26T23:18:28.887Z
+date: 2024-09-03T22:50:20.900Z
+updated: 2024-09-04T22:50:20.900Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ff66889aaf2236739a2923efe4cfc57f9cd9ea7ad49a91b99fcb2a46f695a7e.jpg
@@ -62,9 +62,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://twitter-clips.techidaily.com/new-2024-approved-perfecting-high-resolution-views-on-tweet-vids/"><u>[New] 2024 Approved  Perfecting High-Resolution Views on Tweet Vids</u></a></li>
@@ -103,3 +100,10 @@ Connect with us
 <li><a href="https://extra-information.techidaily.com/unlock-chromes-full-potential-with-pip-across-devices/"><u>Unlock Chrome's Full Potential with PIP Across Devices</u></a></li>
 <li><a href="https://ai-vdieo-software.techidaily.com/updated-5-best-online-video-trailer-makers/"><u>Updated 5 Best Online Video Trailer Makers</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
