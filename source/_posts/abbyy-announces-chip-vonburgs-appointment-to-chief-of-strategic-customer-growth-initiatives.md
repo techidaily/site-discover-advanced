@@ -1,22 +1,40 @@
 ---
 title: ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives
-date: 2024-09-03T22:50:22.420Z
-updated: 2024-09-04T22:50:22.420Z
+date: 2024-09-08T23:43:59.949Z
+updated: 2024-09-09T23:43:59.949Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8902585d66f327811523945d1407154d052552e159a549922c8c259267eab9e9.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Promotes Chip VonBurg to Head of Strategic Customer Success
 
 September 26, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 To ensure enterprise customers gain the full benefits of ABBYY Digital IQ technologies and solutions, the company has promoted Chip VonBurg as Head of Strategic Customer Success. In his new role, VonBurg will lead a global team that supports customer relationships by coordinating onboarding processes, assessing customer feedback and engagement data, reporting on customer satisfaction, and promoting enrichment opportunities within existing key strategic customers.
 
@@ -110,10 +128,3 @@ Connect with us
 <li><a href="https://youtube-sure.techidaily.com/k-your-online-potential-with-these-top-tips-on-free-youtube-transcripts/"><u>Unlock Your Online Potential with These Top Tips on FREE YouTube Transcripts</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-x50iplus-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Honor X50i+ Users</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

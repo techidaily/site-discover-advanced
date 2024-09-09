@@ -1,12 +1,18 @@
 ---
 title: Unveiling the Latest Innovations at Apple's WWDC 2021 Conference
-date: 2024-09-03T22:50:23.164Z
-updated: 2024-09-04T22:50:23.164Z
+date: 2024-09-08T23:44:00.671Z
+updated: 2024-09-09T23:44:00.671Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9083264d1e9ed82c0a8d3858961cbcacf8dd6e0e896428761bc70aaa3b066e45.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unveiling the Latest Innovations at Apple's WWDC 2021 Conference
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,6 +23,12 @@ July 12, 2021
 
 ![](https://static5.abbyy.com/abbyycommedia/33542/woman-in-city-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This summer, Apple’s annual Worldwide Developers Conference was held entirely online for the second year running. Apple, however, has been able to make full use of the advantages offered by this format and treated its fans to a truly immersive experience. In this blog we’re mostly interested in mobile tech, so here’s a brief overview of the latest goodies from Apple.
 
 #### iOS 15
@@ -29,12 +41,24 @@ Naturally, video calls are as much about picture as they are about sound, and Ap
 
 ![wwdc](https://static1.abbyy.com/abbyycommedia/33556/wwdc-phone-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There’s also a new Grid view, which allows you so see all the participants at once, while new microphone algorithms will minimize background noise and spotlight your voice.
 
 Another big feature is SharePlay, which can be used to watch videos and listen to music together with friends during FaceTime conversation. We’re not quite sure if people will spend hours on FaceTime watching a long movie or listening to a music album together, but the very ability to share your screen with others is definitely a welcome new feature with lots of possible uses. 
 
 ![wwdc](https://static1.abbyy.com/abbyycommedia/33557/wwdc-phone-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The browser version of FaceTime will work across different platforms, so that users will be able to make calls between iOS, Android, and Windows devices.
 
 **Focus on what is really important**
@@ -65,6 +89,12 @@ Mail has also received a number of privacy protections. Senders won’t be able 
 
 ![wwdc](https://static1.abbyy.com/abbyycommedia/33561/wwdc-phone-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Vivid Memories**
 
 Memories has been given a new look and a number of new interactive features, including the ability to add music from the Apple Music library. Song suggestions are based on your preferences and what’s in your photos. If you have never used Memories, you definitely want to give it a try, even before the new iOS becomes publicly available. Memory mixes can be quite comforting at times, particularly those with pets or snapshots from past travels.
@@ -91,12 +121,30 @@ The standard Notes app now allows you to use an @ sign to mention people directl
 
 ![wwdc](https://static1.abbyy.com/abbyycommedia/33563/wwdc-phone-8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Beautiful search results in Spotlight**
 
 Spotlight now allows you to search across multiple content sources, such as Apple Music, Apple TV+, and others. When you type a query, a visually stunning results page will be displayed, with detailed information about the actor, performer, or movie you searched for. It looks very likely that many streaming services will add support for Spotlight searches as the feature is really very handy and attractive.
 
 ![wwdc](https://static1.abbyy.com/abbyycommedia/33564/wwdc-phone-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY’s mobile apps also support Spotlight searches. For example, you can use Spotlight to find contacts in [Business Card Reader](https://go.onelink.me/LuYz/ca107d7), to search for documents in [FineReader PDF](https://go.onelink.me/0oMB/2b084a0a) by their names or tags, or to carry out full text searches in your [TextGrabber](https://go.onelink.me/uny1/c9b5ef5c) notes.
 
 **Tighter integration with AirPods**
@@ -269,10 +317,3 @@ Connect with us
 <li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-meizu-21-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Meizu 21? | Dr.fone</u></a></li>
 <li><a href="https://youtube-tips.techidaily.com/-your-potential-income-from-youtube-sponsored-videos/"><u>What's Your Potential Income From YouTube Sponsored Videos?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

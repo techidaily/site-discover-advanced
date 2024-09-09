@@ -1,22 +1,40 @@
 ---
 title: ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine
-date: 2024-09-03T22:50:23.239Z
-updated: 2024-09-04T22:50:23.239Z
+date: 2024-09-08T23:44:00.746Z
+updated: 2024-09-09T23:44:00.746Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f047e2d65acdb07711442e0f2bbaf634be9eacb93e4be86849bf37896b7a66cb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Compreno Named ‘Trend-Setting Product of 2016’ by KMWorld Magazine
 
 September 08, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **ABBYY Compreno Surpasses Traditional Data Capture and Text Analytics by Understanding Contextual Meaning, Facts and Story Lines in Business Documents**
 
 ABBYY®, a leading provider of technologies and solutions to action information, is excited to announce that ABBYY Compreno has been named one of [KMWorld Magazine’s Trend-Setting Products of 2016](http://www.kmworld.com/Articles/Editorial/Features/KMWorld-Trend-Setting-Products-of-2016-113140.aspx).
@@ -106,10 +124,3 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/unleash-potential-with-advanced-analytics-experience-custom-built-solutions-from-cookiebot-innovations/"><u>Unleash Potential with Advanced Analytics - Experience Custom-Built Solutions From Cookiebot Innovations</u></a></li>
 <li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-streamline-your-music-library-with-these-top-5-internet-mp3-editors/"><u>Updated In 2024, Streamline Your Music Library with These Top 5 Internet MP3 Editors</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

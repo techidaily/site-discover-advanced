@@ -1,22 +1,40 @@
 ---
 title: ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis
-date: 2024-09-03T22:50:23.274Z
-updated: 2024-09-04T22:50:23.274Z
+date: 2024-09-08T23:44:00.783Z
+updated: 2024-09-09T23:44:00.783Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/13e7f7e7be76604c5dab6c596dcfa1c029fcc151622c342e3e61d624bd5a3ac1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Studie: Schlechte Geschäftsprozesse während der Corona-Krise lassen Mitarbeiter mit Kündigungsgedanken spielen
 
 2\. Dezember 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Trotz der Einführung neuer Technologien in 2/3 deutscher Unternehmen während der Pandemie, verschwenden Angestellte immer noch 30 Arbeitstage pro Jahr mit Routineaufgaben, die von Robotern übernommen werden könnten_
 
 ABBYY, ein Unternehmen für Digital Intelligence, hat in seiner kürzlich in Auftrag gegebenen Studie das Thema untersucht, wie sich die Corona-Pandemie auf Geschäftsprozesse und den Arbeitsalltag ausgewirkt hat. 43% der befragten deutschen Angestellten gaben an, dass mangelhafte Prozesse das tägliche Arbeitsleben verkompliziert haben – zu dem Punkt, dass sogar einer von fünf Mitarbeitern deshalb versucht war, den Job zu wechseln – auf globaler Ebene sogar jeder vierte. Ein enttäuschendes Ergebnis vor dem Hintergrund, dass zwei Drittel der Büroangestellten überzeugt davon sind, dass Geschäftsprozesse in ihrem Unternehmen eigentlich leicht vereinfacht werden könnten.
@@ -39,6 +57,18 @@ Auch stehen 76% der Mitarbeiter aufgrund der aktuellen Situation vor neuen Herau
 
 [![](https://static1.abbyy.com/abbyycommedia/30409/12431_infographics_abbyy-global-covid-technology-survey_de_1200x628_2.jpg)](https://www.abbyy.com/media/30409/12431%5Finfographics%5Fabbyy-global-covid-technology-survey%5Fde%5F1200x628%5F2.jpg "Zum Bild in Vollgröße")
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Methodik**
 
 Diese Untersuchung wurde von Opinium Research im November 2020 durchgeführt und von ABBYY in Auftrag gegeben. Die Befragung wurde unter 4000 Büroangestellten mit je 1000 Teilnehmern in Großbritannien, den USA, Frankreich und Deutschland durchgeführt. Die Fragen umfassten Auswirkungen der COVID-19-Pandemie auf Arbeitspraktiken, die Herausforderungen, denen sich Mitarbeiter stellen mussten und die Rolle von intelligenten Technologien bei der täglichen Arbeit.
@@ -132,10 +162,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

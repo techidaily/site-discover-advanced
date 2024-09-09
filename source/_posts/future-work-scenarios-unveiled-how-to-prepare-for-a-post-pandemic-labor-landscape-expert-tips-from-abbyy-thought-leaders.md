@@ -1,7 +1,7 @@
 ---
 title: "Future Work Scenarios Unveiled: How to Prepare for a Post-Pandemic Labor Landscape - Expert Tips From ABBYY Thought Leaders"
-date: 2024-09-03T22:50:21.927Z
-updated: 2024-09-04T22:50:21.927Z
+date: 2024-09-08T23:43:59.498Z
+updated: 2024-09-09T23:43:59.498Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8f5029c9276b28fff4f6f7be.jpg
@@ -11,16 +11,46 @@ thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10 Must-Read Future of Work Stories from 2020 to Help Envision the Post-Pandemic Workforce
 
 February 17, 2021
 
 ![](https://static4.abbyy.com/abbyycommedia/33496/futue-of-work-stories.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 What will work look like when the pandemic is over? It’s a question we’ve all been asking since the beginning of 2020\. We’ve seen some jobs lost and many others created, but almost all of them will change. Artificial intelligence, software robots, and automation have played a large role in this shift as businesses around the world have started to prioritize digital transformation initiatives. While no one can accurately predict what will happen after the pandemic, we know there will continue to be a disruptive period of workplace changes due to the acceleration of new technologies and trends.
 
 Here are 10 of our favorite future of work stories from 2020 that can help you and your team prepare for an uncertain future with greater Digital Intelligence, bringing us closer to an answer of what the future of work will be like.
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Are Business Analysts Ready for the New Digital Era?
 
 As we entered the fourth industrial revolution, where humans work side-by-side with machines, there was a huge influx of digital workers. In Innotech Today, we discussed how business users must attain new digital skills to effectively supervise these workers, driven by the rise of robotic process automation (RPA) software robots and the two ways to prepare our workforce for the new digital era: advocacy and access.
@@ -28,16 +58,10 @@ As we entered the fourth industrial revolution, where humans work side-by-side w
 [Read the article.](https://innotechtoday.com/are-business-analysts-ready-for-the-new-digital-era/)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Onboarding Your Digital Workforce
 
@@ -45,6 +69,12 @@ With the explosion of RPA last year, many companies still saw many RPA projects 
 
 [Read the article.](https://chiefexecutive.net/onboarding-your-digital-workforce/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Coronavirus Pandemic Reveals the Need for a Broader Digital Front Door
 
 Last year, we saw that healthcare facilities and providers around the country experienced COVID-19 differently and continue to. The crisis has led many healthcare leaders to evaluate how they can decrease the need for physical services while maintaining the quality of care and providing individualized services. On HIT Consultant, we discussed the new front door of the healthcare system and how a digital strategy is no longer a nice-to-have.
@@ -53,18 +83,6 @@ Last year, we saw that healthcare facilities and providers around the country ex
 
 ![ABBYY Timeline dashboard for hospitals](https://static1.abbyy.com/abbyycommedia/31822/timeline-screenshot-healthcare.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_ABBYY Timeline is a cloud-based platform that delivers continual operational insight to healthcare providers. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 ### 4\. AI and Automation Enabling Remote Working During the COVID-19 Crisis
@@ -73,18 +91,6 @@ Enterprise Talk interviewed Ivan Yamschikov, AI Evangelist at ABBYY, about the l
 
 [Read the article.](https://enterprisetalk.com/interview/ai-and-automation-enabling-remote-working-during-the-covid-19-crisis/)
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Will COVID-19 Change Opinions About Automation Adoption?
 
 On ITProToday, we talked about how, as the COVID-19 pandemic continues, there has been some evidence that automation adoption to keep businesses operating in unusual times will have to happen in bursts. The coronavirus pandemic has created business circumstances that require creative solutions, and some of those solutions have come via automation – showing that the solutions needed to continue business right now are speeding up digital transitions in a variety of fields.
@@ -92,10 +98,10 @@ On ITProToday, we talked about how, as the COVID-19 pandemic continues, there ha
 [Read the article.](https://www.itprotoday.com/artificial-intelligence/will-covid-19-change-opinions-about-automation-adoption)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. Knowing WFH Preferences Key to Employee Recruitment and Retention
 
@@ -105,24 +111,12 @@ When organizations listen to and understand their workforce’s preferences abou
 
 [Read the article.](https://readwrite.com/2020/08/25/knowing-wfh-preferences-key-to-employee-recruitment-and-retention/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. Want to be a Leader in the Digital-First Era? Upskill Your Workforce
 
 The pandemic has led to a new global remote workforce, pushing companies to find innovative ways to increase operational efficiencies and streamline workflows. Social distancing has prompted many organizations to explore new digital channels, innovate service delivery models, and entirely reimagine the way in which they serve their customers. In doing so, it set a new standard for the skills their workforce required. However, these skill sets are in short supply. The world of work as we know it will never be the same. But are employees ready for the future of work?
 
 [Read the article.](https://www.cmswire.com/learning-development/want-to-be-a-leader-in-the-digital-first-era-upskill-your-workforce/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. It’s Time to Upskill Your Digital Workforce
 
 How smart is your digital workforce? Many organizations are now deploying digital workers, or software-based labor that emulates human job roles by performing end-to-end activities using AI-based skills. But leaders are quickly finding out that these software robots cannot automate more complex tasks involving unstructured documents.
@@ -133,6 +127,12 @@ How smart is your digital workforce? Many organizations are now deploying digita
 
 **ABBYY Vantage provides new skills for the [digital worker](https://tools.techidaily.com/abbyy/products/) that deliver intelligence and business value. Learn more [here](https://tools.techidaily.com/abbyy/products/).**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 9\. How Task Mining Can Turbocharge Your Productivity
 
 With a rush to reset priorities, rethink the way our customers wish to engage, and acknowledge hybrid working with many staff likely to never return to traditional office settings, executive teams face a problem. Our Analytics Insight thought leadership piece shares how [task mining](https://tools.techidaily.com/abbyy/products/) offers considerable advantages for all modern organizations.
@@ -143,6 +143,12 @@ With a rush to reset priorities, rethink the way our customers wish to engage, a
 
 [Read the article.](https://www.analyticsinsight.net/how-task-mining-can-turbocharge-your-productivity/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. Six Professions That Should Get Their Own Robot in 2021
 
 ![team meeting via video call](https://static1.abbyy.com/abbyycommedia/31776/8_gettyimages-1248192282.jpg)
@@ -154,10 +160,16 @@ According to recent statistics, the pandemic has resulted in 41 percent of compa
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

@@ -1,22 +1,40 @@
 ---
 title: Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade
-date: 2024-09-03T22:50:22.678Z
-updated: 2024-09-04T22:50:22.678Z
+date: 2024-09-08T23:44:00.192Z
+updated: 2024-09-09T23:44:00.192Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0507e17ed881794538b9389fa94e191219e441e589bdee2dcef8997d622851b.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture Plattform: Schneller, leistungsfähiger und als Cloud-Lösung verfügbar
 
 27\. September 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Neue Version der KI-basierten Datenerfassungsplattform gibt es jetzt auch als natives Cloud-Angebot_
 
 ABBYY®, ein globaler Anbieter von Lösungen und Services für Content Intelligence, stellt heute ABBYY FlexiCapture 12 Release 2 vor. Die aktualisierte Enterprise-Capture-Plattform bietet viele Neuerungen: Angefangen bei der stark verbesserten Leistung über höhere Verarbeitungsgeschwindigkeiten bis hin zu kontinuierlichen Verbesserungen durch tief integriertes maschinelles Lernen und einen brandneuen Cloud-Delivery-Kanal. Dies ermöglicht es jedem Unternehmen, das eine digitale Transformationsstrategie verfolgt, die Prozesskosten um das Zwei- bis Dreifache zu senken. Gleichzeitig lässt sich die Genauigkeit auf bis zu 100 Prozent verbessern und die Time-to-Revenue beschleunigen.
@@ -129,10 +147,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://visual-screen-recording.techidaily.com/unlocking-the-secrets-to-flawless-ppt-video-production/"><u>Unlocking the Secrets to Flawless PPT Video Production</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

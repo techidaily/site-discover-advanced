@@ -1,22 +1,40 @@
 ---
 title: Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT
-date: 2024-09-03T22:50:19.757Z
-updated: 2024-09-04T22:50:19.757Z
+date: 2024-09-08T23:43:57.431Z
+updated: 2024-09-09T23:43:57.431Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ca38034074275621f4e2db5f63e60466f24745c2303d23667377ba30f3317569.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad
 
 10\. Oktober 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad_
 
 ABBYY, ein führender globaler Anbieter von Lösungen für die Informationsverarbeitung, liefert Beck IT, einem führenden Anbieter von Workflow-Lösungen und Standard-Add-Ons im SAP-Umfeld und zertifizierten ABBYY Partner, eine leistungsstarke, betriebsbereite Lösungskomponente für die Rechnungserfassung. Diese setzt Beck IT in der neuen End-to-End-Lösung für die automatisierte Rechnungsverarbeitung in SAP bei der MDG Medien Dienstleistungsgesellschaft, dem Shared Services Center der MADSACK Mediengruppe, bereits erfolgreich ein. Mit der neuen Lösung konnte die MDG den Automatisierungsgrad in ihrer Kreditorenbuchhaltung weiter erhöhen – bis hin zur Dunkelverarbeitung. So kann sie dem stetig wachsenden Belegaufkommen bei gleichbleibender Personalstärke zur Verarbeitung begegnen und ihren Kunden einen herausragenden, schnellen und kosteneffizienten Service anbieten.
@@ -159,16 +177,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,46 @@
 ---
 title: "Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt"
-date: 2024-09-03T22:50:21.045Z
-updated: 2024-09-04T22:50:21.045Z
+date: 2024-09-08T23:43:58.699Z
+updated: 2024-09-09T23:43:58.699Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751591496c468d996da741d28a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY unterstützt Rezeptprüfstelle Duderstadt bei der Verarbeitung von Formularen für Krankenkassen
 
 13\. Januar 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, unterstützt jetzt die Rezeptprüfstelle Duderstadt GmbH (RPD) bei der Verarbeitung von Formularen für die Abrechnung von medizinischen Sachleistungen. Mithilfe der ABBYY Lösung digitalisiert der [Business Process Outsourcer (BPO)](https://www.abbyy.com/de/company/news/abbyy-unterstuetzt-rezeptpruefstelle-duderstadt-bei-der-verarbeitung-von-formularen-fuer-krankenkassen/# "BPOs und Outsourcing Dienstleister") die Papier-Formulare, extrahiert die Daten und wertet sie nach den Anforderungen seines Auftraggebers aus. Dank ABBYY konnte der Prozess weiter automatisiert und deutlich effizienter gestaltet werden.
 
 Die RPD bietet Krankenkassen und deren Verbänden im Rahmen ihres Auftrags Outsourcing-Dienstleistungen in den Bereichen Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten mit Datenaufbereitung sowie IT-Beratung an. Der BPO übernimmt dabei die Digitalisierung und Datenaufbereitung für verschiedene Krankenkassen. Zur optimierten Erfassung von Formularen nutzt die RPD jetzt ABBYY FlexiCapture. Um eine effiziente und transparente Verarbeitung zu ermöglichen, werden die Daten aus den Formularen mithilfe von ABBYYs Erfassungslösung automatisch extrahiert und direkt an die eigene Spezialsoftware der RPD übergeben. Dadurch können die Informationen schneller geprüft und aufbereitet werden. Dank der leistungsstarken ABBYY Funktionalitäten, unter anderem zur Sprachenerkennung, konnte die Lösung während der Testphase exakt für die verschiedenen Formular-Sprachen und Layouts trainiert werden. Die Erfassungslösung ersetzt hierbei die aufwendige manuelle Dateneingabe. Die RPD profitiert mit dem Einsatz von ABBYY nun von modernisierten und rationalisierten Prozessen.
@@ -32,6 +56,12 @@ ABBYY Europe ist ein Mitglied der ABBYY Gruppe und verantwortet Vertrieb und Mar
 
 _ABBYY, das ABBYY Logo, ADRT, FineReader, FlexiCapture und FlexiLayout sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über die Rezeptprüfstelle Duderstadt GmbH
 
 Die Rezeptprüfstelle Duderstadt GmbH wurde 1948 als Familienunternehmen gegründet und ist ein moderner Dienstleister für Krankenkassen und deren Verbände. Im Rahmen des zulässigen Outsourcings übernimmt die RPD verschiedenste Aufgabenbereiche, um die Krankenkassen bei der Durchführung ihrer Aufgaben zu unterstützen, darunter die Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten einschließlich Datenaufbereitung sowie IT-Beratung. Für effiziente, transparente und rechtskonforme Abläufe in den Abrechnungs- und Prüfsystemen setzt die RPD eigene Softwarelösungen ein.
@@ -116,10 +146,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://blue-screen-error.techidaily.com/overcoming-driver-verifier-errors-bsod-fixes-for-windows-10-users-complete-guide/"><u>Overcoming Driver Verifier Errors: BSOD Fixes for Windows 10 Users [COMPLETE GUIDE]</u></a></li>
 <li><a href="https://buynow-help.techidaily.com/prime-day-exclusive-deals-save-big-on-high-quality-benq-monitors-and-projectors/"><u>Prime Day Exclusive Deals: Save Big on High-Quality BenQ Monitors & Projectors</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

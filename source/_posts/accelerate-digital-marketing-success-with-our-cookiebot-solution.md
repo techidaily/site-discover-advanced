@@ -1,16 +1,34 @@
 ---
 title: Accelerate Digital Marketing Success with Our Cookiebot Solution!
-date: 2024-09-03T22:50:22.500Z
-updated: 2024-09-04T22:50:22.500Z
+date: 2024-09-08T23:44:00.015Z
+updated: 2024-09-09T23:44:00.015Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4eff5c9989165ba5b957b7575.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accelerate Digital Marketing Success with Our Cookiebot Solution!
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2020年Digital Intelligenceに関連する６つのお気に入りストーリー
 
 2月17日, 2021
@@ -33,10 +51,16 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 [記事はこちら](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience  
 (ソーシャルディスタンスを取ることによるデジタル体験水準の向上、英語記事)
@@ -56,32 +80,44 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 
 [記事はこちら](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing  
 (ソーシャルディスタンス時代におけるDigital Intelligenceの必要性)
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 新型コロナウィルスは、2020年の最も大きな出来事であり、それとともに、「ソーシャルディスタンス」が現代のビジネスの語彙に入り、対人関係やビジネスの相互作用を再構築しました。 現在、私たちの社会的意識の一部として、ソーシャルディスタンスは仮想化と技術的に仲介された繋がりを加速させています。 ソーシャルディスタンスの緊急性はすでに私たちがテクノロジーとプロセスの準備できているかをテストしていますが、それは人々、プロセス、そしてコンテンツがこの新常態（ニューノーマル）でどのように相互作用するかについての重要な問題を提起しています。 ソーシャルディスタンスは、人間から人間への相互作用をアプリ定義の相互作用に置き換えることにより、顧客体験を不可欠なものにし、DX（デジタルトランスフォーメーション）を推進しています。
 
 [記事はこちら](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Six Steps to Revive Your Digital Transformation Projects  
 (DXプロジェクトを復活させるための６つのステップ、英語記事)
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 新型コロナウィルス流行により、多くのITリソースがビジネス継続性の取り組みにシフトし、多くの労働者やリーダーは、DXプロジェクトの立ち上げや再開にチャレンジするようになりました。 組織は、エンドツーエンドのDXを拡大することから得られるメリットを利用しようとしましたが、より価値の高いイニシアチブを加速するための適切な戦略に関する方向づけが必要でした。 課題は、ビジネスプロセスの理解に欠けていることと、企業のデータを戦略的なビジネス意思決定を推進する実用的で価値のある情報に変換できないことに起因します。 ABBYYは、DXの実装を支援するための6つの基本的なステップを共有します。
 
 ビジネスプロセスを理解するための ABBYY Timelineの体験版申し込みは[こちら](https://tools.techidaily.com/abbyy/products/)から承っております。
@@ -89,22 +125,16 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 [記事はこちら](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'  
 (コロナ後の「ニューノーマル（新常態）」のための５つの重大な保険に関する質問、英語記事)
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 新型コロナウイルスの大流行からわずか数か月で、この危機状況が、顧客エンゲージメント、ビジネスプロセス、およびテクノロジーのルールを書き換えたことが明らかになりました。 保険会社は、請求プロセス中に顧客体験が重要であることを理解していました。そうでないと、顧客が離れていくリスクがあります。 請求の解決までには多くの要因が関与しますが、顧客体験を向上させる最も重要な推進力の1つは、保険会社の運用プロセスです。 保険会社は、デジタル効率を高める方法、今までとは大きく異なるプロセスを接続することで顧客体験を向上させる方法、重要な顧客データをコア運用プロセスに直接効果的に取り込む方法の３つを評価することが重要です。
 
 保険会社のリーダーが、運用効率、コンプライアンス、および顧客体験に影響を与える方法において、プロセスを強化する機会が組織内にあるかどうかを評価するのに役立つ5つの質問をここに共有します。
@@ -115,12 +145,6 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 
 [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

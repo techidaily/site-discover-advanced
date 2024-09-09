@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization"
-date: 2024-09-03T22:50:20.692Z
-updated: 2024-09-04T22:50:20.692Z
+date: 2024-09-08T23:43:58.343Z
+updated: 2024-09-09T23:43:58.343Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ffcad7f48962d75f242ed7b8339741a057dbb535926e2709bec686a6dd167dd4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Selon ABBYY, moins d’1/3 des entreprises françaises font appel aux « Citizen Developers »
 
 08 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * _98 % des entreprises ont rencontré des freins importants à leurs projets de transformation digitale. 7 décideurs sur 10 désignent comme cause la pandémie et le télétravail._
 * _1 entreprise sur 5 a complètement abandonné son projet de transformation digitale et 1 sur 5 n'a pas utilisé la technologie comme prévu ou a constaté qu'elle ne fonctionnait pas comme attendu._
 * __Les entreprises françaises s'appuient peu sur le « No / Low Code » dont l’adoption pourrait les aider à prospérer._
@@ -50,6 +68,12 @@ _Tableau : « Quelles technologies utilisez-vous dans le cadre de vos projets de
 
 ![Infographie - Étude sur la transformation digitale | ABBYY](https://static1.abbyy.com/abbyycommedia/33196/infographics-outlook-on-digital-transformation-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Méthodologie** 
 
 Cette étude dressant l'état des lieux de la transformation digitale des entreprises a été menée par ABBYY en partenariat avec Sapio Research en avril-mai 2021 auprès de 1 220 décideurs informatiques appartenant à des entreprises de plus de 1 000 employés en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon.
@@ -141,16 +165,3 @@ Connect with us
 <li><a href="https://extra-resources.techidaily.com/vantage-point-critique/"><u>Vantage Point Critique</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

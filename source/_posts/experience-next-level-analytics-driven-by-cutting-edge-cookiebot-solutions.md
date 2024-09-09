@@ -1,22 +1,46 @@
 ---
 title: "Experience Next-Level Analytics: Driven by Cutting-Edge Cookiebot Solutions"
-date: 2024-09-03T22:50:21.875Z
-updated: 2024-09-04T22:50:21.875Z
+date: 2024-09-08T23:43:59.452Z
+updated: 2024-09-09T23:43:59.452Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/77611f2e0e7b4b101c92af3b172df9c62d2c1071591d3411a278cc0334c16e37.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Experience Next-Level Analytics: Driven by Cutting-Edge Cookiebot Solutions
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad
 
 10\. Oktober 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Shared Services Center der MADSACK Mediengruppe erhöht in der Kreditorenbuchhaltung in SAP dank ABBYY und Beck IT den Automatisierungsgrad_
 
 ABBYY, ein führender globaler Anbieter von Lösungen für die Informationsverarbeitung, liefert Beck IT, einem führenden Anbieter von Workflow-Lösungen und Standard-Add-Ons im SAP-Umfeld und zertifizierten ABBYY Partner, eine leistungsstarke, betriebsbereite Lösungskomponente für die Rechnungserfassung. Diese setzt Beck IT in der neuen End-to-End-Lösung für die automatisierte Rechnungsverarbeitung in SAP bei der MDG Medien Dienstleistungsgesellschaft, dem Shared Services Center der MADSACK Mediengruppe, bereits erfolgreich ein. Mit der neuen Lösung konnte die MDG den Automatisierungsgrad in ihrer Kreditorenbuchhaltung weiter erhöhen – bis hin zur Dunkelverarbeitung. So kann sie dem stetig wachsenden Belegaufkommen bei gleichbleibender Personalstärke zur Verarbeitung begegnen und ihren Kunden einen herausragenden, schnellen und kosteneffizienten Service anbieten.
@@ -156,10 +180,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://video-content-creator.techidaily.com/updated-best-video-to-audio-converter-apps-for-iphone-and-android-for-2024/"><u>Updated Best Video to Audio Converter Apps for iPhone and Android for 2024</u></a></li>
 <li><a href="https://win-howtos.techidaily.com/why-your-usb-to-hdmi-link-isnt-working-fixes-and-tips/"><u>Why Your USB to HDMI Link Isn't Working: Fixes & Tips</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

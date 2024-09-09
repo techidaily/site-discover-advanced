@@ -1,22 +1,40 @@
 ---
 title: "Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016"
-date: 2024-09-03T22:50:22.663Z
-updated: 2024-09-04T22:50:22.663Z
+date: 2024-09-08T23:44:00.177Z
+updated: 2024-09-09T23:44:00.177Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ffcad7f48962d75f242ed7b8339741a057dbb535926e2709bec686a6dd167dd4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## StrategieTage Finance 2016 – ABBYY auf dem Spitzentreffen deutscher CFOs
 
 11\. Februar 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, berät Finanzvorstände namhafter Unternehmen vom 17\. – 18\. Februar auf Schloss Bensberg zum Thema [automatische Kreditorenbuchhaltung](https://tools.techidaily.com/abbyy/products/). Auch in diesem Jahr diskutieren deutsche CFOs auf den StrategieTagen Finance wieder die Zukunft von Finanzabteilungen. Neben den Finanzvorständen bekannter Unternehmen wie Nordzucker, ThyssenKrupp oder Universal Music sind auch prominente Gastredner aus der Politik eingeladen - unter anderem Dr. Michel Friedmann und Dr. Gregor Gysi.
 
 „Wir freuen uns darauf, die Automatisierung der Prozesse in und um die Kreditorenbuchhaltung mit führenden Vertretern aus Politik und Wirtschaft zu diskutieren“, sagt Markus Pichler, Director Business Unit Solutions der ABBYY Europe. „Dass sich Lösungen zum Rechnungseingang lohnen, zeigen Projekte wie das [Rechnungseingangsprojekt der Rhenus Assets & Services](https://tools.techidaily.com/abbyy/products/).“ 
@@ -120,10 +138,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

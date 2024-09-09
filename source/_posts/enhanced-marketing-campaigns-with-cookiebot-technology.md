@@ -1,22 +1,40 @@
 ---
 title: Enhanced Marketing Campaigns with Cookiebot Technology
-date: 2024-09-03T22:50:19.921Z
-updated: 2024-09-04T22:50:19.921Z
+date: 2024-09-08T23:43:57.590Z
+updated: 2024-09-09T23:43:57.590Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9827a92b9acfe7ff5ad59fca7934fb301cf15e62dfa6be6fe2bedc9f0e414ea5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Marketing Campaigns with Cookiebot Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY lance le connecteur FlexiCapture pour PFU PaperStream NX Manager en vue de permettre une automatisation pointue
 
 30 septembre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Les scanners Fujitsu sont aptes à se doter des technologies d’ABBYY FlexiCapture pour capturer les données issues de tout type de document en vue de leur automatisation._
 
 [ABBYY,](https://tools.techidaily.com/abbyy/products/) le spécialiste de l’intelligence digitale, annonce le lancement d’un connecteur ABBYY FlexiCapture compatible avec les scanners Fujitsu (via PFU PaperStream NX Manager). Ainsi, les technologies de Content Intelligence d’[ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) permettent l’extraction de données critiques figurant sur des documents non structurés et semi-structurés tels que des factures ou des reçus. Cette initiative permet le développement de l’automatisation des processus centrés sur les documents numérisés en entreprise, et ce, pour optimiser les workloads, prévenir les erreurs humaines et améliorer l'expérience client.
@@ -127,10 +145,3 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-get-your-game-face-on-best-websites-to-download-games/"><u>Updated In 2024, Get Your Game Face On Best Websites to Download Games</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

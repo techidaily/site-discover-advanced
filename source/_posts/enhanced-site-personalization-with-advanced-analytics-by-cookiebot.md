@@ -1,22 +1,40 @@
 ---
 title: Enhanced Site Personalization with Advanced Analytics by Cookiebot
-date: 2024-09-03T22:50:21.821Z
-updated: 2024-09-04T22:50:21.821Z
+date: 2024-09-08T23:43:59.396Z
+updated: 2024-09-09T23:43:59.396Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db974cbfcefb94ba1052fbc76bad2bdba052e08c158b7413567186237d98746f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Site Personalization with Advanced Analytics by Cookiebot
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Packaging OCR in Transport & Logistics with Real-Time Recognition SDK
 
 November 28, 2017
 
 ![](https://static1.abbyy.com/abbyycommedia/25838/8881e_blog-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Like most other industries, transportation and logistics (T&L) is currently facing challenges as individuals and businesses expect to get goods faster, more flexibly, and at low delivery cost. New real-time data capture technologies help meet these challenges by enabling greater efficiency and more collaborative T&L operating models. By making maximum use of Real-Time Recognition (RTR) SDK technologies, T&L companies can speed up and greatly reduce the costs of [processing packages](https://tools.techidaily.com/abbyy/products/), mailed letters, parcel registration, tracking, and delivery. The point-and-capture capability in RTR SDK allows text on packaging to be instantly recognized, captured, and sent directly to backend systems for shipping validation.
 
 ---
@@ -25,6 +43,18 @@ Discover how ABBYY technologies helped solve costly dilemmas for customer's in t
 
 [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -161,16 +191,3 @@ Connect with us
 <li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-5-best-chrome-extensions-you-can-use-to-translate-videos/"><u>Updated In 2024, 5 Best Chrome Extensions You Can Use to Translate Videos</u></a></li>
 <li><a href="https://youtube-clips.techidaily.com/visual-branding-mastery-implementing-watermarks-and-logos-into-video-content/"><u>Visual Branding Mastery  Implementing Watermarks & Logos Into Video Content</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="360" height="640" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

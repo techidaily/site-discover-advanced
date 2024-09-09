@@ -1,22 +1,40 @@
 ---
 title: "1. ABBYY TextGrabber: New Feature - Live OCR for Immediate Text Processing & Task Automation"
-date: 2024-09-03T22:50:20.443Z
-updated: 2024-09-04T22:50:20.443Z
+date: 2024-09-08T23:43:58.105Z
+updated: 2024-09-09T23:43:58.105Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d5597ded286e2b977dc206141e5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1. ABBYY TextGrabber: New Feature - Live OCR for Immediate Text Processing & Task Automation
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY TextGrabber implements Real-Time Recognition to instantly connect text to action
 
 June 22, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _ABBYY®, a leading global provider of technologies and solutions to action information, today announced the release of TextGrabber 6.0 for iOS with Real-Time Recognition capabilities and a completely re-designed interface._
 
 The app lifts text of any color from any background directly on a camera preview screen eliminating the need to take a photo to run the recognition process. The recognition is performed on device, no Internet connection is needed. The technology works with 61 languages, the biggest number on the market in its category. The digitized text instantly becomes actionable: it can be copied, edited, shared, translated into 104 languages or read using VoiceOver. All links, phone numbers, email addresses, street addresses and event details become clickable for the user to easily perform the corresponding task – follow, call, email, find on maps or add to the calendar. As an additional feature, TextGrabber also works as a QR code reader. All the digitized texts and QR codes are saved in the app’s History section, easily accessible for further use.
@@ -127,16 +145,3 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 <li><a href="https://tech-haven.techidaily.com/unveiling-the-power-of-chatgpts-preinstalled-addons-their-purpose-demystified/"><u>Unveiling the Power of ChatGPT's Preinstalled Addons – Their Purpose Demystified</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

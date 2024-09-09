@@ -1,22 +1,40 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-09-03T22:50:23.287Z
-updated: 2024-09-04T22:50:23.287Z
+date: 2024-09-08T23:44:00.797Z
+updated: 2024-09-09T23:44:00.797Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## NelsonHall、ABBYYを「Process Discovery & Mining NEAT Assessment 2020」のリーダーに選出
 
 7月1日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 デジタルインテリジェンス（Digital Intelligence）を推し進める[ABBYY](https://tools.techidaily.com/abbyy/products/)®は、デジタルオペレーションの変革を専門とするグローバルアナリスト企業のNelsonHallに、プロセスディスカバリーとプロセスマイニングのNEATベンダー評価においてリーダーとして認められました。ABBYYは、将来的な顧客の要件を満たすことができる面と、すぐに利益を提供できる能力の面で、15社のベンダー間で比較評価され、トップグループに位置づけられています。
 
 NelsonHall リサーチアナリストで、当該レポートの著者である**Bailey Kong**は、「ABBYY Timelineは、ビジネスユーザーを念頭に置いて明確に設計されたプラットフォームを提供しています。ビジネスユーザーが面倒に感じることなく分析を行えることと、コンテンツとデスクトップテクノロジーを統合するABBYYの技術的投資と組み合わせることで、プロセスのディスカバリーとマイニングソリューションが新たに創出される中で最先端に君臨してます」とコメントしています。
@@ -29,6 +47,18 @@ ABBYYのリーダーとしての位置付けはこのほか、提供する製品
 
 ![](https://static1.abbyy.com/abbyycommedia/28790/pdm-overall-final.png)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYYが提供するDigital Intelligenceソリューション一連の製品について詳しくは、以下のページをご覧ください。 <https://www.abbyy.com/solutions/digital-intelligence> ENG
 
 プロセスディスカバリーとプロセスマイニングの評価レポート、NelsonHall Vendor Evaluation & Assessment Tool（NEAT）について詳しくは、以下のページをご覧ください。 <https://www.abbyy.com/solutions/process-intelligence/neat-evaluation-for-abbyy-process-discovery-and-mining> ENG   
@@ -113,10 +143,3 @@ Connect with us
 <li><a href="https://on-screen-recording.techidaily.com/vlc-screencasting-live-feed-webcam-integration/"><u>VLC  Screencasting Live Feed – Webcam Integration</u></a></li>
 <li><a href="https://instagram-videos.techidaily.com/watch-unseen-selective-tools-for-insta-enthusiasts-for-2024/"><u>Watch Unseen  Selective Tools for Insta Enthusiasts for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

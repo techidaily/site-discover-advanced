@@ -1,22 +1,40 @@
 ---
 title: Augmenting Digital Experience with Cookiebot Technology
-date: 2024-09-03T22:50:21.400Z
-updated: 2024-09-04T22:50:21.400Z
+date: 2024-09-08T23:43:59.016Z
+updated: 2024-09-09T23:43:59.016Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/865ed323eb71130c7276babe580275f4674927ba17ed6f4bfafe6ec23c46bab1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Augmenting Digital Experience with Cookiebot Technology
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY stellt KI-fähige Echtzeit-Lösungen auf dem MWC 2019 vor
 
 12\. Februar 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Reibungsloses Kundenerlebnis mit mobilen Erfassungslösungen von ABBYY_ 
 
 ABBYY®, ein weltweit führender Anbieter von Lösungen und Services für Content IQ, gab heute seine Präsenz auf dem MWC 2019 bekannt. Auf der internationalen Fachmesse für die Mobilfunkindustrie werden Innovationen vorgestellt, welche die Intelligent Connectivity der Zukunft gestalten werden. Die Konferenz findet vom 25\. bis 28\. Februar 2019 in Barcelona, Spanien, statt. ABBYY zeigt am Stand 8.0J25, NEXTech Hall 8.0, wie die mobile Echtzeit-Datenerfassung digitale Transformationsstrategien unterstützt und ein reibungsloses Kundenerlebnis bieten kann. ABBYY-Lösungen werden auch während der „Transformative AI Tour“ vorgestellt, die die KI-Technologien des Unternehmens für digitale Transformation und Roboter-Prozessautomatisierung (RPA) in den Mittelpunkt stellt.
@@ -139,10 +157,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/wie-abbyy-und-fraunhofer-die-digitalisierung-im-geschaftsumfeld-erforschen-einblicke-in-prozessinnovationen/"><u>Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

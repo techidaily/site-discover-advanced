@@ -1,22 +1,40 @@
 ---
 title: Process Intelligence Key to Unlocking 70%% of US Leaders' RPA Implementation Success - Insights From ABBYY
-date: 2024-09-03T22:50:21.187Z
-updated: 2024-09-04T22:50:21.187Z
+date: 2024-09-08T23:43:58.821Z
+updated: 2024-09-09T23:43:58.821Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e9c990e25117479e90a6a7012f47011623d3e85d5155cf7861b563822cc331cb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 70% of US decision makers find process insight essential for RPA success
 
 May 13, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Global survey results released today found that process knowledge is the primary success factor for robotic process automation (RPA) projects, yet only 31% of US organizations are currently using process mining tools to understand their processes. The importance of a process-first approach is growing, according to the State of Process Mining and Robotic Process Automation survey conducted among 400 senior decision makers in the US, UK, France and Germany.
 
 Process mining is becoming a critical component of automation efforts with 42% of US respondents saying they are in early stages or considering adopting process mining platforms, while 31% are already using these tools. Furthermore, 41% believe these solutions would be helpful for understanding how their business processes worked, with organizations also seeing the value of process mining for real-time performance updates (43%) and analyzing behaviors to improve processes (39%).
@@ -112,10 +130,3 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/revamping-business-practices-for-enhanced-profitability-within-the-banking-sector/"><u>Revamping Business Practices for Enhanced Profitability Within the Banking Sector</u></a></li>
 <li><a href="https://tech-revival.techidaily.com/the-upcoming-decade-of-cyber-vigilance-7-predictions/"><u>The Upcoming Decade of Cyber Vigilance: 7 Predictions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

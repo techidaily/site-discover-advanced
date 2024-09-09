@@ -1,22 +1,40 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-09-03T22:50:20.887Z
-updated: 2024-09-04T22:50:20.887Z
+date: 2024-09-08T23:43:58.540Z
+updated: 2024-09-09T23:43:58.540Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to Showcase Real-Time AI-Enabled Solutions at MWC Barcelona 2019
 
 February 06, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Enter the new era of frictionless customer experience with ABBYY’s instant mobile capture at stand 8.0J25, NEXTech Hall 8.0._
 
 ABBYY®, a global leader in content IQ technologies and solutions, today announced it is exhibiting at [MWC Barcelona 2019](https://www.mwcbarcelona.com/ "MWC Barcelona 2019"), the international tradeshow for the mobile industry that will gather innovators and influencers to explore how Intelligent Connectivity will shape the future. The conference will take place in Barcelona, Spain February 25-28, 2019\. At stand 8.0J25, NEXTech Hall 8.0, ABBYY will demonstrate how real-time mobile data capture can support their digital transformation strategy and deliver frictionless customer experience eliminating barriers and boosting engagement. ABBYY solutions will also be showcased during the Transformative AI Topic Tour putting a spotlight on the company’s AI technologies for digital transformation and robotic process automation (RPA).
@@ -105,10 +123,3 @@ Connect with us
 <li><a href="https://ai-vdieo-software.techidaily.com/unleash-pro-level-video-editing-on-windows-8-and-beyond/"><u>Unleash Pro-Level Video Editing on Windows 8 and Beyond</u></a></li>
 <li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-ultimate-guide-to-installing-kinemaster-on-a-mac/"><u>Updated 2024 Approved The Ultimate Guide to Installing KineMaster on a Mac</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

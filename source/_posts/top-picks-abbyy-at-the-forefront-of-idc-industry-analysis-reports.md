@@ -1,14 +1,32 @@
 ---
 title: "Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports"
-date: 2024-09-03T22:50:21.265Z
-updated: 2024-09-04T22:50:21.265Z
+date: 2024-09-08T23:43:58.896Z
+updated: 2024-09-09T23:43:58.896Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5adbaedbc32c515398682e6a33ec3c2c1afff467021d3f18604d423ee17ce346.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY im IDC MarketScape: als führend eingestuft: Worldwide Intelligent Document Processing Software 2023–2024 Vendor Assessment als führend eingestuft 
 
 Nach gründlicher Bewertung der Strategien und Fähigkeiten von ABBYY hat IDC das Unternehmen im IDC MarketScape 2023–2024 für weltweite intelligente Dokumentenverarbeitungssoftware in der Kategorie „Leaders“ positioniert. 
@@ -17,8 +35,26 @@ In diesem ersten Bericht von IDC werden KI-Technologien wie optische Zeichenerke
 
 ![abbyy-leads-in-idc-marketscape](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/abbyy-leads-in-idc-marketscape-pic.png?h=704&w=800)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Das IDC-MarketScape-Analysemodell wurde entwickelt, um einen Überblick über die Wettbewerbsfähigkeit von ICT-Anbietern auf einem bestimmten Markt zu geben. Die Bewertung erfolgt nach einem stringenten Punktesystem, das sowohl qualitative als auch quantitative Kriterien berücksichtigt und in einer grafischen Darstellung der Position jedes Anbieters innerhalb eines bestimmten Marktes resultiert. Die Punktzahl in der Kategorie Capabilities bewertet das Produkt, die Markteinführung und die kurzfristige Geschäftsabwicklung des Anbieters. Die Strategiebewertung misst die Ausrichtung der Anbieterstrategien an den Kundenanforderungen in einem Zeitrahmen von drei bis fünf Jahren. Der Marktanteil der Anbieter wird durch die Größe der Icons dargestellt. 
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY. 
 
 [Bericht lesen](https://global.abbyy.com/hubfs/documents/content/IDC-MarketScape-Worldwide-Intelligent-Document-Processing-Software-2023-2024-Vendor-Assessment.pdf "Read the report") 
@@ -148,10 +184,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://discover-advanced.techidaily.com/unleash-potential-with-advanced-analytics-experience-custom-built-solutions-from-cookiebot-innovations/"><u>Unleash Potential with Advanced Analytics - Experience Custom-Built Solutions From Cookiebot Innovations</u></a></li>
 <li><a href="https://smart-video-creator.techidaily.com/virtualdub-is-it-the-best-video-editor-exploring-top-alternatives-for-2024/"><u>Virtualdub Is It the Best Video Editor? Exploring Top Alternatives for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

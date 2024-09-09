@@ -1,22 +1,46 @@
 ---
 title: "Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics"
-date: 2024-09-03T22:50:23.063Z
-updated: 2024-09-04T22:50:23.063Z
+date: 2024-09-08T23:44:00.569Z
+updated: 2024-09-09T23:44:00.569Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aa8194d30133846c30b69d3fa6b3aa7f371a453476495ae4ef096fc69d325fda.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Reports 2023 Revenue Growth for AI Solutions Plus IDC MarketScape Leadership
 
 February 13, 2024
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### More global enterprises recognize the need for purpose-built AI to harness data and make large language models and generative AI useable for business
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) reported a 60% increase in new annual recurring revenue (ARR) in 2023 for its artificial intelligence (AI) platform for intelligent document processing (IDP), [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/). The high demand was driven by organizations wanting to leverage large language models (LLMs) for business applications, requiring ABBYY’s purpose-built AI to transform their enterprise data to fuel models with relevant information. By refining the scope of AI models to more specific document contexts, ABBYY IDP helps organizations benefit from LLMs without consequences in efficiency or accuracy associated with generative AI. In fact, in just the past year, ABBYY’s IDP portfolio processed 1.45 trillion document pages.
@@ -30,6 +54,12 @@ Ulf Persson, Chief Executive Officer at ABBYY
 
 ![IDC IDP MarketScape 2023-2024](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/idc-idp-marketscape-2023-2024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Furthermore, ABBYY was recognized for its AI solutions by multiple analyst firms and was recently named a Leader in the [IDC MarketScape: Worldwide Intelligent Document Processing (IDP) 2023-2024](https://tools.techidaily.com/abbyy/products/). Commended for its versatility in document contexts, approach to customer success, and industry experience, the inaugural report considered vendors based on a variety of criteria, including functionality, use case diversity, and customer service and satisfaction delivery of their respective solutions. 
 
 ABBYY is known for its expertise in structured and semi-structured document classification and extraction and continues to extend its customer deals further into unstructured document use cases. The company’s broad, multilayered approach to directly supporting customers; its expansive, global ecosystem of partners and solution providers; and its demonstrated document and use case–specific expertise should make it a vendor of consideration for any organization looking to experiment, learn, or expand its use of IDP more broadly.
@@ -44,12 +74,24 @@ Bruce Orcutt, Chief Marketing Officer at ABBYY
 
 ![bruce orcutt ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/bruce-orcutt-rgb.jpg?h=540&w=800)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In addition to Orcutt’s appointment to CMO, ABBYY is ramping up its product innovation and time-to-market with the addition of a new team of seasoned executive engineers including Patrick (PJ) Jean, CTO/CPO, Sanju Nair, VP of Product Operations and Enterprise PMO, Morgan Logue, VP of Engineering, Cloud Platform, and Andy Wahrenberger, VP of Engineering. The executive engineering team will work with ABBYY’s global team of developers and engineers to scale and deliver product advancements to meet growing demand. 
 
 ABBYY’s global presence is further amplified by its growing [partner program](https://tools.techidaily.com/abbyy/products/) which includes strategic alliances with automation platform providers, consultancies, integrated solution vendors (ISVs) and resellers who choose to work with the leading provider of IDP and process mining solutions. Partners such as Blue Prism, PwC, Deloitte, Workato, Mendix, NICE, Novelis and Pipefy have successfully integrated ABBYY AI into their portfolio to deliver impactful and repeatable transformations for their customers globally. 
 
 To learn more about ABBYY intelligent automation solutions, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/). 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We enable more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) and [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -121,10 +163,3 @@ Connect with us
 <li><a href="https://smart-video-creator.techidaily.com/updated-transform-your-photos-with-these-bokeh-effect-apps-for-2024/"><u>Updated Transform Your Photos with These Bokeh Effect Apps for 2024</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

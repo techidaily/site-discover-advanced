@@ -1,16 +1,28 @@
 ---
 title: Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions
-date: 2024-09-03T22:50:22.265Z
-updated: 2024-09-04T22:50:22.265Z
+date: 2024-09-08T23:43:59.804Z
+updated: 2024-09-09T23:43:59.804Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/90e284fb29c37a4c0c2a2e6970ee3fa6b56745fa434982e234c62e6bb83237e0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions
 
 ABBYY FlexiCapture Cloud
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Embed FlexiCapture Capabilities
 
 * [Terms of Service](https://tools.techidaily.com/abbyy/products/)
@@ -28,6 +40,12 @@ ABBYY FlexiCapture Cloud
    1. [Annex 1](https://tools.techidaily.com/abbyy/products/)
 * [Universal DPA with GDPR Addendum](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Universal DPA with GDPR Addendum
 
 [Data Processing Addendum version 17/12/2019](https://www.abbyy.com/media/24315/abbyy%5Ffc%5Fcloud%5Funiversal%5Fdpa%5Fwith%5Fgdpr%5Faddendum.pdf)
@@ -236,10 +254,3 @@ Client is liable for any Personal Data that is provided or otherwise made availa
 <li><a href="https://facebook.techidaily.com/unintentional-sharing-of-numbers-on-social-media-alert/"><u>Unintentional Sharing of Numbers on Social Media Alert!</u></a></li>
 <li><a href="https://howto.techidaily.com/what-to-do-when-samsung-galaxy-f34-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Samsung Galaxy F34 5G Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

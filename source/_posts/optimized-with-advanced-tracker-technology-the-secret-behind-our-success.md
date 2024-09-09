@@ -1,16 +1,28 @@
 ---
 title: "Optimized with Advanced Tracker Technology: The Secret Behind Our Success"
-date: 2024-09-03T22:50:23.049Z
-updated: 2024-09-04T22:50:23.049Z
+date: 2024-09-08T23:44:00.551Z
+updated: 2024-09-09T23:44:00.551Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/84b555054820124f11889e906637732ab71a15523e1f3cc982eace446c58606e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimized with Advanced Tracker Technology: The Secret Behind Our Success
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Guide to E-invoicing in Accounts Payable
 
 ###### Slavena Hristova
@@ -39,10 +51,10 @@ Electronic Invoicing ([e-invoicing](https://tools.techidaily.com/abbyy/products/
 Per definition, the main goal of an e-invoice is the automated import into the AP system. A visual representation of the data in a human-readable format (such as PDF) is, while possible, secondary, not obligatory, and not considered part of the invoice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How does e-invoicing work?
 
@@ -64,19 +76,13 @@ However, its primary driver is closing the [“VAT Gap”](https://www.allenover
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-a-848x44.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The [2022 VAT in the Digital Age (ViDA)](https://www.ey.com/en%5Fgr/tax/tax-alerts/eu-proposals-for-vat-in-the-digital-age-vida) proposal aims to implement cross-border digital reporting using e-invoicing for B2B transactions, while [PEPPOL](https://peppol.org/about/for-end-users/) invoices are becoming mandatory for B2G transactions. Many EU states plan to enforce e-invoicing in B2B transactions within four years, reflecting a growing trend towards regulatory adoption of e-invoicing standards.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What impact does e-invoicing have on accounts payable processes? 
 
 The benefits of e-invoicing for the state treasury are undeniable, and the initial results are already impressive. From the business perspective, there are also significant efficiency benefits in moving from scanning and manually processing paper and PDF invoices to standardized electronic formats.
@@ -94,16 +100,10 @@ At least in theory, the concept promises to solve many efficiency hurdles. But p
 ![guide-to-e-invoicing-accounts-payable-a-848x44](https://content.abbyy.com/-/jssmedia/Project/Abbyy/Abbyy/Insights/Blog/A%20Guide%20to%20E-invoicing%20in%20Accounts%20Payable/guide-to-e-invoicing-accounts-payable-b-848x44.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is e-invoicing the answer to all AP automation dreams?
 
@@ -121,6 +121,18 @@ With governments across the globe acting as catalysts for the adoption of e-invo
 
 Although the theory behind e-invoicing sounds like every automation team’s dream, the reality is that the complexity of regulations, maturity, adoption, standards and formats leaves global companies still dealing with a messy reality, that requires new solutions.
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Choosing the right AP automation solution for your e-invoicing
 
 The bottom line is that hybrid [invoice automation](https://tools.techidaily.com/abbyy/products/) is here to stay for the foreseeable future. Being able to deal with this complexity requires purpose-built [AI solutions](https://tools.techidaily.com/abbyy/products/), such as [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/), capable of intelligently analyzing, classifying, capturing and normalizing data from invoices of any type, format and language into a single structured stream into their ERP system.
@@ -146,12 +158,6 @@ Learn more about how ABBYY addresses hybrid accounts payable automation [here](h
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY

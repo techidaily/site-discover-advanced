@@ -1,16 +1,28 @@
 ---
 title: "U.S. Regulations Offer Positive Outlook: Insights From ABBYY"
-date: 2024-09-03T22:50:21.299Z
-updated: 2024-09-04T22:50:21.299Z
+date: 2024-09-08T23:43:58.932Z
+updated: 2024-09-09T23:43:58.932Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be75696460e14e09acd5a7ef9a37fabd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## U.S. Regulations Offer Positive Outlook: Insights From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Regulatory Efforts in the U.S. Present an Encouraging Perspective
 
 ###### Andrew Pery
@@ -19,6 +31,12 @@ March 19, 2020
 
 ![SMM Blog | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25411/11586_smm_blog_regulatory-efforts-in-the-us-present-an-encouraging-perspective_2blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Government efforts to regulate AI in the United States have made significantly less progress than in the E.U. Several federal and local regulatory initiatives have been slow to move forward or were paused altogether. Many tech giants have taken it upon themselves to set forth AI ethics guidelines, task forces, and in some cases, to establish self-regulation efforts. Furthermore, a number of researchers, academics, and organizations have also begun exploring and establishing guidelines surrounding the ethical use of AI technologies. In this article, the following three domains will be explored with regard to the recent initiatives and efforts to establish an ethical AI framework:
 
 * **Government regulatory efforts in the U.S.**: On a federal, state-wide, and local level, multiple government entities have proposed legal regulations surrounding the development, implementation, and utilization of AI technologies. Unfortunately, many of these efforts have been slow to progress. This article explores a few recent efforts including the Algorithmic Accountability Act of 2019, H.R.4625, the "FUTURE of Artificial Intelligence Act of 2017", and California Consumer Privacy Act (CCPA).
@@ -33,6 +51,12 @@ _The full_ [_article_](https://info.aiim.org/aiim-blog/ethical-use-of-data-for-t
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -41,6 +65,12 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -150,16 +180,3 @@ Connect with us
 <li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 <li><a href="https://screen-activity-recording.techidaily.com/virtual-play-spaces-you-cant-miss/"><u>Virtual Play Spaces You Can't Miss</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

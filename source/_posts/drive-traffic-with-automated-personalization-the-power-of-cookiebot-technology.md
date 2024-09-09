@@ -1,12 +1,18 @@
 ---
 title: "Drive Traffic with Automated Personalization: The Power of Cookiebot Technology"
-date: 2024-09-03T22:50:21.714Z
-updated: 2024-09-04T22:50:21.714Z
+date: 2024-09-08T23:43:59.294Z
+updated: 2024-09-09T23:43:59.294Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b2b266f861ae95d9b96270a9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Drive Traffic with Automated Personalization: The Power of Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,18 @@ April 09, 2018
 
 On very rare occasions, you may need to factory-reset your phone. We provide instructions on how to do it safely and not lose any data. We also show how you can send files from FineScanner to your Mac via iTunes.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: How to Reset Your iPhone**
 
 There may be many reasons why you may want to reset your iPhone—you are selling your device, the phone has become cluttered with unnecessary software, or you have made some changes that you want to undo. Whatever the reason, we strongly recommend that you [back up all of your data](https://tools.techidaily.com/abbyy/products/) before proceeding with the steps below.
@@ -34,6 +52,12 @@ First, you’ll need to decide which settings you want to be reverted to their f
 
 ![iOS Reset all settings iPhone](https://static1.abbyy.com/abbyycommedia/26223/mm29-1-e1523362739270.jpg)Now that you have made up your mind, you can begin the reset procedure. IMPORTANT! Make sure you have more than 60% of battery power left (or plug your iPhone into a power socket to be on the safe side).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Tap **Settings** \> **General**.
 2. Tap **Reset**.
 3. Now choose any of the options described above.
@@ -42,10 +66,16 @@ First, you’ll need to decide which settings you want to be reverted to their f
 Here are some additional facts you should know before you begin to reset your phone. Firstly, depending on the number of installed apps, the process may take quite some time. Secondly, a reset is a reset, and all of the data will be erased, including your Apple ID info, so be sure to write down all of your usernames and passwords. Finally, you will need to activate your device anew, which requires a Wi-Fi connection or a desktop computer with iTunes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Android Tip: How to Reset Your Android Phone**
 
@@ -82,16 +112,16 @@ If you’ve done everything correctly, you’ll see the Recovery menu:
 
 ![press combination hardware buttons Meizu Xiaomi](https://static1.abbyy.com/abbyycommedia/26226/492ef7d88d009bb81feb00de7a5849f9-e1521460571262.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Sometimes the **Recovery menu** may not respond to your taps. In this case, use the **Volume Up** and **Volume Down** buttons to navigate the menu and the power button to confirm your choice. The menu item you need is **Wipe data/factory reset** (the exact wording may be slightly different on different models).
 
 ![Recovery menu restoring factory defaults](https://static1.abbyy.com/abbyycommedia/26227/00fc1e1195ef1696637680957c2a05cc-e1521460674814.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The phone will start erasing all of your data and restoring the factory defaults. When the process completes, select the **Reboot System** item. Once the reboot is finished, you will be holding a pristine device in exactly the same state when you just unboxed it.
 
 ## **ABBYY Tip: How to Send Documents From FineScanner to Your Computer Via iTunes**
@@ -112,18 +142,6 @@ Many [FineScanner iOS](http://qrs.ly/pl4x25p) users want to be able to read thei
 
 That’s it! Now your documents are stored both on your phone and on your computer.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Tempra**
 
 Our inner sense of time is very subjective and is affected by our local culture, mood, and even body temperature! Out of sheer scientific curiosity, the founders of the CW&T studio asked themselves this question: what would happen if we stopped all the clocks and watches on earth and asked people to try and register in their minds an interval of, say, one second? [Tempra](http://blog.cwandt.com/post/114375488090/httpbitlytempra-app-im-finally-getting) is an app that attempts to do exactly that.
@@ -132,16 +150,22 @@ Our inner sense of time is very subjective and is affected by our local culture,
 
 ![App Tempra develop sense of time](https://static1.abbyy.com/abbyycommedia/26229/tumblr_nlnamno0d61rrnrzjo1_500-e1521462461686.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Tempra](http://blog.cwandt.com/post/114375488090/httpbitlytempra-app-im-finally-getting) is also a research tool. It collects user data (upon your consent, of course) to help its creators with their research into how we sense time, whether our sense of time can be trained, and how this kind of exercise affects our brain.
 
 Available on[iOS](https://itunes.apple.com/us/app/tempra/id928533123).
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Anna Koltsova, Head of Mobile Product Marketing_
@@ -149,10 +173,10 @@ _By Anna Koltsova, Head of Mobile Product Marketing_
 ![abbyy advice antistress relaxation spinner](https://static1.abbyy.com/abbyycommedia/26230/ak-blog.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 I guess most of you, like myself, have read numerous articles about time management, ranging from methods like [Pomodoro](https://lifehacker.ru/2015/05/28/all-about-pomodoro/) to simple advice not to open your social network page every time you have a spare moment, disable all the pop-up notifications, and possibly, switch the screen of your device to [monochrome](https://tools.techidaily.com/abbyy/products/) to make it less alluring. If all this good-intentioned advice hasn’t weaned you off your phone, why not try a couple of tricks that have worked for me? Here’s what I do to make the most of my short breaks from work without losing myself in social media.
 
@@ -165,16 +189,10 @@ That’s all we wanted to tell you today. See you next Monday! P.S. You can find
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

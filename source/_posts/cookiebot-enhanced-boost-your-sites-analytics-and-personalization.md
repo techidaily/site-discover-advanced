@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-09-03T22:50:21.598Z
-updated: 2024-09-04T22:50:21.598Z
+date: 2024-09-08T23:43:59.190Z
+updated: 2024-09-09T23:43:59.190Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -17,6 +17,12 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
 
 ![Safe Business Post Covid | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/33499/safe-business-post-covid-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 企業は、何十年にもわたる歴史と知識にもかかわらず、非常に複雑で動的なプロセスの管理に苦労することがよくあります。 企業組織が画期的なビジネス結果を達成するための鍵となることは、プロセスの最適化にあることを皆認識しているため、プロセスマイニングへの関心が高まっています。 プロセスインテリジェンスは高度なアプローチです。タスクマイニングやプロセスマイニングなどの手法を使用して、さまざまな業界のクライアントが人、プロセス、コンテンツをより適切に結び付けます。そして、改善の機会をすばやく特定できるようにします。 それはビジネスの改善に取り組むための適切、迅速な方法としてブームを巻き起こしています。
 
 以下のリストでは、見逃したかもしれない2020年のプロセスインテリジェンス記事のトップピックを厳選しました。ビジネスをDXの成功に向けて推進したストーリー、業務プロセスへの新しいアプローチを奨励したストーリー、企業の回復力を高めるためのヒントなどです。
@@ -30,10 +36,10 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. DXの成功はプロセスの真実を理解することから
 
@@ -41,49 +47,67 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 [記事はこちら](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. 業務プロセスとリスク、失敗の理解
 
 自動化は企業を根本的に変革しました。ワークフローの合理化、運用効率の向上から顧客体験の向上まで、自動化はビジネスに不可欠な機能を強化し、DXを推進します。
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 RPA技術により、従業員は日常的な簡単な繰り返し業務ではなく、収益に直接影響する高価値で創造的な業務に集中することができます。 ただし、大きなメリットがあるにもかかわらず、RPA技術だけでは、自動化の可能性を最大限に引き出すには十分ではありません。 ABBYY CIO（最高イノベーション責任者）のAnthony Macciolaは、このForbesの記事で、コンテンツのコンテキストと意味を理解するために、デジタルインテリジェンスソリューションを使用するよう企業組織にアドバイスしています。
 
 [記事はこちら](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. 業務プロセスへの新しいアプローチ：ビジネスをDXし、プロセスインテリジェンスで変化をナビゲートする
 
 時代によって変化する顧客の要求、複雑な法的規制環境、データ量の増加、予期できなかった世界的な新型コロナウィルス危機から、世界中のあらゆる規模のあらゆる業界の企業組織が、これまでにない方法で挑戦していかねばならない状況です。 ABBYY CMOのScott Opitzは、Workflow Magazineの記事で、特に変化の時期に、企業組織が顧客に最善のサービスを提供するためには、効果的に対応、適応、克服し、アジャイルでタイムリーであることが必要と語っています。
 
 [記事はこちら](https://workflowotg.com/a-new-approach-to-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. 全てのリーダーが回復力のあるサプライチェーンのために問うべき3つの質問
 
 新型コロナウイルス（COVID-19）の流行は、事実上すべての業界を根本的に混乱させましたが、おそらくサプライチェーンで最も顕著でした。 米国企業の4社に3社は、この危機の結果としてサプライチェーンが混乱したと報告しています。 出荷の遅れや在庫不足がよく発生しました。
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 米国で非常事態宣言が発令されてからわずか数週間後の3月下旬、Amazonでさえ1か月もの配達遅延が発生したと報告されました。 ABBYYの製品マーケティング担当役員（Vice President）であるBruce Orcuttは、サプライチェーンが回復力を発揮するためには、迅速にピボット（軸を決めて旋回）できる必要があるとSupply & Demand Chain Executiveで語っています。
 
 [記事はこちら](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. 壊れた業務プロセスを修正することによる利益率の活性化
 
@@ -100,10 +124,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
 
@@ -111,12 +135,6 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

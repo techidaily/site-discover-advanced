@@ -1,7 +1,7 @@
 ---
 title: "Automated Ad Targeting with Cookiebot: The Ultimate Guide"
-date: 2024-09-03T22:50:19.690Z
-updated: 2024-09-04T22:50:19.690Z
+date: 2024-09-08T23:43:57.361Z
+updated: 2024-09-09T23:43:57.361Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb6fabc72096593a99e32594f.png
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Seven Tips for Bringing Artificial Intelligence into Your Organization
 
 June 29, 2020
@@ -23,6 +29,12 @@ AI suffers from a major problem of bias within companies — and this compromise
 
 The number of companies adopting AI has increased from 10% four years ago to 37% in 2019, according to Gartner’s survey of 3,000 CIOs. In the short term, companies should try to build an ethic around their use of AI. But they must also be strategic in [integrating AI into business](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Fixing cultural bias
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28681/ai-1.jpg)
@@ -35,12 +47,6 @@ Firms that have already financed digital transformations, and have hardly benefi
 
 _Learn about ABBYY's approach to [trustworthy AI](https://tools.techidaily.com/abbyy/products/) here._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Include responsibility and accountability
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28683/ai-2.jpg)
@@ -53,23 +59,23 @@ To successfully implement AI projects in hypersensitive domains such as finance,
 
 By enabling accountability for these types of issues, it will create transparency and an accountable AI system.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Create an internal AI department
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28685/ai-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Setting up an in-house AI team will be one of the means that will allow you to develop your AI projects. By calling on AI talents in specific divisions, you will have a solid team that can help you recruit and retain your employees. New AI-related teams and job descriptions will need to be created by adding scientists, data engineers, and machine learning engineers to your staff.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Practicing participatory design
 
@@ -77,12 +83,6 @@ Another way to create a more sustainable solution to building responsible AI is 
 
 Picture this. If an automated software is to be used in a call center to help reduce an employee’s workload, it is preferable that customers, a call center supervisor, and a call center employee be involved in the development process.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Plan your AI budget
 
 AI innovations are worth mining, but they are not tolerant of a zero budget. Currently, AI is having a significant impact on economic development and the redefinition of professional roles.
@@ -91,38 +91,50 @@ Deloitte conducted a survey of early adopters to clarify how they began their jo
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28715/deloitte.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Source: [Deloitte](https://www.cio.com/article/3393443/state-auto-taps-rpa-to-cut-costs-and-transform-its-workforce.html)
 
 Therefore, a key action to take quickly is to define a budget for your future AI project as it will require a lot of funds — the absence of which will result in the total failure of the project.
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Start small and experiment
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28689/ai-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Although you want to develop your artificial intelligence strategy as quickly as possible, it requires a little patience and experimentation. It is best to create a small number of artificial intelligence resources that are difficult to implement. Tailor these resources so that they give you an advantage in your industry. This may require the use of specific data that has been carefully researched and used in the development of AI applications.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Alleviate employee’s displacement anxiety
 
 The extent to which AI will eliminate or transform jobs is unclear, but companies should begin to educate their employees about how their jobs may change and recommend ways to re-qualify to remain relevant. This includes retraining workers whose tasks are supposed to be automated — or giving them time to look for a new job. A concrete illustration of this is Insurer State Auto, which is [training its staff to handle more complex claims](https://www.cio.com/article/3393443/state-auto-taps-rpa-to-cut-costs-and-transform-its-workforce.html), as [robotic process automation (RPA)](https://www.cio.com/article/3236451/what-is-rpa-robotic-process-automation-explained.html) frequently handles lower-level tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 The question now facing companies is how to create an investment program for AI that sustains, and how to change the organizational culture to address AI. Paradoxically, true innovation in AI will come from preparing companies to adopt the technology, not from training and implementing AI, which is increasingly becoming a commodity.
