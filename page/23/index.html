@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"discover-advanced.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -693,31 +750,30 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4fb99ee9f899025e02ab5d17.jpg" alt="Unlocking Site Success with Cookiebot&#39;s Advanced Tracking Solutions" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cece118b77c428c885565f6981.jpg" alt="ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/">
-                            Unlocking Site Success with Cookiebot&#39;s Advanced Tracking Solutions
+                        <a href="/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/">
+                            ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Unlocking Site Success with Cookiebot’s Advanced Tracking SolutionsWhite paper
-From “ETL” to “ELT” and Why It Matters for the...
+                             ## ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung Newsroom ## Von A wie ABBYY bi...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -741,7 +797,7 @@ From “ETL” to “ELT” and Why It Matters for the...
         
     </div>
 
-    <a href="/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/">Read more<span class="seo-reader-text">Unlocking Site Success with Cookiebot&#39;s Advanced Tracking Solutions</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/">Read more<span class="seo-reader-text">ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -757,31 +813,30 @@ From “ETL” to “ELT” and Why It Matters for the...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8497a84119e0a96a5c983db49610c81e2418d1546f465ac4877a5dbfe4aa35e7.JPG" alt="Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg" alt="ABBYY Boosts Leadership with Neil Murphy&#39;s Promotion to Chief Sales Officer" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/">
-                            Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY
+                        <a href="/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/">
+                            ABBYY Boosts Leadership with Neil Murphy&#39;s Promotion to Chief Sales Officer
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYYBack to Newsroom 
-The Wavelength: Artificial Intel...
+                            ABBYY Boosts Leadership with Neil Murphy’s Promotion to Chief Sales OfficerNewsroom ## ABBYY stärkt Führungsteam mit...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -805,7 +860,7 @@ The Wavelength: Artificial Intel...
         
     </div>
 
-    <a href="/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/">Read more<span class="seo-reader-text">Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/">Read more<span class="seo-reader-text">ABBYY Boosts Leadership with Neil Murphy&#39;s Promotion to Chief Sales Officer</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -821,33 +876,30 @@ The Wavelength: Artificial Intel...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/streamline-your-gdpr-compliance-using-cookiebot-technology/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d545d1676a1f32d06cb990c5.jpg" alt="Streamline Your GDPR Compliance Using Cookiebot Technology" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/abbey2024peak-matrix-idp/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453eb6e04c1cfde40ef70bbce3.jpg" alt="ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/streamline-your-gdpr-compliance-using-cookiebot-technology/">
-                            Streamline Your GDPR Compliance Using Cookiebot Technology
+                        <a href="/abbey2024peak-matrix-idp/">
+                            ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Streamline Your GDPR Compliance Using Cookiebot Technologyニュースルーム 
-ABBYY、グローバルでドキュメント内データへのアクセスに関する実態調査を実施11月17日, 2021
-
-日本の従業...
+                             ## ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題 レポート ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBY...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -871,7 +923,7 @@ ABBYY、グローバルでドキュメント内データへのアクセスに関
         
     </div>
 
-    <a href="/streamline-your-gdpr-compliance-using-cookiebot-technology/">Read more<span class="seo-reader-text">Streamline Your GDPR Compliance Using Cookiebot Technology</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/abbey2024peak-matrix-idp/">Read more<span class="seo-reader-text">ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -887,31 +939,30 @@ ABBYY、グローバルでドキュメント内データへのアクセスに関
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/real-time-monitoring-of-abbyy-announcements-using-timelinepi/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c34daec24e1d24e09cc0c1b30.jpg" alt="Real-Time Monitoring of ABBYY Announcements Using TimelinePI" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/8811b92a7eefeba0e683a11bee29a6db304b4d3eeed54950f10cd7a4ce1787b2.jpg" alt="Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/real-time-monitoring-of-abbyy-announcements-using-timelinepi/">
-                            Real-Time Monitoring of ABBYY Announcements Using TimelinePI
+                        <a href="/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/">
+                            Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Real-Time Monitoring of ABBYY Announcements Using TimelinePIActualités 
-ABBYY acquiert TimelinePI pour renforcer son ancrage ...
+                             ## Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations Back to Newsroom ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -935,7 +986,7 @@ ABBYY acquiert TimelinePI pour renforcer son ancrage ...
         
     </div>
 
-    <a href="/real-time-monitoring-of-abbyy-announcements-using-timelinepi/">Read more<span class="seo-reader-text">Real-Time Monitoring of ABBYY Announcements Using TimelinePI</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/">Read more<span class="seo-reader-text">Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -951,32 +1002,30 @@ ABBYY acquiert TimelinePI pour renforcer son ancrage ...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/pioneering-solutions-for-tomorrows-trade-financing-obstacles/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/547814a807b4543590f62321378a7a383eefe4ae6434dfc2add6edc999f55579.jpg" alt="Pioneering Solutions for Tomorrow&#39;s Trade Financing Obstacles" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/precision-marketing-via-innovative-cookie-based-analytics-tools/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a5e29cc0296d5b97722e8cc9.png" alt="Precision Marketing via Innovative Cookie-Based Analytics Tools" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/pioneering-solutions-for-tomorrows-trade-financing-obstacles/">
-                            Pioneering Solutions for Tomorrow&#39;s Trade Financing Obstacles
+                        <a href="/precision-marketing-via-innovative-cookie-based-analytics-tools/">
+                            Precision Marketing via Innovative Cookie-Based Analytics Tools
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Pioneering Solutions for Tomorrow’s Trade Financing ObstaclesWhite paper
-New Solutions for New Challenges in Trade Finance
-In...
+                            Precision Marketing via Innovative Cookie-Based Analytics ToolsBack to ABBYY Blog ## Why Do Developers Use ABBYY Eng...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1000,7 +1049,7 @@ In...
         
     </div>
 
-    <a href="/pioneering-solutions-for-tomorrows-trade-financing-obstacles/">Read more<span class="seo-reader-text">Pioneering Solutions for Tomorrow&#39;s Trade Financing Obstacles</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/precision-marketing-via-innovative-cookie-based-analytics-tools/">Read more<span class="seo-reader-text">Precision Marketing via Innovative Cookie-Based Analytics Tools</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1016,30 +1065,30 @@ In...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/f411804b07d8feb5757ac6a37c514ffad28202840ac720d56c6054350be2fb61.jpg" alt="Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/executive-strategies-overcoming-obstacles-in-artificial-intelligence/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/953f2bfad0053de9c1fba300c8af977033f308f5e7891f6b783242dd563fe50d.jpg" alt="Executive Strategies: Overcoming Obstacles in Artificial Intelligence" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/">
-                            Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies
+                        <a href="/executive-strategies-overcoming-obstacles-in-artificial-intelligence/">
+                            Executive Strategies: Overcoming Obstacles in Artificial Intelligence
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning TechnologiesActualit...
+                             Click here ## Executive Strategies: Overcoming Obstacles in Artificial In...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1063,7 +1112,7 @@ In...
         
     </div>
 
-    <a href="/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/">Read more<span class="seo-reader-text">Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/executive-strategies-overcoming-obstacles-in-artificial-intelligence/">Read more<span class="seo-reader-text">Executive Strategies: Overcoming Obstacles in Artificial Intelligence</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1079,30 +1128,30 @@ In...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/optimized-with-advanced-web-tracking-technology-by-cookiebot/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3dbfe57b65bd55e5629cfc57b6.jpg" alt="Optimized with Advanced Web Tracking Technology by Cookiebot" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea516bdcb3d44c7df48b1c3e3d.jpg" alt="Cookiebot-Enhanced: Enhance Your Website&#39;s User Experience with Leading Traffic Analysis Tools" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/optimized-with-advanced-web-tracking-technology-by-cookiebot/">
-                            Optimized with Advanced Web Tracking Technology by Cookiebot
+                        <a href="/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/">
+                            Cookiebot-Enhanced: Enhance Your Website&#39;s User Experience with Leading Traffic Analysis Tools
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Optimized with Advanced Web Tracking Technology by CookiebotPolítica de Privacidad de ABBYY Solutions Ltd.El sitio web https:...
+                             ## Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools Report ## ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1126,7 +1175,7 @@ In...
         
     </div>
 
-    <a href="/optimized-with-advanced-web-tracking-technology-by-cookiebot/">Read more<span class="seo-reader-text">Optimized with Advanced Web Tracking Technology by Cookiebot</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/">Read more<span class="seo-reader-text">Cookiebot-Enhanced: Enhance Your Website&#39;s User Experience with Leading Traffic Analysis Tools</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1142,31 +1191,30 @@ In...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/987e27a7892f02906f099613af94ad907edd8b77287d835797fe2caec0c18f95.jpg" alt="Optimize with Cookiebot: Enhance User Experience &amp; Data Tracking" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/cookiebot-driven-customization-enhancing-your-digital-footprint/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/c375ce1878aec11dc45365bef1d03270965b9669f431a9e083c40be8add6302b.jpg" alt="Cookiebot-Driven Customization: Enhancing Your Digital Footprint" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/">
-                            Optimize with Cookiebot: Enhance User Experience &amp; Data Tracking
+                        <a href="/cookiebot-driven-customization-enhancing-your-digital-footprint/">
+                            Cookiebot-Driven Customization: Enhancing Your Digital Footprint
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Optimize with Cookiebot: Enhance User Experience &amp; Data TrackingBack to Newsroom 
-ABBYY’s Kristin Wagener Honored Among C...
+                            Cookiebot-Driven Customization: Enhancing Your Digital FootprintZurück zu den Kundenreferenzen Education | Education&#x2F;Re...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1190,7 +1238,7 @@ ABBYY’s Kristin Wagener Honored Among C...
         
     </div>
 
-    <a href="/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/">Read more<span class="seo-reader-text">Optimize with Cookiebot: Enhance User Experience &amp; Data Tracking</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/cookiebot-driven-customization-enhancing-your-digital-footprint/">Read more<span class="seo-reader-text">Cookiebot-Driven Customization: Enhancing Your Digital Footprint</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1206,31 +1254,30 @@ ABBYY’s Kristin Wagener Honored Among C...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/795e21b2952dac96e4f9316f33c867f4d5e9a26e7b970dc3ae9c242e74e0d377.jpg" alt="Optimize Site Engagement with Advanced Cookiebot Technology Solutions" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/ai-ocr/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg" alt="AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/">
-                            Optimize Site Engagement with Advanced Cookiebot Technology Solutions
+                        <a href="/ai-ocr/">
+                            AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Optimize Site Engagement with Advanced Cookiebot Technology SolutionsReport
-ABBYY Named a Leader in the 2024 Gartner® Magic Q...
+                             ## AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋 全てのブログ 失敗から学ぶ3つのAI OCR自動化ポイント5月17日, 2022 ## なぜOCR導入はうまくいかないのか 働き方改革や業務...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1254,7 +1301,7 @@ ABBYY Named a Leader in the 2024 Gartner® Magic Q...
         
     </div>
 
-    <a href="/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/">Read more<span class="seo-reader-text">Optimize Site Engagement with Advanced Cookiebot Technology Solutions</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/ai-ocr/">Read more<span class="seo-reader-text">AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1270,32 +1317,30 @@ ABBYY Named a Leader in the 2024 Gartner® Magic Q...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg" alt="Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/a284b8622794b8ba45f3866eaa63e737e0684e210dde0d1e1927202914413ca4.jpg" alt="Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/">
-                            Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation
+                        <a href="/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/">
+                            Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for InnovationUlf PerssonChief Executive Officer
-
-Ulf...
+                             ## Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience Back to ABBYY Blog ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:50:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:43:57 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1319,7 +1364,7 @@ Ulf...
         
     </div>
 
-    <a href="/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/">Read more<span class="seo-reader-text">Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/">Read more<span class="seo-reader-text">Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
