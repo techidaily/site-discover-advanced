@@ -1,46 +1,22 @@
 ---
 title: "Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies"
-date: 2024-09-08T23:43:57.998Z
-updated: 2024-09-09T23:43:57.998Z
+date: 2024-09-10T20:50:03.518Z
+updated: 2024-09-14T17:46:05.687Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f411804b07d8feb5757ac6a37c514ffad28202840ac720d56c6054350be2fb61.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY annonce un accord de licence de marque avec Xerox
 
 24 mars 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Les partenaires créent un nouveau service basé sur le cloud pour la traduction de documents à tout moment, en tout lieu
 
 ABBYY®, acteur majeur de technologies et de solutions de traitement des informations, a annoncé aujourd'hui la signature d'un accord de licence de marque avec Xerox. En guise de premier résultat de leur collaboration avec ABBYY, Xerox a créé le [Xerox® Easy Translator Service](http://www.xeroxtranslates.com/), la première solution de traduction linguistique intégrée sur le marché via un portail web sur les appareils Xerox® basés sur la technologie ConnectKey®, ainsi que les périphériques mobiles et les ordinateurs de bureau.
@@ -78,8 +54,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,47 +63,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/rom-zero-to-hero-youtube-tech-required-for-2024/"><u>[New] From Zero to Hero  YouTube Tech Required for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nlock-potential-with-top-choices-in-android-editing-software-for-2024/"><u>[New] Unlock Potential with Top Choices in Android Editing Software for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-seamless-tweet-to-facebook-video-transfers-users/"><u>[Updated] In 2024, Seamless Tweet-to-Facebook Video Transfers Users</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-resolving-iphone-xs-facial-recognition-hurdles/"><u>[Updated] Resolving iPhone X's Facial Recognition Hurdles</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-simplified-steps-for-youtube-shorts-thumbnails-setup-for-2024/"><u>[Updated] Simplified Steps for YouTube Shorts Thumbnails Setup for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>[Updated] Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-ascendant-a-la-tete-de-son-equipe-avec-lannonce-de-neil-murphy-comme-nouvel-chief-sales-officer/"><u>ABBYY Ascendant À La Tête De Son Équipe Avec L'annonce De Neil Murphy Comme Nouvel Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-compreno-crowned-innovative-leader-of-2016-by-kmworld-magazine/"><u>ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-drives-rochling-towards-unified-financial-reporting-with-sap-integration/"><u>ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-study-reveals-rising-employee-resignation-thoughts-amidst-poor-business-processes-during-covid-19-crisis/"><u>ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-digital-intelligence-celebrated-as-a-groundbreaking-innovation-of-the-year-2020/"><u>ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyynelsonhall2020/"><u>ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/adapting-financial-management-tactics-to-navigate-todays-new-normal-proven-approaches/"><u>Adapting Financial Management Tactics to Navigate Today's 'New Normal': Proven Approaches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/anthony-macciola-abbyys-leading-visionary-as-chief-innovation-officer/"><u>Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-websites-analytics/"><u>Automated User Tracking with Cookiebot: Enhancing Your Website's Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-seamless-and-efficient-web-tracking/"><u>Automated with CookieBot: Seamless and Efficient Web Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-streamlining-your-websites-user-experience/"><u>Automated with Cookiebot: Streamlining Your Website's User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automatische-erfassung-von-rechnungen-mit-abbyy-bei-der-deurag-hotel-holding-gmbh/"><u>Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-digital-footprint-effortlessly-using-cookiebot-technology-for-superior-seo-results/"><u>Boost Your Digital Footprint Effortlessly Using Cookiebot Technology for Superior SEO Results</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/combine-audio-streams-into-powerpoint-flow/"><u>Combine Audio Streams Into PowerPoint Flow</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-integration-customizing-web-interactions-for-you/"><u>Cookiebot Integration: Customizing Web Interactions for You!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-advertising-solutions-for-effective-digital-campaigns/"><u>Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-personalized-experience-optimize-your-sites-engagement/"><u>Cookiebot-Enabled Personalized Experience: Optimize Your Site's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Enabled Solutions: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Enabled: Boost Your Site's Visibility & Conversions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-personalized-data-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Personalized Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digital-pages-unveiled-a-guide-to-website-content-and-design/"><u>Digital Pages Unveiled: A Guide to Website Content and Design</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-conversion-tracking-discover-how-our-cookiebot-powered-solutions-boost-your-site/"><u>Drive Traffic with Automated Conversion Tracking: Discover How Our Cookiebot-Powered Solutions Boost Your Site</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-website-engagement-through-cookiebots-advanced-visitor-insights-and-analytics-tools/"><u>Enhancing Website Engagement Through Cookiebot's Advanced Visitor Insights and Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-seamless-data-collection-with-cookiebot-integrated-services/"><u>Experience Seamless Data Collection with Cookiebot-Integrated Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-the-world-of-smart-business-a-tour-with-ceo-ulf-persson/"><u>Exploring the World of Smart Business: A Tour with CEO Ulf Persson</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/globale-allianz-abbyy-bildet-mit-synpulse-eine-umfassende-europapartnerschaft/"><u>Globale Allianz: ABBYY Bildet Mit Synpulse Eine Umfassende Europapartnerschaft</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-realme-gt-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-apple-iphone-se-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone SE Data From iOS iTunes Backup? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-play-40c-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Play 40C</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-reno-8t-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Reno 8T 5G to Outlook | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/impressive-25-increase-in-abbyys-revenue-for-the-year-201n7-key-insights-and-trends/"><u>Impressive 25%% Increase in ABBYY's Revenue for the Year 201N7: Key Insights and Trends</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/successful-fix-for-failed-direct3d-start-up/"><u>Successful Fix for Failed Direct3D Start-Up</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-superior-emulator-lineup-for-playing-retro-ps1-classics/"><u>[New] 2024 Approved Superior Emulator Lineup for Playing Retro PS1 Classics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-video-creation-our-picks-for-the-top-12-flip-screen-cams/"><u>[New] In 2024, Mastering Video Creation Our Picks for the Top 12 Flip-Screen Cams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leading-5-video-editors-outside-youtube-realm-for-2024/"><u>[Updated] Leading 5 Video Editors Outside YouTube Realm for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transform-your-screen-pip-tutorials-for-macos-enthusiasts/"><u>[Updated] Transform Your Screen PIP Tutorials for macOS Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-navigate-the-digital-landscape-discover-these-10-sites-of-3d-graffiti-brilliance/"><u>2024 Approved Navigate the Digital Landscape Discover These 10 Sites of 3D Graffiti Brilliance</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-top-contender-in-the-2024-gartner-magic-quadrant-excellence-in-process-mining-solutions/"><u>ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-welcomes-weronika-niemczyk-to-lead-human-resources-as-new-c-level-executive/"><u>ABBYY Welcomes Weronika Niemczyk to Lead Human Resources as New C-Level Executive</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/accelerate-digital-marketing-success-with-our-cookiebot-solution/"><u>Accelerate Digital Marketing Success with Our Cookiebot Solution!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advanced-analytics-driven-by-the-latest-web-pixel-innovation/"><u>Advanced Analytics Driven by the Latest Web Pixel Innovation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automate-with-cookiebot-enhance-your-sites-user-experience/"><u>Automate with Cookiebot: Enhance Your Site's User Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-traffic-generation-with-cookiebot-technology/"><u>Automated Traffic Generation with Cookiebot Technology</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/improving-readability-of-text-in-far-cry-6/"><u>Improving Readability of Text in Far Cry 6</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-itel-s23-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Itel S23 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-winx-dvd-ripper/"><u>Online 기능이 있는 WinX DVD Ripper: 모바일 아키텍처에서 자유롭게 디스크로그를 만들어보세요!</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

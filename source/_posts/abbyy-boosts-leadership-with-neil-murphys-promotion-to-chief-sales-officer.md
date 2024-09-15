@@ -1,7 +1,7 @@
 ---
 title: ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer
-date: 2024-09-08T23:43:57.273Z
-updated: 2024-09-09T23:43:57.273Z
+date: 2024-09-11T20:48:08.456Z
+updated: 2024-09-14T20:05:01.358Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg
@@ -11,32 +11,14 @@ thumbnail: https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3c
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY stärkt Führungsteam mit der Ernennung von Neil Murphy zum Chief Sales Officer
 
 23\. Mai 2023
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Neil Murphy News Abbyy](https://static4.abbyy.com/abbyycommedia/37254/neil-murphy-news-abbyy.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### _Er wird die globalen Aktivitäten anführen, Kunden zu befähigen, die Erreichung ihrer digitalen Transformationsziele zu beschleunigen._  
   
 ABBYY, ein weltweit führender Anbieter für intelligente Automatisierungslösungen, hat heute die Ernennung von Neil Murphy zum Chief Sales Officer (CSO) bekannt gegeben. Er wird sich darauf konzentrieren, den Fokus des Unternehmens zu erweitern, das globale Organisationen bei der Nutzung ihrer Informationen und der Steigerung des Geschäftswerts durch digitale Transformationsinitiativen unterstützt.
@@ -55,12 +37,6 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -71,28 +47,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_
@@ -107,8 +65,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,41 +74,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-winning-insta-followers-with-irresistible-unboxing-clips/"><u>[New] 2024 Approved  Winning Insta Followers with Irresistible Unboxing Clips</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-refine-your-recordings-the-art-of-sound-reduction/"><u>[New] Refine Your Recordings  The Art of Sound Reduction</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-camera-glitches-ended-by-obs-fix/"><u>[Updated] 2024 Approved  Camera Glitches Ended by OBS Fix</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-an-all-inclusive-subtitle-handbook-from-basics-to-advanced-tips/"><u>[Updated] An All-Inclusive Subtitle Handbook  From Basics to Advanced Tips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-screenpause-recorder-tutorial/"><u>[Updated] In 2024, ScreenPause Recorder Tutorial</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-olympic-snowboard-x-sprint-highlights-22/"><u>[Updated] Olympic Snowboard X Sprint Highlights '22</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-boosting-your-drone-experience-with-these-11-items/"><u>2024 Approved  Boosting Your Drone Experience with These 11 Items</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-efficiency-in-kreditorenbuchhaltung-via-shared-services-and-automation-by-madsack-sap-dank-abbyy-and-beck-it/"><u>Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-insights-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Driven Insights: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-site-performance-boosting-engagement-with-smart-tracking/"><u>Cookiebot-Enhanced Site Performance: Boosting Engagement with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-strategies-for-successful-mukbang-production/"><u>Essential Strategies for Successful Mukbang Production</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-network-driver-download-for-windows-1078/"><u>HP Network Driver Download for Windows 10/7/8</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-cringe-worthy-tweets-the-collection/"><u>In 2024, Cringe-Worthy Tweets  The Collection</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-iphone-15-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from iPhone 15 Safe and Legal</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Itel P55? | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/manual-device-driver-revision-for-vista-users/"><u>Manual Device Driver Revision for Vista Users</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/mobile-magic-16-apps-to-transform-your-selfies-into-cartoons/"><u>Mobile Magic 16 Apps to Transform Your Selfies Into Cartoons</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-clean-up-your-audio-advanced-techniques-for-removing-background-noise-in-fcpx-for-2024/"><u>New Clean Up Your Audio Advanced Techniques for Removing Background Noise in FCPX for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/panoramic-lenses-vs-depth-filled-images/"><u>Panoramic Lenses vs Depth-Filled Images</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/step-by-step-creating-your-own-chat-signal-ios-and-android-edition/"><u>Step-by-Step  Creating Your Own Chat Signal - iOS & Android Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essentials-checklist-for-evaluating-vidma-recorder-for-2024/"><u>Essentials Checklist for Evaluating Vidma Recorder for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 8 Plus with a Broken Screen?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-much-cash-can-you-score-for-watching-a-million-videos/"><u>In 2024, How Much Cash Can You Score for Watching A Million Videos?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-starting-your-macbook-pro-from-scratch/"><u>Step-by-Step Guide: Starting Your MacBook Pro From Scratch</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/1723062096524-top-10-entertaining-games-to-beat-boredom-anywhere-anytime/"><u>Top 10 Entertaining Games to Beat Boredom Anywhere, Anytime!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transform-your-iphone-photos-of-texts-into-editable-files-with-scan-and-ocr-technology/"><u>Transform Your iPhone Photos of Texts Into Editable Files with Scan & OCR Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-patient-interactions-with-abbyy-cutting-edge-innovations-for-modern-telehealth-services/"><u>Transforming Patient Interactions with ABBYY: Cutting-Edge Innovations for Modern Telehealth Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-the-terms-of-use-for-abbyys-flexicapture-including-dpa-and-gdpr-provisions/"><u>Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

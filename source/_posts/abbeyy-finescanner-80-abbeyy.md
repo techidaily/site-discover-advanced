@@ -1,7 +1,7 @@
 ---
 title: "ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ"
-date: 2024-09-08T23:43:59.935Z
-updated: 2024-09-09T23:43:59.935Z
+date: 2024-09-13T23:14:25.078Z
+updated: 2024-09-14T22:50:27.784Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92aed76fb6bf5194cca7db102.jpg
@@ -17,20 +17,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 今回は、ABBYY Mobileの中から最新世代のモバイルスキャナーであるFineScannerAI 8をご紹介します。FineScannerはドキュメントをスキャンして保存するだけでなく、個人のスマートフォンアーキビスト（記録、公文書保管人）にもなります。 また、今Updateより、FineScannerは、すべての写真を7つの異なるドキュメントタイプに自動的に並べ替え、検索機能を使用して特定の写真を検索し、AR（拡張現実）を使用してドキュメントのサイズを正確に測定できるようになりました。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 新世代のスマートギャラリー
 
 [第一世代のAI](https://tools.techidaily.com/abbyy/products/)ギャラリーはスマートフォンの写真アーカイブを自動的にスキャンして、テキスト付きのドキュメントを探すことを可能としました。つまり[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)は、猫や夕焼けの写真を含むイメージの中から、最も重要なドキュメントをすばやく選び出し、気を散らすことなく作業に集中できるようにしました。ただし、これはほんの始まりに過ぎず、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)の最大のアップデートの時期が来ました。
@@ -63,13 +51,14 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 新しいスマートギャラリーと検索機能の活用
 
@@ -91,12 +80,6 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
 デバイスプラットフォームに関係なく、iOSでもAndroidでも、使用可能です。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## iOSデバイスでAR（拡張現実）を使用してドキュメントサイズを測定する
 
 Appleユーザーには少し驚きがありました。 私たちの調査によると、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)ユーザーの半数以上が作成したドキュメントを電子メールまたはメッセンジャーアプリに送信します。これは、ドキュメントをPCに保存するか、印刷することによって起こり得ます。 以前の[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)バージョンでは、アプリから直接ドキュメントを印刷すると、画像がページ全体に拡大されてしまいましたが、これは不十分でした。
@@ -112,18 +95,6 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ドキュメントのサイズが標準サイズの1つ（A4や運転免許証など）に対応している場合、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)では、その特定のサイズのドキュメントとして扱われるようにドキュメントを設定するかどうかの確認が求められます。 非標準サイズのドキュメントの場合、あとで使用するために検出されたサイズを保存することを選択できます。 これを行うためには、検出されたドキュメント測定値をタップし、「リストに保存」を「オン」に切り替えます。 それが完了したら、「Flyer」など、新しいフォーマットの名前を指定します。
 
 [FineScannerアプリを更新](https://fsfree.onelink.me/RsYZ/fs8blogjp)して頂くことで、これらすべての新機能をすぐにお試し頂けます。AppStoreとGooglePlayの両方のアプリケーションページでフィードバックとリクエストを頂けることを楽しみにしております。
@@ -135,11 +106,12 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -188,11 +160,29 @@ Page URL
 
 Connect with us
 
-
-
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 今回は、ABBYY Mobileの中から最新世代のモバイルスキャナーであるFineScannerAI 8をご紹介します。FineScannerはドキュメントをスキャンして保存するだけでなく、個人のスマートフォンアーキビスト（記録、公文書保管人）にもなります。 また、今Updateより、FineScannerは、すべての写真を7つの異なるドキュメントタイプに自動的に並べ替え、検索機能を使用して特定の写真を検索し、AR（拡張現実）を使用してドキュメントのサイズを正確に測定できるようになりました。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 新世代のスマートギャラリー
 
@@ -216,12 +206,6 @@ Connect with us
 
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ニューラルネットワークの「トレーニング」には、多数のABBYY従業員から提供された何万枚もの写真の調査が含まれていました。 AIは、他の勤勉な学生と同様に、学ぶために豊富な知識を必要とします。 このプロセスの一環として、ABBYYの開発者は、提供された各写真を手作業で細心の注意を払ってマークしました。 これが、AIが本とA4ドキュメント、名刺とIDなどの違いを「教えた」方法でした。[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)にアップロードされた最も人気のあるドキュメントタイプに対して、7つの異なるセクションを実装することにしました。 このデータは、ユーザーが回答したアンケートによって取得されました。
 
 我々のテスト結果によると、分類の精度は約90〜95％です。 しかし、それはギャラリーの写真品質に大きく依存します。
@@ -234,18 +218,6 @@ Connect with us
 
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 新しいスマートギャラリーと検索機能の活用
 
 次に、技術的な詳細についてです。すべてが実際にどのように機能するかを見てみましょう。 まず、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)を更新したら、スマートギャラリーとテキスト検索機能をアクティブにする必要があります。
@@ -282,11 +254,12 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 ![arkit_fs_8](https://static1.abbyy.com/abbyycommedia/31423/arkit_fs_8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ドキュメントのサイズが標準サイズの1つ（A4や運転免許証など）に対応している場合、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)では、その特定のサイズのドキュメントとして扱われるようにドキュメントを設定するかどうかの確認が求められます。 非標準サイズのドキュメントの場合、あとで使用するために検出されたサイズを保存することを選択できます。 これを行うためには、検出されたドキュメント測定値をタップし、「リストに保存」を「オン」に切り替えます。 それが完了したら、「Flyer」など、新しいフォーマットの名前を指定します。
 
 [FineScannerアプリを更新](https://fsfree.onelink.me/RsYZ/fs8blogjp)して頂くことで、これらすべての新機能をすぐにお試し頂けます。AppStoreとGooglePlayの両方のアプリケーションページでフィードバックとリクエストを頂けることを楽しみにしております。
@@ -297,18 +270,6 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア
@@ -319,8 +280,6 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -330,58 +289,20 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[New] 2024 Approved  Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtual-worlds-reimagined-the-most-spectacular-sci-fi-films-of-the-metaverse-era/"><u>[New] In 2024, Virtual Worlds Reimagined  The Most Spectacular Sci-Fi Films of the Metaverse Era</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-voice-tactics-for-playstation-45-gamers/"><u>[Updated] 2024 Approved  Voice Tactics for PlayStation 4/5 Gamers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-ios-integration-listening-to-podcasts-made-easy/"><u>[Updated] IOS Integration  Listening to Podcasts Made Easy</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-revolutionizing-fun-vr-applications-unveiled/"><u>[Updated] Revolutionizing Fun  VR Applications Unveiled</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-achieve-viral-fame-crafting-engaging-instagram-unboxing-videos/"><u>2024 Approved  Achieve Viral Fame  Crafting Engaging Instagram Unboxing Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-kinetic-illustration-101-core-skills-and-concepts/"><u>2024 Approved  Kinetic Illustration 101  Core Skills & Concepts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-htc-vive-experience-without-nausea/"><u>2024 Approved  Navigating HTC Vive Experience Without Nausea</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-professional-iphone-cinematography-nine-crucial-tips-to-perfect-videos/"><u>2024 Approved  Professional iPhone Cinematography  Nine Crucial Tips to Perfect Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/6yer6j6n44k144o844ot44k544gr44gk44gr44kl6z2e5qel6ycg5yyw44kz44oz44og44oz44oe44gu5aplusplus5yem5pa55rov44ks6kej44gn5pio44gl44gz/"><u>金融サービスにおける非構造化コンテンツの対処方法を解き明かす</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-finereader-14/"><u>ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-anleitung-zur-elektronischen-rechnungsstellungsmethode-im-kontext-von-rechnungsabrechnungen-ein-praktischer-leitfaden/"><u>ABBYY-Anleitung Zur Elektronischen Rechnungsstellungsmethode Im Kontext Von Rechnungsabrechnungen: Ein Praktischer Leitfaden</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyyalteryx/"><u>ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/accelerating-carlsberg-breweries-product-launch-time-to-market-strategies/"><u>Accelerating Carlsberg Breweries' Product Launch: Time-to-Market Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/augmenting-digital-experience-with-cookiebot-technology/"><u>Augmenting Digital Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-conversion-tracking-with-the-help-of-cookiebot-your-ultimate-solution/"><u>Automated Conversion Tracking with the Help of Cookiebot - Your Ultimate Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-websites-success-with-the-advanced-technology-of-cookiebot/"><u>Boost Your Website's Success with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-performance-enhancing-your-sites-visibility-and-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Site's Visibility and User Engagement</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/digital-deception-9-concerns-with-ai-psychiatrists/"><u>Digital Deception: 9 Concerns with AI Psychiatrists</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/explore-exceptional-economically-priced-asmr-gear-for-2024/"><u>Explore Exceptional, Economically-Priced ASMR Gear for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-death-stranding-from-crashing-on-windows-ultimate-guide/"><u>How to Stop Death Stranding From Crashing on Windows – Ultimate Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-av1-foundations-and-fundamentals/"><u>In 2024, Unveiling AV1  Foundations and Fundamentals</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/is-picku-the-pinnacle-of-editing-excellence-on-android-devices/"><u>Is PickU The Pinnacle of Editing Excellence on Android Devices?</u></a></li>
-<li><a href="https://windows11.techidaily.com/legacy-unlocks-employing-a-windows-7-key-in-11-setup/"><u>Legacy Unlocks: Employing a Windows 7 Key in 11 Setup</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo Y28 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-indie-filmmakers-guide-top-7-low-budget-film-editing-software/"><u>New 2024 Approved Indie Filmmakers Guide Top 7 Low-Budget Film Editing Software</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ranking-top-tools-convert-srt-files-with-zero-charge/"><u>Ranking Top Tools  Convert Srt Files with Zero Charge</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-star-wars-squadrons-crashing-issues-expert-tips-and-hacks/"><u>Resolving STAR WARS Squadrons Crashing Issues - Expert Tips & Hacks</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-creativity-with-ease-mastering-the-art-of-photo-text-editing/"><u>Unleash Creativity with Ease  Mastering the Art of Photo Text Editing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-latest-innovations-at-apples-wwdc-2021-conference/"><u>Unveiling the Latest Innovations at Apple's WWDC 2021 Conference</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/xsplit-compendium-in-depth-gaming-analysis/"><u>XSplit Compendium  In-Depth Gaming Analysis</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/yuneecs-breakthrough-in-high-res-aerial-vision/"><u>Yuneec's Breakthrough in High-Res Aerial Vision</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-game-on-mastering-the-art-of-play-with-kinemaster-on-android/"><u>[New] Game On! Mastering the Art of Play with KineMaster on Android</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-metaverse-inspiration-enhanced-by-ar-and-vr/"><u>[Updated] Metaverse Inspiration Enhanced by AR & VR</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-essential-guide-to-lut-applications-in-photoshop-cs6/"><u>[Updated] The Essential Guide to LUT Applications in Photoshop CS6</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2023s-leading-browsers-recording-software-guide-for-2024/"><u>2023'S Leading Browsers Recording Software Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-camera-editing-showdown-hero-vs-cubes-battle-of-the-screens/"><u>2024 Approved Camera Editing Showdown Hero Vs. Cube's Battle of the Screens</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/demystifying-claude-2-purpose-and-potential/"><u>Demystifying Claude 2: Purpose and Potential</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/file-management-follies-steering-clear-of-windows-11-errors/"><u>File Management Follies: Steering Clear of Windows 11 Errors</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-downloads-for-msi-b350-tomahawk-chipset-drivers-works-great-on-windows-os/"><u>Free Downloads for MSI B350 Tomahawk Chipset Drivers: Works Great on Windows OS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-unlocking-audible-content-from-twitter-videos/"><u>In 2024, Unlocking Audible Content From Twitter Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-abbyy-forward-robert-youngjohns-at-the-helm-of-its-governing-board/"><u>Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-the-pack-abbyy-secures-top-position-in-qkss-2022-spark-index-for-smart-document-processing-technologies/"><u>Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigate-the-future-of-insurance-with-our-digital-agility-advancement-ebook-your-guide-to-modernization-in-insurtech/"><u>Navigate the Future of Insurance with Our 'Digital Agility Advancement' EBook – Your Guide to Modernization in InsurTech</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-boosting-user-engagement-through-tailored-experiences/"><u>Optimize With Cookiebot: Boosting User Engagement Through Tailored Experiences</u></a></li>
 </ul></div>
+

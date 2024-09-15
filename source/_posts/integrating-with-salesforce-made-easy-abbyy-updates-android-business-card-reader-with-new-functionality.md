@@ -1,46 +1,22 @@
 ---
 title: "Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality"
-date: 2024-09-08T23:43:59.565Z
-updated: 2024-09-09T23:43:59.565Z
+date: 2024-09-13T19:05:19.975Z
+updated: 2024-09-14T21:33:52.959Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7143579495d0f62e1a2cda12fd626d9036d87a576b32c356f772aa95549b6f82.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Adds Salesforce Integration to Business Card Reader App for Android
 
 March 21, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Now Android users can easily export new contacts to Salesforce CRM as leads. The release coincides with the 10th anniversary of the launch of the company’s first mobile application._
 
 **Milpitas, CA – March 21, 2019 –** ABBYY®, a global leader in Content IQ technologies and solutions, today announced that ABBYY Business Card Reader app for Android can now be integrated with Salesforce to instantly export contacts from scanned business cards to Salesforce CRM as leads. The release coincides with the 10th anniversary of the launch of the company’s first mobile application, Business Card Reader for Symbian. ABBYY will continue to leverage this extensive experience and expertise in mobile to support companies and individuals on their digital transformation journey and deliver frictionless customer and user experience eliminating barriers and boosting productivity.
@@ -85,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,45 +70,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[New] 2024 Approved  Create Harmonious Hits  A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-formatting-and-generating-youtube-subscriber-url/"><u>[New] 2024 Approved  Formatting and Generating Youtube Subscriber URL</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-skype-call-techniques-for-effective-recordings-free-and-paid-on-computers/"><u>[New] In 2024, Top Skype Call Techniques for Effective Recordings (Free & Paid) on Computers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-top-borders-and-frames-for-perfect-photos/"><u>[Updated] In 2024, Mastering Instagram  Top Borders & Frames for Perfect Photos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-instantaneous-frame-construction-facebook-photo-groups/"><u>[Updated] Instantaneous Frame Construction  Facebook Photo Groups</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-leading-caller-id-changers-with-enchanting-options/"><u>[Updated] Leading Caller ID Changers with Enchanting Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/boosting-your-wireless-range-a-comprehensive-review-of-the-netgear-nighthawk-x4/"><u>Boosting Your Wireless Range: A Comprehensive Review of the Netgear Nighthawk X4</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-technology-boosting-website-efficiency-and-tracking-success/"><u>Cookiebot-Driven Technology: Boosting Website Efficiency and Tracking Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimizing-your-website-with-advanced-tracking-and-analytics/"><u>Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-personalization-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated Personalization: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-distribution-network-through-cutting-edge-rpa-and-intelligent-scanning-technology/"><u>Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-performance-using-the-latest-cookiebot-solutions/"><u>Enhanced Performance Using the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-ai-driven-technology-of-cookiebot/"><u>Enhanced Personalization with the AI-Driven Technology of Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-site-personalization-with-advanced-analytics-by-cookiebot/"><u>Enhanced Site Personalization with Advanced Analytics by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-advanced-web-tracking-the-cookiebot-solution/"><u>Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-performance-in-claims-management-strategies-from-abbyy-ebook-expertise/"><u>Enhancing Performance in Claims Management: Strategies From ABBYY eBook Expertise</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-next-level-analytics-driven-by-cutting-edge-cookiebot-solutions/"><u>Experience Next-Level Analytics: Driven by Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-abbyys-advanced-ai-techniques-at-the-uk-partner-day-driving-innovation-and-maximizing-returns/"><u>Exploring ABBYY's Advanced AI Techniques at the UK Partner Day – Driving Innovation and Maximizing Returns</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/funnyface-creator-for-2024/"><u>FunnyFace Creator for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/future-work-scenarios-unveiled-how-to-prepare-for-a-post-pandemic-labor-landscape-expert-tips-from-abbyy-thought-leaders/"><u>Future Work Scenarios Unveiled: How to Prepare for a Post-Pandemic Labor Landscape - Expert Tips From ABBYY Thought Leaders</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-potential-of-your-campaigns-with-cookiebots-advanced-analytics-tools/"><u>Harness the Potential of Your Campaigns with Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-empowers-websites-with-advanced-tracking-and-personalization-technologies/"><u>How Cookiebot Empowers Websites with Advanced Tracking and Personalization Technologies</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-google-pixel-7a-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-se-2022-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone SE (2022)</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-artistic-image-alteration-methods/"><u>In 2024, Artistic Image Alteration Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-creating-dynamic-photo-effects-in-illustrator/"><u>In 2024, Creating Dynamic Photo Effects in Illustrator</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/incorporating-ai-strategies-for-better-team-participation-mastery-of-insights-from-corporate-records/"><u>Incorporating AI Strategies for Better Team Participation: Mastery of Insights From Corporate Records</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-mastery-transform-images-to-searchable-text-via-scan-ocr-and-pdf-creation/"><u>IPhone App Mastery: Transform Images to Searchable Text via Scan, OCR, and PDF Creation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-cookiebot-technology-for-superior-web-analytics-and-conversion-optimization/"><u>Leverage Cookiebot Technology for Superior Web Analytics and Conversion Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/markus-pichler-promoted-to-vice-president-of-commercial-operations-in-europe-at-dabbyy/"><u>Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-technology-boost-online-engagement-and-insights-today/"><u>Optimized With Cookiebot Technology - Boost Online Engagement & Insights Today!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/remedying-network-unavailable-error-on-windows-devices/"><u>Remedying 'Network Unavailable' Error on Windows Devices</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-flawless-cross-sound-mixing-in-audacity-pro/"><u>[New] In 2024, Flawless Cross-Sound Mixing in Audacity Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-overcoming-pixelation-during-youtube-video-streams/"><u>[Updated] Overcoming Pixelation During YouTube Video Streams</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-9-androidios-video-chat-platforms-ranked/"><u>[Updated] Top 9 Android/iOS Video Chat Platforms Ranked</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/idc-worldwide-market-review-top-intelligent-document-management-software-providers-assessed-2-2024-cycle/"><u>IDC Worldwide Market Review: Top Intelligent Document Management Software Providers Assessed –2# - 2024 Cycle</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-and-update-ch340g-usb-to-serial-bridge-software-on-your-windows-11-pc/"><u>Install and Update CH340G USB-to-Serial Bridge Software on Your Windows 11 PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ki-gesteuerte-rechnungsverwaltung-die-zukunft-der-buchhaltung-mit-intelligenter-technologie/"><u>KI-Gesteuerte Rechnungsverwaltung - Die Zukunft Der Buchhaltung Mit Intelligenter Technologie</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-huion-driver-updates-for-pcs-download-and-installation-tutorial/"><u>Latest Huion Driver Updates for PCs - Download & Installation Tutorial</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-for-superior-website-analytics/"><u>Leverage the Power of Cookiebot for Superior Website Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-your-sites-potential-with-the-advanced-tracking-of-cookiebot-solutions/"><u>Leverage Your Site's Potential with the Advanced Tracking of Cookiebot Solutions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-open-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Open Screen | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-easy-peasy-guide-to-using-ifunnys-meme-app-for-2024/"><u>The Easy-Peasy Guide to Using iFunny's Meme App for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

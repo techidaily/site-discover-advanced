@@ -1,7 +1,7 @@
 ---
 title: Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande
-date: 2024-09-08T23:44:00.508Z
-updated: 2024-09-09T23:44:00.508Z
+date: 2024-09-07T20:59:17.904Z
+updated: 2024-09-14T21:46:33.277Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/264f7e50d992f10f22f440e035402650c9e912cde2fed4f7c2aee477f6b93402.jpg
@@ -17,18 +17,6 @@ Insurance | Digital Archiving
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/70585.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
 ## Le plus grand assureur en santé publique d’Allemagne numérise les documents de son département juridique
@@ -37,22 +25,10 @@ Assurance | Archivage numérique
 
 ![](https://static1.abbyy.com/abbyycommedia/16169/cs-aok-556x303.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Aperçu du client
 
 ![Association AOK](https://static2.abbyy.com/abbyycommedia/15833/aok_bv_logo.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Prénom               | Association AOK                  |
 | -------------------- | -------------------------------- |
 | Sièges sociaux       | Berlin, Allemagne                |
@@ -106,44 +82,14 @@ Sur la base de son expérience positive avec ABBYY Recognition Server au sein de
 
 [![ABBYY Recognition Server est maintenant nommé FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (maintenant FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Assurances](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-aok-360x162](https://static2.abbyy.com/abbyycommedia/16168/cs-aok-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") [Version PDF](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") 
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Accéder au document](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") 
 
 ###### Like, share or repost
@@ -162,8 +108,6 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,47 +117,23 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-definitive-handbook-to-reacting-on-youtube-tweets/"><u>[New] 2024 Approved  The Definitive Handbook to Reacting on YouTube Tweets</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-elevate-your-device-experience-with-smooth-screen-capture/"><u>[New] Elevate Your Device Experience with Smooth Screen Capture</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-peak-online-cam-dance-battles-for-2024/"><u>[New] Peak Online Cam Dance Battles for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-windows-desktop-snappers-guide/"><u>[Updated] 2024 Approved  Windows Desktop Snappers Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-beyond-xboxs-game-bar-top-video-recorders-for-2024/"><u>[Updated] Beyond Xbox's Game Bar  Top Video Recorders for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-full-screen-capture-excellence-4-leading-pcmac-programs/"><u>[Updated] Full Screen Capture Excellence  4 Leading PC/Mac Programs</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-reviving-unresponsive-obs-camera-integration/"><u>[Updated] In 2024, Reviving Unresponsive OBS Camera Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/a-list-websites-with-free-thrones-audio-downloads-for-2024/"><u>A-List Websites with Free Thrones Audio Downloads for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-premier-smart-automation-ally-for-the-arsenal-ladies-team/"><u>ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-showcase-innovative-solutions-for-smart-data-entry-and-boosting-productivity-with-digitized-documents-march-14th-march-18th/"><u>ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-exclusive-online-demo-combining-flexicapture-features-with-timeline-for-enhanced-data-processing/"><u>ABBYY's Exclusive Online Demo: Combining FlexiCapture Features with Timeline for Enhanced Data Processing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-guide-to-advanced-bi-and-process-mining-strategies-unlocking-insights-with-e-book/"><u>ABBYY's Guide to Advanced BI and Process Mining Strategies: Unlocking Insights with E-Book</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-traffic-using-cutting-edge-cookiebot-solutions/"><u>Boost Your Site's Traffic Using Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/breaking-the-cycle-or-not-ideas-for-snapstreaks/"><u>Breaking the Cycle - Or Not? Ideas for Snapstreaks</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-open-mov-files-on-redmi-a2-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't open MOV files on Redmi A2</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-site-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Site: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/cryptographic-shielding-data-safety-in-networked-drives/"><u>Cryptographic Shielding: Data Safety in Networked Drives</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25%% Increase in Revenue for the Year 2N 2017</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo Find N3? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/in-2024-transform-your-job-search-with-these-4-top-video-resume-makers-free/"><u>In 2024, Transform Your Job Search with These 4 Top Video Resume Makers Free</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/quick-load-times-await-discover-high-speed-nvme-options-for-your-ps5/"><u>Quick Load Times Await: Discover High-Speed NVMe Options for Your PS5</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/superior-stream-service-online-quality-revamp/"><u>Superior Stream Service: Online Quality Revamp</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-audio-capture-essentials-mastering-mac-setup/"><u>[Updated] In 2024, Audio Capture Essentials Mastering Mac Setup</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-campaigns-with-cookiebot-technology/"><u>Enhanced Marketing Campaigns with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-precision-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Precision with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-our-cookiebot-driven-technology/"><u>Enhanced Personalization with Our Cookiebot-Driven Technology</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723008851137-fallout-4-black-screen-glitch-discover-simple-fixes-to-get-you-back-in-action/"><u>Fallout 4 Black Screen Glitch? Discover Simple Fixes to Get You Back in Action!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-creative-sound-blaster-recon3d-set-up-with-official-driver-downloads/"><u>Get Your Creative Sound Blaster Recon3D Set Up with Official Driver Downloads</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-apple-iphone-6s-plus-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile Apple iPhone 6s Plus Before the Plan Expires</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovations-arena-top-titles-for-each-vr-headset-for-2024/"><u>Innovation's Arena Top Titles for Each VR Headset for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-motorola-moto-g14-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Motorola Moto G14</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-10-game-recorder-software-list-for-2024/"><u>Top 10 Game Recorder Software List for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

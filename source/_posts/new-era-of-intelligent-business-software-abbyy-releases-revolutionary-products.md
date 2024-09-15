@@ -1,46 +1,22 @@
 ---
 title: "New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products"
-date: 2024-09-08T23:43:58.713Z
-updated: 2024-09-09T23:43:58.713Z
+date: 2024-09-13T20:09:25.038Z
+updated: 2024-09-14T17:42:36.673Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8abafba9a85f8f7a9ea54801a273e110b7cee0bf022a9217ff3a409cbc876b2b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Unveils Two Products to Enable Next Generation Smart Business Applications
 
 February 10, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **New Language-Based ABBYY InfoExtractor SDK and ABBYY Smart Classifier Understand Complex Information to Drive Business Outcomes**
 
 ABBYY®, a leading provider of technologies and solutions to action information, today announced two new language-based products enabling businesses to understand and act on complex, unstructured information. Based on the newly announced Compreno technology comprehensive natural-language processing (NLP) technology, ABBYY InfoExtractor SDK and ABBYY Smart Classifier enable development of next generation smart business process applications, accelerating business decisions and insights for industries, including oil and gas, insurance, healthcare, financial services and government, among others.
@@ -70,8 +46,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -81,35 +55,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/fixed-dxgkrnlsys-solved-blue-screen-in-winos/"><u>[Fixed] dxgkrnl.sys, Solved Blue Screen in WinOS</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-techniques-for-efficiently-storing-fb-messenger-conversations/"><u>[New] 2024 Approved  Techniques for Efficiently Storing FB Messenger Conversations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unraveling-the-selection-process-for-highlighted-youtube-comments/"><u>[New] Unraveling the Selection Process for Highlighted YouTube Comments</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elite-film-clips-anthology/"><u>[Updated] Elite Film Clips Anthology</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-complete-igtv-user-manual/"><u>[Updated] In 2024, The Complete IGTV User Manual</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-finereader-14/"><u>ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-anleitung-zur-elektronischen-rechnungsstellungsmethode-im-kontext-von-rechnungsabrechnungen-ein-praktischer-leitfaden/"><u>ABBYY-Anleitung Zur Elektronischen Rechnungsstellungsmethode Im Kontext Von Rechnungsabrechnungen: Ein Praktischer Leitfaden</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyyalteryx/"><u>ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/captivating-content-perfecting-pictures-through-snapchat-edits-for-2024/"><u>Captivating Content  Perfecting Pictures Through Snapchat Edits for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-fix-the-skyward-plunge-issue-in-cod-warzone-pacific-edition/"><u>How to Fix the Skyward Plunge Issue in COD: Warzone - Pacific Edition</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-15-pro-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 15 Pro to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-disciplined-device-use-effective-ways-to-remove-youtube-channels/"><u>In 2024, Disciplined Device Use  Effective Ways to Remove Youtube Channels</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-nokia-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Nokia</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-expert-reviews-and-buying-guides/"><u>Tom's Tech Insights: Expert Reviews & Buying Guides</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-latest-innovations-at-apples-wwdc-2021-conference/"><u>Unveiling the Latest Innovations at Apple's WWDC 2021 Conference</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/climbing-to-prominence-strategies-for-successful-apples-tv-presence/"><u>Climbing to Prominence: Strategies for Successful Apples TV Presence</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-6-plus-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 6 Plus</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/masterclass-elevate-obs-broadcasts-on-the-facebook-stage/"><u>Masterclass Elevate OBS Broadcasts on the Facebook Stage</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-mastering-color-grading-in-final-cut-pro-2023-for-2024/"><u>New Mastering Color Grading in Final Cut Pro 2023 for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/synchronizing-nvidia-7025-with-windows-os/"><u>Synchronizing Nvidia 7025 with Windows OS</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

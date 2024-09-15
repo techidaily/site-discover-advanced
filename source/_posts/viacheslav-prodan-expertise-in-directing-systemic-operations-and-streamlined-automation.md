@@ -1,7 +1,7 @@
 ---
 title: "Viacheslav Prodan: Expertise in Directing Systemic Operations & Streamlined Automation"
-date: 2024-09-03T22:50:24.081Z
-updated: 2024-09-04T22:50:24.081Z
+date: 2024-09-13T18:28:23.950Z
+updated: 2024-09-14T17:35:32.515Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/603cef112c71acaaa3fdccdd6f7a956de3ad09701fee843146114a343a411d66.jpg
@@ -42,23 +42,12 @@ With a free schedule, my morning starts with deciding where I will work today—
 ![ABBYY Customer Excellence team](https://static1.abbyy.com/abbyycommedia/36641/abbyy-team.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### What keeps you going, and what do you enjoy the most in your role, any highlights?
 
 I can honestly say that I love what I do and have confidence in my own abilities to do a great job. It’s very fulfilling to see the results of our work and helping to improve the lives of employees around the world. I am also grateful for the support of my colleagues and manager. I’m certainly living by the phrase: “Do what you love, and you’ll never work another day in your life.”
@@ -67,28 +56,30 @@ I can honestly say that I love what I do and have confidence in my own abilities
 
 I was head of technical support at the largest private logistics company in Ukraine—working my way up from being a systems administrator. It was there that I discovered my love for automation and optimization. I saw the first results of automating repetitive manual tasks and was awestruck at how much time and effort it could save employees.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Your top advice to someone joining ABBYY in your function?
 
 Sometimes you need to take a step back and look at what you're doing to determine if everything is right. Self-analysis, the desire to do something for people, and not be afraid to voice the most daring proposals are key attributes. And most importantly, enjoy what you do and how you do it. This is what I expect from an employee on my team.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How do you spend your free time?
 
 In recent years, I have been trying to spend more time in nature and have been camping with friends. It’s great to put up a tent in the woods and escape. I also like long drives exploring new places. For me, the drive itself and being on the road is a separate pleasure and adventure in itself, no matter what the traffic! My dream is to make a road trip in my car across Europe and see many different countries and landscapes.
 
 ![camping](https://static1.abbyy.com/abbyycommedia/36643/camping-abbyy-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When I’m not taking trips or camping breaks, I love to play board games with friends. I’m also guilty of spending hours online just looking for information about new technologies or breakthroughs in IT (information technology) or what tech companies are doing. I have a real thirst for tech news.
 
 ### If you could have one wish come true, what would it be?
@@ -97,18 +88,6 @@ I would like people to have the opportunity to do what they want and what they e
 
 ![Slava Prodan ABBYY](https://static1.abbyy.com/abbyycommedia/36640/slava-prodan-abbyy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What’s your pet peeve?
 
 People who don’t learn from their mistakes. This is important so that you can take those lessons forward to improve.
@@ -122,6 +101,13 @@ The “Intouchables” movie—it's an incredible story.
 [See all open positions](https://boards.eu.greenhouse.io/abbyy/?itm%5Fsource=corpblog)
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -177,8 +163,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -188,54 +172,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-effortless-visual-enhancement-auto-scaling-videos-for-mac-instagramers/"><u>[New] 2024 Approved  Effortless Visual Enhancement  Auto-Scaling Videos for Mac Instagramers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-social-media-presence-by-pining-on-snapchat-for-2024/"><u>[New] Elevate Your Social Media Presence by Pining on Snapchat for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-proven-strategies-for-premium-picture-acquisition-gratis/"><u>[New] In 2024, Proven Strategies for Premium Picture Acquisition Gratis</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-harmonizing-visuals-and-audio-in-unboxing-videos/"><u>[Updated] Harmonizing Visuals & Audio in Unboxing Videos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-integrating-tailored-thumbnails-in-your-videos/"><u>[Updated] Integrating Tailored Thumbnails in Your Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-efficient-steps-recording-on-apples-ipad/"><u>2024 Approved  Efficient Steps  Recording on Apple's iPad</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-optimizing-your-brands-presence-in-spotify-advertising/"><u>2024 Approved  Optimizing Your Brand's Presence in Spotify Advertising</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-students-guide-to-top-10-best-history-youtube-sources/"><u>2024 Approved  Student's Guide to Top 10 Best History YouTube Sources</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-realme-gt-5-pro-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Realme GT 5 Pro to Roku | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-finereader-14/"><u>ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-anleitung-zur-elektronischen-rechnungsstellungsmethode-im-kontext-von-rechnungsabrechnungen-ein-praktischer-leitfaden/"><u>ABBYY-Anleitung Zur Elektronischen Rechnungsstellungsmethode Im Kontext Von Rechnungsabrechnungen: Ein Praktischer Leitfaden</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyyalteryx/"><u>ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/accelerating-carlsberg-breweries-product-launch-time-to-market-strategies/"><u>Accelerating Carlsberg Breweries' Product Launch: Time-to-Market Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/augmenting-digital-experience-with-cookiebot-technology/"><u>Augmenting Digital Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/crafting-emotive-verses-with-chatgpts-support/"><u>Crafting Emotive Verses with ChatGPT's Support</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/does-chatgpt-ever-tread-the-line-of-plagiarism-a-deep-dive-into-its-data-practices/"><u>Does ChatGPT Ever Tread the Line of Plagiarism? A Deep Dive Into Its Data Practices.</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-update-instructions-for-your-razer-mouse-on-different-windows-platforms/"><u>Easy Update Instructions for Your Razer Mouse on Different Windows Platforms</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-easy-ways-to-record-console-gameplay/"><u>In 2024, Easy Ways to Record Console Gameplay</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Vivo Y78 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-se-2020-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-social-syncopation-the-rhythm-of-sharing-media-on-facebook/"><u>In 2024, Social Syncopation  The Rhythm of Sharing Media on Facebook</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-watermark-free-video-editing-the-top-7-merging-solutions/"><u>New 2024 Approved Watermark-Free Video Editing The Top 7 Merging Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolving-issues-when-your-instagram-is-not-active-anymore/"><u>Resolving Issues When Your Instagram Is Not Active Anymore</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/cience-and-art-of-engaging-youtube-audiences-for-2024/"><u>The Science and Art of Engaging YouTube Audiences for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/thinkpad-thunderbolt-3-port-replicator-updated-driver-guide/"><u>ThinkPad Thunderbolt 3 Port Replicator - Updated Driver Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-guide-what-to-do-when-your-alexa-device-wont-respond/"><u>Troubleshooting Guide: What to Do When Your Alexa Device Won't Respond</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/uk-labor-seeks-robot-assistance-for-overworked-job-responsibilities-reports-by-abbyy/"><u>UK Labor Seeks Robot Assistance for Overworked Job Responsibilities: Reports by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-latest-innovations-at-apples-wwdc-2021-conference/"><u>Unveiling the Latest Innovations at Apple's WWDC 2021 Conference</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-gopro-quik-for-computer-top-picks-and-alternatives/"><u>Updated 2024 Approved GoPro Quik for Computer Top Picks and Alternatives</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-adding-music-mini-banners-on-instagram-profiles/"><u>[New] In 2024, Adding Music Mini-Banners on Instagram Profiles</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-keeping-synchronization-fix-frame-disruptions-in-obs-for-2024/"><u>[New] Keeping Synchronization Fix Frame Disruptions in OBS for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-quieten-system-sounds-on-pc-and-mac-devices/"><u>[New] Quieten System Sounds on PC and Mac Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-transforming-dull-interviews-into-engaging-assessments/"><u>[Updated] In 2024, Transforming Dull Interviews Into Engaging Assessments</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-campaigns-with-cookiebot-technology/"><u>Enhanced Marketing Campaigns with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-precision-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Precision with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-our-cookiebot-driven-technology/"><u>Enhanced Personalization with Our Cookiebot-Driven Technology</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-frame-rate-and-smoothness-problems-in-red-dead-redemption-2/"><u>Fixing Frame Rate & Smoothness Problems in Red Dead Redemption 2</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-play-7t-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor Play 7T to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplified-techniques-for-reordering-yt-videos-for-2024/"><u>Simplified Techniques for Reordering YT Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-9-invisible-media-extractors-for-2024/"><u>Top 9 Invisible Media Extractors for 2024</u></a></li>
 </ul></div>
+

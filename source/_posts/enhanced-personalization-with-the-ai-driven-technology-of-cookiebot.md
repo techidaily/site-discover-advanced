@@ -1,30 +1,18 @@
 ---
 title: Enhanced Personalization with the AI-Driven Technology of Cookiebot
-date: 2024-09-08T23:43:59.378Z
-updated: 2024-09-09T23:43:59.378Z
+date: 2024-09-08T16:41:42.210Z
+updated: 2024-09-14T16:54:12.616Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced Personalization with the AI-Driven Technology of Cookiebot
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Transportation & Logistics | Accounts Payable Automation
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## East Midlands Railway Improves Email Processing Time By Over Five Hours Per Day with ABBYY and Engeneum
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/147389.png?h=40&iar=0&w=120)
@@ -51,18 +39,6 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
 | Headquarters | The Blade, Abbey Square, Reading, RG1 3BE     |
@@ -109,22 +85,10 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37728/east-midlands-railway-case-study-intelligent-automation-en_tn_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
@@ -135,18 +99,6 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -159,8 +111,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,45 +120,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-studio-editor-transform-your-videos-with-ease/"><u>[New] YouTube Studio Editor  Transform Your Videos with Ease</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-from-stills-to-songs-the-art-of-audio-visual-fusion/"><u>[Updated] 2024 Approved  From Stills to Songs  The Art of Audio-Visual Fusion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-alternative-top-10-flv-to-youtube-converter-apps-for-2024/"><u>[Updated] Best Alternative  Top 10 FLV to YouTube Converter Apps for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-deciphering-digital-marketing-the-power-of-youtube-keywords/"><u>[Updated] Deciphering Digital Marketing  The Power of YouTube Keywords</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-stepwise-approach-to-downloading-movie-maker-6-for-2024/"><u>[Updated] Stepwise Approach to Downloading Movie Maker 6 for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-key-top-5-ultra-light-action-recording-models/"><u>2024 Approved  Key Top 5 Ultra-Light Action Recording Models</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-finereader-14/"><u>ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-anleitung-zur-elektronischen-rechnungsstellungsmethode-im-kontext-von-rechnungsabrechnungen-ein-praktischer-leitfaden/"><u>ABBYY-Anleitung Zur Elektronischen Rechnungsstellungsmethode Im Kontext Von Rechnungsabrechnungen: Ein Praktischer Leitfaden</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyyalteryx/"><u>ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/discover-improvements-and-new-capabilities-with-abbyys-released-flexicapture-v2-upgrade/"><u>Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-your-ads-performance-animation-strategies-for-success/"><u>In 2024, Elevate Your Ad's Performance  Animation Strategies for Success</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-approaches-to-lut-creation/"><u>In 2024, Innovative Approaches to LUT Creation</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-social-media-forecasting-through-data-visualization/"><u>In 2024, Social Media Forecasting Through Data Visualization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-guide-updating-your-lenovo-x240-device-drivers-with-speed-and-precision/"><u>Seamless Guide: Updating Your Lenovo X240 Device Drivers with Speed and Precision</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-latest-innovations-at-apples-wwdc-2021-conference/"><u>Unveiling the Latest Innovations at Apple's WWDC 2021 Conference</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-listenguide-examination/"><u>[Updated] In 2024, ListenGuide Examination</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-seamless-desktop-capture-high-quality-free-windowsmac-software-for-2024/"><u>[Updated] Seamless Desktop Capture High-Quality Free Windows/Mac Software for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725289957349-avchdtsmovaviwmvflv/"><u>全種類の動画ファイル変換方法：AVCHD、ts、MOV、AVI、WMV、FLVを対象とした包括的ガイド</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/an-ipv6-address-consists-of-128-bits-typically-represented-as-eight-groups-of-four-hexadecimal-digits/"><u>An IPv6 Address Consists of 128 Bits, Typically Represented as Eight Groups of Four Hexadecimal Digits</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conveniently-enjoy-nba-games-top-15-streaming-methods/"><u>Conveniently Enjoy NBA Games - Top 15 Streaming Methods</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

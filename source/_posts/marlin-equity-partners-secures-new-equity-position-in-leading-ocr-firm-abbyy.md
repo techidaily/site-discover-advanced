@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY
-date: 2024-09-03T22:50:24.407Z
-updated: 2024-09-04T22:50:24.407Z
+date: 2024-09-11T20:12:45.240Z
+updated: 2024-09-14T19:48:43.504Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
@@ -101,8 +101,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,45 +110,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-master-the-art-of-tokenization-with-these-7-nft-creation-apps/"><u>[New] Master the Art of Tokenization with These 7 NFT Creation Apps</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-complete-rankings-of-mobile-apps-altering-your-speech/"><u>[Updated] 2024 Approved  The Complete Rankings of Mobile Apps Altering Your Speech</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-final-thoughts-on-youtubing-best-makers-tips-and-templates-for-2024/"><u>[Updated] Final Thoughts on YouTubing - Best Makers, Tips, and Templates for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-novice-to-expert-setting-up-a-sports-channel-on-mac-for-2024/"><u>[Updated] From Novice to Expert  Setting up a Sports Channel on Mac for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sci-fis-new-dimensions-top-10-films-taking-viewers-beyond-our-reality/"><u>2024 Approved  Sci-Fi's New Dimensions  Top 10 Films Taking Viewers Beyond Our Reality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-voice-driven-technology-evolution-best-speech-recognition-software-for-mac/"><u>2024 Approved  Voice-Driven Technology Evolution  Best Speech Recognition Software for Mac</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/discover-improvements-and-new-capabilities-with-abbyys-released-flexicapture-v2-upgrade/"><u>Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/experience-advanced-note-organization-on-mematic/"><u>Experience Advanced Note Organization on Mematic</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-address-continuous-audio-on-frozen-youtube-videos-in-web-browsers-chrome-and-firefox-guide/"><u>How to Address Continuous Audio on Frozen YouTube Videos in Web Browsers: Chrome and Firefox Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/leading-dialogue-composers-circle/"><u>Leading Dialogue Composer's Circle</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/techniques-to-enhance-your-slow-motion-photos-for-instagram-audiences-for-2024/"><u>Techniques to Enhance Your Slow Motion Photos for Instagram Audiences for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-vs-youtube-differences-between-vimeo-and-youtube-for-2024/"><u>Vimeo vs YouTube  Differences Between Vimeo and YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-bridging-soundscapes-and-visuals-essentials-for-innovative-asmr-videos/"><u>[New] 2024 Approved Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-your-vfx-creation-with-story-remix-and-windows-10-photos/"><u>[New] Streamline Your VFX Creation with Story Remix and Windows 10 Photos</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-speech-recognition-made-accessible-transforming-audio-to-text-with-ease-in-microsoft-word/"><u>2024 Approved Speech Recognition Made Accessible Transforming Audio to Text with Ease in Microsoft Word</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/hashtags-role-in-amplifying-content-popularity-on-fb/"><u>Hashtags' Role in Amplifying Content Popularity on FB</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-honor-magic-5-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Honor Magic 5 is off? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-slow-it-down-iphone-mastery-over-time-lapse/"><u>In 2024, Slow It Down IPhone Mastery over Time-Lapse</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/increased-productivity-how-abbyys-automated-invoicing-enhances-operations-at-energy-distribution-compannies/"><u>Increased Productivity: How ABBYY's Automated Invoicing Enhances Operations at Energy Distribution Compannies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/laserfiche-optimization-with-abbyy-discover-flexicaptures-power/"><u>Laserfiche Optimization with ABBYY: Discover FlexiCapture's Power</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-abbyy-forward-robert-youngjohns-at-the-helm-of-its-governing-board/"><u>Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-the-pack-abbyy-secures-top-position-in-qkss-2022-spark-index-for-smart-document-processing-technologies/"><u>Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+

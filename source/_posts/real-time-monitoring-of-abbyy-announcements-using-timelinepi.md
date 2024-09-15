@@ -1,52 +1,22 @@
 ---
 title: Real-Time Monitoring of ABBYY Announcements Using TimelinePI
-date: 2024-09-08T23:43:58.030Z
-updated: 2024-09-09T23:43:58.030Z
+date: 2024-09-10T23:27:21.312Z
+updated: 2024-09-14T17:34:40.865Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c34daec24e1d24e09cc0c1b30.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Real-Time Monitoring of ABBYY Announcements Using TimelinePI
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY acquiert TimelinePI pour renforcer son ancrage sur le secteur de la transformation digitale
 
 05 août 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
   
 [ABBYY](https://tools.techidaily.com/abbyy/products/), le spécialiste de solutions d'intelligence digitale, annonce avoir finalisé l'acquisition de TimelinePI. Basée à Philadelphie (États-Unis), TimelinePI permet aux entreprises de comprendre, de contrôler et d'optimiser leurs processus d’affaires.
 
@@ -98,8 +68,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -109,42 +77,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-rev-up-your-social-media-impact-essential-hashtags-for-high-likes-and-follows/"><u>[New] 2024 Approved  Rev Up Your Social Media Impact  Essential Hashtags for High Likes and Follows</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-cyber-sensation-the-rise-of-videoviral-tweets/"><u>[New] Cyber Sensation  The Rise of #VideoViral Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-elevate-your-social-feed-with-superior-twit-hd-vids/"><u>[Updated] Elevate Your Social Feed with Superior Twit HD Vids</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-harness-the-power-of-color-grading-a-guide-to-luts-in-photoshop-cs6/"><u>[Updated] Harness the Power of Color Grading  A Guide to LUTs in Photoshop CS6</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-scalable-and-stylish-type-in-ae-with-top-choices/"><u>[Updated] In 2024, Scalable and Stylish Type in AE with Top Choices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pros-of-popular-video-segments-in-films/"><u>[Updated] Pro's of Popular Video Segments in Films</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-a-collection-of-the-most-engrossing-amusing-ig-accounts/"><u>2024 Approved  A Collection of The Most Engrossing, Amusing IG Accounts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-the-5-superior-videophoto-artists-that-compose/"><u>2024 Approved  Discover the 5 Superior Video/Photo Artists That Compose</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-guide-to-seeing-whos-watching-for-2024/"><u>A Step-by-Step Guide to Seeing Who's Watching for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/advanced-techniques-for-quality-audio-on-ipads/"><u>Advanced Techniques for Quality Audio on iPads</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/amplify-your-messages-a-guide-to-effective-telegram-advertising/"><u>Amplify Your Messages  A Guide to Effective Telegram Advertising</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/bring-back-the-store-reactivation-steps-for-ms-in-windows-11/"><u>Bring Back the Store: Reactivation Steps for MS in Windows 11</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/digging-into-the-heart-of-recordcast-technology-for-2024/"><u>Digging Into the Heart of RecordCast Technology for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-reverse-video-on-instagram/"><u>[New] How to Reverse Video on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-youtube-potential-editing-after-the-upload-process/"><u>[New] Unlocking YouTube Potential Editing After the Upload Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-transform-your-hauls-into-visual-stories/"><u>[Updated] In 2024, Transform Your Hauls Into Visual Stories</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/discover-improvements-and-new-capabilities-with-abbyys-released-flexicapture-v2-upgrade/"><u>Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-help.techidaily.com/easy-guide-converting-your-videos-and-audios-across-various-formats/"><u>Easy Guide: Converting Your Videos and Audios Across Various Formats</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://techtrends.techidaily.com/free-substitutes-for-netflix-top-10-options-to-stream-legally-at-no-extra-expense/"><u>Free Substitutes for Netflix: Top 10 Options to Stream Legally at No Extra Expense</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-public-assessment-of-vllo-functionality/"><u>In 2024, Public Assessment of VLLO Functionality</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guide-to-fix-continuous-game-crashes-in-crusader-kings-iii-for-windows-gamers/"><u>Guide to Fix Continuous Game Crashes in Crusader Kings III for Windows Gamers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-laugh-riot-twitters-funniest-moments/"><u>In 2024, Laugh Riot Twitter's Funniest Moments</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-audible-a-game-changer-unveiling-4-subscription-perks/"><u>Is Audible a Game-Changer? Unveiling 4 Subscription Perks</u></a></li>
+<li><a href="https://discover-help.techidaily.com/live-streaming-mastery-with-manycam-ultimate-virtual-camera-solution/"><u>Live Streaming Mastery with ManyCam: Ultimate Virtual Camera Solution</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-guide-how-to-perfectly-capture-voice-commands-across-pcs-laptops-tablets-and-smartphones/"><u>Ultimate Guide: How to Perfectly Capture Voice Commands Across PCs, Laptops, Tablets, & Smartphones</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

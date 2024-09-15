@@ -1,48 +1,24 @@
 ---
 title: "Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!"
-date: 2024-09-08T23:43:58.417Z
-updated: 2024-09-09T23:43:58.417Z
+date: 2024-09-09T18:24:18.773Z
+updated: 2024-09-14T16:14:18.775Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tolstoy digitized for future generations
 
 July 27, 2017
 
 ![Tolstoy digitized for future generations using ABBYY echnologies | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25212/blog_tolstoy_newartboard-2.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tolstoy: famous and rare
 
 It’s hard to find a literature fan anywhere in the world who hasn’t heard of writer Leo Tolstoy who lived in Russia in later 19th century. War and Peace is one of his most famous sagas which became synonymous to a long literary work with many characters and lines. There are more films around the world based on Tolstoy’s book Anna Karenina than on any other book ever. Unbelievable as it may be, the full works of Tolstoy are available to a very limited audience, being kept in private collections and libraries. The full 90 volumes of Tolstoy literary works have been published only once with an edition of a mere 5,000 units and never republished.
@@ -51,12 +27,6 @@ Apart from the finished works of fiction - prose, poetry, drama - these volumes 
 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Tolstoy fans used technologies
 
 When Leo Tolstoy State Museum in Moscow, Russia, decided to digitize complete works of Tolstoy, they turned to ABBYY, aware of the company’s similar projects with European universities and libraries. The company’s text recognition technologies have already been successfully used to digitize works for Project Gutenberg digital library, [IMPACT](http://www.frakturschrift.com/en:projects:impact), [METAe](http://www.frakturschrift.com/en:projects:metae) and [Southampton University library](https://www.theguardian.com/higher-education-network/blog/2012/jul/09/university-of-southampton-library-digitising-resources) to name a few.
@@ -71,6 +41,13 @@ The work of volunteers was organized through a dedicated website – [readingtol
 
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## From archive digitization to a trendsetting project
 
 Once all 90 volumes went online, ABBYY specialists joined efforts with tablet-maker Wexler to create 761 electronic books: one for each volume and for each piece of work. Now all of them are accessible at www.tolstoy.ru, the official Internet portal dedicated to the writer’s life and writings, developed by the Tolstoy Museum and the Tolstoy’s Estate-Museum in Yasnaya Polyana.
@@ -84,11 +61,12 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -105,8 +83,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,49 +92,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/aking-money-with-videos-strategies-for-the-aspiring-vlogger/"><u>[New] Making Money with Videos  Strategies for the Aspiring Vlogger</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-engaging-students-the-power-of-youtube-in-education/"><u>[Updated] 2024 Approved  Engaging Students  The Power of YouTube in Education</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-calculating-youtube-profits-instantly-for-2024/"><u>[Updated] Calculating YouTube Profits Instantly for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-nightly-narratives-analyzing-video-based-storytelling/"><u>[Updated] Nightly Narratives  Analyzing Video-Based Storytelling</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-best-of-the-best-crafting-a-top-5-racing-game-selection/"><u>[Updated] The Best of the Best  Crafting a Top 5 Racing Game Selection</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-laptop-the-ultimate-guide-to-free-movie-decoders/"><u>2024 Approved  Laptop  The Ultimate Guide to Free Movie Decoders</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-professionals-choice-best-drone-gimbals/"><u>2024 Approved  Professional's Choice  Best Drone Gimbals</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-women-in-warfare-youtubes-elite-ten/"><u>2024 Approved  Women in Warfare  YouTube’s Elite Ten</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-efficiency-in-kreditorenbuchhaltung-via-shared-services-and-automation-by-madsack-sap-dank-abbyy-and-beck-it/"><u>Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-insights-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Driven Insights: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-site-performance-boosting-engagement-with-smart-tracking/"><u>Cookiebot-Enhanced Site Performance: Boosting Engagement with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
-<li><a href="https://driver-install.techidaily.com/fine-tune-display-software-in-win-os/"><u>Fine-Tune Display Software in Win OS</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-tecno-spark-10-pro-by-drfone-android/"><u>How to Show Wi-Fi Password on Tecno Spark 10 Pro</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-nokia-g42-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Nokia G42 5G Phone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-intonations-choosing-the-right-notes-for-your-snap/"><u>In 2024, Instagram Intonations  Choosing the Right Notes for Your Snap</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/preserving-literary-heritage-digitizing-tolstoys-works-with-abbyy-technology/"><u>Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70%% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-into-intelligent-search-with-bing-quick-registration/"><u>Step Into Intelligent Search with Bing: Quick Registration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-big-four-in-online-interaction-connect-and-engage-on-facebook-twitter-instagram-and-youtube/"><u>The Big Four in Online Interaction: Connect and Engage on Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-12-solutions-to-decipher-and-display-hidden-video-posts-on-fb-for-2024/"><u>[New] Top 12 Solutions to Decipher and Display Hidden Video Posts on FB for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-12-proplus-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme 12 Pro+ 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723010049280-say-goodbye-to-stray-crash-error-on-windows-discover-6-reliable-fixes/"><u>Say Goodbye to Stray Crash Error on Windows - Discover 6 Reliable Fixes!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-up-your-game-secure-your-intel-z270-gaming-pro-carbon-drivers-here-for-free/"><u>Step-Up Your Game: Secure Your Intel Z270 Gaming Pro Carbon Drivers Here for FREE</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-honor-100-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Honor 100 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
+

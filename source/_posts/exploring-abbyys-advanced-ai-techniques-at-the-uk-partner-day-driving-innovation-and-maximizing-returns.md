@@ -1,28 +1,16 @@
 ---
 title: Exploring ABBYY's Advanced AI Techniques at the UK Partner Day – Driving Innovation and Maximizing Returns
-date: 2024-09-08T23:43:59.473Z
-updated: 2024-09-09T23:43:59.473Z
+date: 2024-09-13T19:39:38.610Z
+updated: 2024-09-14T17:33:58.230Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7c07b94a0d6b31286cb181ffa8593e2e10d0215534d64f40b8e2e1bab83a4ee.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Exploring ABBYY's Advanced AI Techniques at the UK Partner Day – Driving Innovation and Maximizing Returns
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY’s UK Partner Day Highlights Innovation and ROI Using AI
 
 April 23, 2024
@@ -37,18 +25,6 @@ Despite some claims that intelligent document processing (IDP) is obsolete, Max 
 
 **![abbyy-uk-partner-day-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_1.jpg)** 
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### How the NHS found success with ABBYY Vantage and Extra Technology 
 
 Extra Technology showcased the transformative power of [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), for fully automating invoice processing and reducing payment risk at the Manchester NHS Trust, where thousands of different types of invoices are processed a year. With ABBYY’s continuous machine learning capabilities, post-processing and data validation, invoicing times were significantly reduced, freeing up staff to focus on other business-critical areas and yielding cost-savings in the millions. 
@@ -61,12 +37,6 @@ Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation 
 
 **![abbyy-uk-partner-day-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_3.jpg)** 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### How to streamline freight processes with ABBYY 
 
 Intelligent document processing (IDP) can have tremendous positive impact for transportation and logistics organizations. In the intricate world of supply chain, the movement of freight relies heavily on paperwork. Each cross-border transaction demands an average of 36 documents, yet shockingly, less than one percent of these vital papers are digitized. With a staggering 50 million bills of lading issued annually, and a mere two percent being electronic, it's evident that the industry's reliance on paper documentation persists, echoing practices dating back decades. 
@@ -103,18 +73,6 @@ _Subscribe to stay connected with email updates and thought leadership insights 
 
 ![Dan Corp](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/autors-headshots/dan_corp.png)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Dan Corp
 
 Senior Partner Manager UK & Ireland at ABBYY
@@ -171,8 +129,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -182,59 +138,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>[New] 2024 Approved  From Selfie to Sensation  Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-best-value-video-meeting-applications-compatible-with-both-windowsmac/"><u>[New] Best Value Video Meeting Applications  Compatible with Both Windows/MAC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-channeling-changes-transition-to-youtubes-updated-membership-model-for-2024/"><u>[New] Channeling Changes  Transition to YouTube's Updated Membership Model for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-achieve-professional-level-audio-quality-on-youtube/"><u>[New] In 2024, How to Achieve Professional-Level Audio Quality on YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-top-5-secure-methods-to-maximize-instagram-earnings/"><u>[New] In 2024, Top 5 Secure Methods to Maximize Instagram Earnings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-analyzing-channels-monetization-status-at-a-glance/"><u>[Updated] 2024 Approved  Analyzing Channels  Monetization Status at a Glance</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-audio-recording-solutions-for-educators-using-apple-products/"><u>[Updated] Audio Recording Solutions for Educators Using Apple Products</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebooks-top-10-most-watched-music-moments/"><u>[Updated] In 2024, Facebook's Top 10 Most-Watched Music Moments</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-interactive-content-platform-audit-and-rating/"><u>[Updated] Interactive Content Platform Audit & Rating</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-record-android-internal-sound-4-non-root-methods-for-2024/"><u>[Updated] Record Android Internal Sound  4 Non-Root Methods for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/13-ways-to-fix-spotify-not-working-on-android-auto/"><u>13 Ways to Fix Spotify Not Working on Android Auto</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1998-true-crime-with-eastwood-as-jim-keane-a-former-detective-who-becomes-the-prime-suspect-in-the-murder-of-an-old-friend-and-now-tries-to-solve-his-own-ca274/"><u>1998 - True Crime, with Eastwood as Jim Keane, a Former Detective Who Becomes the Prime Suspect in the Murder of an Old Friend and Now Tries to Solve His Own Case. The Film Was Based on Andrew Klavan's Novel ''True Crime.'</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-wallet-friendly-skies-cheapest-drones-to-fly/"><u>2024 Approved  Wallet-Friendly Skies  Cheapest Drones to Fly</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-premier-smart-automation-ally-for-the-arsenal-ladies-team/"><u>ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-showcase-innovative-solutions-for-smart-data-entry-and-boosting-productivity-with-digitized-documents-march-14th-march-18th/"><u>ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-exclusive-online-demo-combining-flexicapture-features-with-timeline-for-enhanced-data-processing/"><u>ABBYY's Exclusive Online Demo: Combining FlexiCapture Features with Timeline for Enhanced Data Processing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-guide-to-advanced-bi-and-process-mining-strategies-unlocking-insights-with-e-book/"><u>ABBYY's Guide to Advanced BI and Process Mining Strategies: Unlocking Insights with E-Book</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-ringtones-roundup-essential-sites-for-2024/"><u>Best Ringtones Roundup  Essential Sites for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-traffic-using-cutting-edge-cookiebot-solutions/"><u>Boost Your Site's Traffic Using Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/chinas-welcome-mat-laid-out-as-micron-announces-major-expansion-following-localized-memory-chip-restrictions/"><u>China's Welcome Mat Laid Out as Micron Announces Major Expansion Following Localized Memory Chip Restrictions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-site-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Site: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/demystifying-the-purpose-of-hugging-face/"><u>Demystifying the Purpose of Hugging Face</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/executive-strategies-overcoming-obstacles-in-artificial-intelligence/"><u>Executive Strategies: Overcoming Obstacles in Artificial Intelligence</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-realme-narzo-60-pro-5g-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Realme Narzo 60 Pro 5G</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oppo-find-x6-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Oppo Find X6 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-realme-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Realme ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-your-sites-potential-with-the-advanced-tracking-of-cookiebot-solutions/"><u>Leverage Your Site's Potential with the Advanced Tracking of Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mariko-maeda-takes-the-helm-at-abbyy-japan-with-vision-for-continued-growth-in-japanese-markets/"><u>Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marketing-mastery-unleashed-exploring-the-impact-of-advanced-bot-solutions/"><u>Marketing Mastery Unleashed: Exploring the Impact of Advanced Bot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/precision-marketing-via-innovative-cookie-based-analytics-tools/"><u>Precision Marketing via Innovative Cookie-Based Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/reigniting-the-social-sphere-how-to-amplify-instagram-activity-for-2024/"><u>Reigniting the Social Sphere  How to Amplify Instagram Activity for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-an-in-depth-look-at-huawei-p10s-audio-experience/"><u>[New] An In-Depth Look at Huawei P10's Audio Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-live-the-future-with-mycam-video-recording-revolution/"><u>[New] Live the Future with MyCam Video Recording Revolution</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compact-guide-to-top-5-apps-for-picture-plus-sound-blend-for-2024/"><u>Compact Guide to Top 5 Apps for Picture + Sound Blend for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/decode-and-solve-understanding-and-rectifying-error-87-while-loading-libraries/"><u>Decode and Solve: Understanding and Rectifying Error 87 While Loading Libraries</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-motorola-moto-g24mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Motorola Moto G24Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-in-depth-analysis-of-best-no-fee-livestream-options-on-all-devices/"><u>In 2024, In-Depth Analysis of Best No-Fee LiveStream Options on All Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-edge-2023-video-recovery-recover-deleted-videos-from-motorola-edge-2023-by-fonelab-android-recover-video/"><u>Motorola Edge 2023 Video Recovery - Recover Deleted Videos from Motorola Edge 2023</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

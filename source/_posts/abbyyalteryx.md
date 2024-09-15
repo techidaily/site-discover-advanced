@@ -1,40 +1,22 @@
 ---
 title: ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる
-date: 2024-09-08T23:43:58.990Z
-updated: 2024-09-09T23:43:58.990Z
+date: 2024-09-07T17:29:49.689Z
+updated: 2024-09-14T16:40:59.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYがAlteryxと提携し、高度なProcess IntelligenceによりAlteryx社のアナリティック・プロセス・オートメーション（APA）プラットフォームを拡張
 
 10月23日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_統合型のソリューションを通じてデジタルトランスフォーメーションの主要なイニシアチブを加速_**
 
   
@@ -114,8 +96,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -125,48 +105,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/omprehensive-instructions-for-disposing-of-video-downloads/"><u>[New] Comprehensive Instructions for Disposing of Video Downloads</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ideal-3d-software-for-creating-animation/"><u>[New] Ideal 3D Software for Creating Animation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-making-waves-in-the-social-media-world-via-fb/"><u>[New] In 2024, Making Waves in the Social Media World via FB</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-bring-your-gslides-to-life-with-youtube-media/"><u>[Updated] Bring Your GSlides to Life with YouTube Media</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-outsmart-youtube-sanctions/"><u>[Updated] How to Outsmart Youtube Sanctions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-guide-to-uploading-impeccable-content-on-youtube/"><u>[Updated] The Ultimate Guide to Uploading Impeccable Content on YouTube</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-cinematic-trailer-collection/"><u>2024 Approved  Ultimate Cinematic Trailer Collection</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-potential-of-onestream-live-streaming/"><u>2024 Approved  Unlocking the Potential of OneStream Live Streaming</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-ai-ocr-rpa/"><u>伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-oppo-a1x-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Oppo A1x 5G</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-ascendant-a-la-tete-de-son-equipe-avec-lannonce-de-neil-murphy-comme-nouvel-chief-sales-officer/"><u>ABBYY Ascendant À La Tête De Son Équipe Avec L'annonce De Neil Murphy Comme Nouvel Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-compreno-crowned-innovative-leader-of-2016-by-kmworld-magazine/"><u>ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-drives-rochling-towards-unified-financial-reporting-with-sap-integration/"><u>ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-study-reveals-rising-employee-resignation-thoughts-amidst-poor-business-processes-during-covid-19-crisis/"><u>ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-digital-intelligence-celebrated-as-a-groundbreaking-innovation-of-the-year-2020/"><u>ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyynelsonhall2020/"><u>ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/adapting-financial-management-tactics-to-navigate-todays-new-normal-proven-approaches/"><u>Adapting Financial Management Tactics to Navigate Today's 'New Normal': Proven Approaches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/anthony-macciola-abbyys-leading-visionary-as-chief-innovation-officer/"><u>Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-websites-analytics/"><u>Automated User Tracking with Cookiebot: Enhancing Your Website's Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-seamless-and-efficient-web-tracking/"><u>Automated with CookieBot: Seamless and Efficient Web Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-streamlining-your-websites-user-experience/"><u>Automated with Cookiebot: Streamlining Your Website's User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automatische-erfassung-von-rechnungen-mit-abbyy-bei-der-deurag-hotel-holding-gmbh/"><u>Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-digital-footprint-effortlessly-using-cookiebot-technology-for-superior-seo-results/"><u>Boost Your Digital Footprint Effortlessly Using Cookiebot Technology for Superior SEO Results</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
-<li><a href="https://win-forum.techidaily.com/complete-instructions-to-automatically-launch-apps-with-admin-authority-in-windows-11/"><u>Complete Instructions to Automatically Launch Apps with Admin Authority in Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/download-youtube-snippets-with-perfection/"><u>Download YouTube Snippets with Perfection</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-backward-glance-decoding-youtube-video-reversals/"><u>In 2024, Backward Glance  Decoding YouTube Video Reversals</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c67-4g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme C67 4G Phone without Any Data Loss</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media/"><u>In 2024, Livestream Leaders' Guide  Elevating Pre-Recorded Videos on Social Media</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-a34-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy A34 5G Device</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/maximizing-engagement-with-instagrams-ask-emoji/"><u>Maximizing Engagement with Instagram's Ask Emoji</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-optimization-for-deathloop-gamers-eliminate-stutter-and-enjoy-seamless-play/"><u>PC Optimization for Deathloop Gamers: Eliminate Stutter and Enjoy Seamless Play</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/ppt-presentations-merging-audio-and-imagery-fluently-for-2024/"><u>PPT Presentations  Merging Audio & Imagery Fluently for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ultimate-fix-guide-eliminating-red-dead-redemption-2-game-crashes-on-windows/"><u>Ultimate Fix Guide: Eliminating Red Dead Redemption 2 Game Crashes on Windows</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://techidaily.com/what-to-do-if-iphone-7-plus-is-not-listed-when-i-run-the-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What to do if iPhone 7 Plus is not listed when I run the software? | Stellar</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-halt-predicted-posts-no-more-suggests-on-insta/"><u>2024 Approved Halt Predicted Posts No More Suggests on Insta</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/advanced-ios-file-recovery-tool-protect-and-restore-iphone-data-instantly-shop-today/"><u>Advanced iOS File Recovery Tool: Protect and Restore iPhone Data Instantly – Shop Today</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/discover-improvements-and-new-capabilities-with-abbyys-released-flexicapture-v2-upgrade/"><u>Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-sound-blaster-z-drivers-compatible-with-windows-11-free/"><u>Download Sound Blaster Z Drivers Compatible with Windows 11 - FREE</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-seamlessly-switch-dall-e-3-creations-from-webp-to-jpegpng-a-beginners-approach/"><u>How to Seamlessly Switch DALL-E 3 Creations From WebP to JPEG/PNG - A Beginner's Approach</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-through-next-level-advertising-tools-provided-by-cookiebot/"><u>Optimized Through Next-Level Advertising Tools Provided by Cookiebot</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/top-7-tiktok-emojis-and-unveiling-hidden-tiktok-charms-for-2024/"><u>Top 7 TikTok Emojis & Unveiling Hidden TikTok Charms for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-recommended-asmrists-for-nighttime-calmness/"><u>Top Recommended ASMRists for Nighttime Calmness</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

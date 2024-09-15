@@ -1,46 +1,22 @@
 ---
 title: "Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt"
-date: 2024-09-08T23:43:58.699Z
-updated: 2024-09-09T23:43:58.699Z
+date: 2024-09-10T21:04:08.714Z
+updated: 2024-09-14T18:22:35.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751591496c468d996da741d28a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY unterstützt Rezeptprüfstelle Duderstadt bei der Verarbeitung von Formularen für Krankenkassen
 
 13\. Januar 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, unterstützt jetzt die Rezeptprüfstelle Duderstadt GmbH (RPD) bei der Verarbeitung von Formularen für die Abrechnung von medizinischen Sachleistungen. Mithilfe der ABBYY Lösung digitalisiert der [Business Process Outsourcer (BPO)](https://www.abbyy.com/de/company/news/abbyy-unterstuetzt-rezeptpruefstelle-duderstadt-bei-der-verarbeitung-von-formularen-fuer-krankenkassen/# "BPOs und Outsourcing Dienstleister") die Papier-Formulare, extrahiert die Daten und wertet sie nach den Anforderungen seines Auftraggebers aus. Dank ABBYY konnte der Prozess weiter automatisiert und deutlich effizienter gestaltet werden.
 
 Die RPD bietet Krankenkassen und deren Verbänden im Rahmen ihres Auftrags Outsourcing-Dienstleistungen in den Bereichen Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten mit Datenaufbereitung sowie IT-Beratung an. Der BPO übernimmt dabei die Digitalisierung und Datenaufbereitung für verschiedene Krankenkassen. Zur optimierten Erfassung von Formularen nutzt die RPD jetzt ABBYY FlexiCapture. Um eine effiziente und transparente Verarbeitung zu ermöglichen, werden die Daten aus den Formularen mithilfe von ABBYYs Erfassungslösung automatisch extrahiert und direkt an die eigene Spezialsoftware der RPD übergeben. Dadurch können die Informationen schneller geprüft und aufbereitet werden. Dank der leistungsstarken ABBYY Funktionalitäten, unter anderem zur Sprachenerkennung, konnte die Lösung während der Testphase exakt für die verschiedenen Formular-Sprachen und Layouts trainiert werden. Die Erfassungslösung ersetzt hierbei die aufwendige manuelle Dateneingabe. Die RPD profitiert mit dem Einsatz von ABBYY nun von modernisierten und rationalisierten Prozessen.
@@ -56,12 +32,6 @@ ABBYY Europe ist ein Mitglied der ABBYY Gruppe und verantwortet Vertrieb und Mar
 
 _ABBYY, das ABBYY Logo, ADRT, FineReader, FlexiCapture und FlexiLayout sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber._
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über die Rezeptprüfstelle Duderstadt GmbH
 
 Die Rezeptprüfstelle Duderstadt GmbH wurde 1948 als Familienunternehmen gegründet und ist ein moderner Dienstleister für Krankenkassen und deren Verbände. Im Rahmen des zulässigen Outsourcings übernimmt die RPD verschiedenste Aufgabenbereiche, um die Krankenkassen bei der Durchführung ihrer Aufgaben zu unterstützen, darunter die Arzneimittelabrechnung, Abrechnung Sprechstundenbedarf, Erfassungsarbeiten einschließlich Datenaufbereitung sowie IT-Beratung. Für effiziente, transparente und rechtskonforme Abläufe in den Abrechnungs- und Prüfsystemen setzt die RPD eigene Softwarelösungen ein.
@@ -94,8 +64,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -105,44 +73,28 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-beginners-tutorial-setting-up-your-youtube-presence-for-2024/"><u>[New] Beginner's Tutorial  Setting Up Your YouTube Presence for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-enrich-user-experience-on-stories-via-interactive-qandas/"><u>[New] Enrich User Experience on Stories via Interactive Q&As</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-in-depth-look-10-must-have-terraria-mods/"><u>[New] In 2024, In-Depth Look  10 Must-Have Terraria Mods</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-streamlining-workflow-efficient-tools-for-screencast-creation/"><u>[New] In 2024, Streamlining Workflow  Efficient Tools for Screencast Creation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-transformations-unlocked-the-2-most-effective-ways-to-convert-video/"><u>[New] Transformations Unlocked  The 2 Most Effective Ways to Convert Video</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ultimate-guide-to-documenting-your-ps4-journey-for-2024/"><u>[New] Ultimate Guide to Documenting Your PS4 Journey for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-capturing-adventures-a-close-look-at-panasonics-hx-a1/"><u>[Updated] 2024 Approved  Capturing Adventures  A Close Look at Panasonic's HX-A1</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-cross-platform-strategies-for-maximum-instagram-exposure/"><u>[Updated] 2024 Approved  Cross-Platform Strategies for Maximum Instagram Exposure</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-seamless-quick-conversions-best-free-tools-transforming-gif-for-2024/"><u>[Updated] Seamless, Quick Conversions  Best Free Tools Transforming GIF for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-mastering-film-capture-on-mac-pc-and-smartphones/"><u>2024 Approved  Mastering Film Capture on Mac, PC & Smartphones</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-announces-chip-vonburgs-appointment-to-chief-of-strategic-customer-growth-initiatives/"><u>ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-groups-leadership-addresses-covid-1eb-concerns-with-a-formal-declaration-by-ulf-persson-ceo/"><u>ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-top-contender-in-the-2024-gartner-magic-quadrant-excellence-in-process-mining-solutions/"><u>ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-welcomes-weronika-niemczyk-to-lead-human-resources-as-new-c-level-executive/"><u>ABBYY Welcomes Weronika Niemczyk to Lead Human Resources as New C-Level Executive</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/accelerate-digital-marketing-success-with-our-cookiebot-solution/"><u>Accelerate Digital Marketing Success with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-analytics-driven-by-the-latest-web-pixel-innovation/"><u>Advanced Analytics Driven by the Latest Web Pixel Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automate-with-cookiebot-enhance-your-sites-user-experience/"><u>Automate with Cookiebot: Enhance Your Site's User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-traffic-generation-with-cookiebot-technology/"><u>Automated Traffic Generation with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/carlsberg-utilise-abpyy-pour-raccourcir-le-processus-de-commercialisation-de-ses-offres/"><u>Carlsberg Utilise ABPyy Pour Raccourcir Le Processus De Commercialisation De Ses Offres</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-marketing-solutions-enhance-your-seo-strategies/"><u>Cookiebot-Driven Marketing Solutions: Enhance Your SEO Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-seo-with-leading-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site's SEO with Leading Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-websites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimize-your-sites-performance-and-user-experience/"><u>Cookiebot-Enabled: Optimize Your Site's Performance and User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/die-ultimative-finanzfuhrersache-erfahrungen-und-tipps-von-deutschlands-spitzentransparente-auf-der-abbyy-konferenz-2016/"><u>Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/discover-improvements-and-new-capabilities-with-abbyys-released-flexicapture-v2-upgrade/"><u>Discover Improvements and New Capabilities with ABBYY's Released FlexiCapture v2 Upgrade</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-apple-iphone-13-pro-max-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 13 Pro Max System? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/overcoming-driver-verifier-errors-bsod-fixes-for-windows-10-users-complete-guide/"><u>Overcoming Driver Verifier Errors: BSOD Fixes for Windows 10 Users [COMPLETE GUIDE]</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/prime-day-exclusive-deals-save-big-on-high-quality-benq-monitors-and-projectors/"><u>Prime Day Exclusive Deals: Save Big on High-Quality BenQ Monitors & Projectors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-rising-riches-of-a-kid-star-ryans-income-insights/"><u>[New] 2024 Approved The Rising Riches of a Kid Star Ryan's Income Insights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028791479-mp4/"><u>「MP4など動画のアスペクト比変更手順の詳細ガイド」</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-insightful-guide-on-the-best-gopro-headsets-6-and-beyond/"><u>2024 Approved Insightful Guide on The Best GoPro Headsets #6 & Beyond</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/6-most-used-4k-youtube-converters-to-compare-for-2024/"><u>6 Most-Used 4K YouTube Converters to Compare for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-and-download-updated-sound-driver-packs-compatible-with-windows-os/"><u>Find and Download Updated Sound Driver Packs Compatible with Windows OS</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-11-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 11 Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-footage-select-best-gimbals-and-handhelds-guide-for-2024/"><u>Mastering Footage Select Best Gimbals & Handhelds Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-breakdown-of-netflixs-top-tier-video-on-demand-platform/"><u>The Ultimate Breakdown of Netflix's Top-Tier Video on Demand Platform</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-vivo-y78t-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Vivo Y78t.</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

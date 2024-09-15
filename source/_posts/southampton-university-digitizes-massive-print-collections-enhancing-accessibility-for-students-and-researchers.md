@@ -1,7 +1,7 @@
 ---
 title: Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers
-date: 2024-09-03T22:50:24.524Z
-updated: 2024-09-04T22:50:24.524Z
+date: 2024-09-12T16:01:41.523Z
+updated: 2024-09-14T20:49:50.518Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7857315bad256fdc5741086fa363d0007b6f6fca6b50e61093052da5a00ac70.jpg
@@ -23,42 +23,19 @@ Education/Research
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 329 kb)](https://static4.abbyy.com/abbyycommedia/10189/cs-unisouthampton-rs-f.pdf) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Contexte
 
 ![](https://tools.techidaily.com/abbyy/products/)La bibliothèque de l’université de Southampton accueille environ 35 000 étudiants et membres de son personnel. Elle offre un accès à une très vaste collection de qualité supérieure : 1,5 millions de livres et plusieurs millions de pages de documents d’archive. La bibliothèque s’est récemment lancée dans un programme de numérisation d’un nombre important de textes clés via l’Unité de numérisation de bibliothèques (LDU, Library Digitisation Unit). La LDU est une opération phare dans le secteur de l’éducation et se spécialise dans la capture numérique d’un large éventail de documents pour les référentiels ou la distribution sur Internet via des liens du catalogue de la bibliothèque. La démarche de la bibliothèque universitaire consiste à offrir un accès complet aux documents numériques qu’elle crée, chaque fois que cela est possible et autorisé.
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY FineReader, un produit logiciel conçu pour la numérisation et la numérisation ad-hoc, a été utilisé par la bibliothèque pendant un certain nombre d’années pour numériser une petite quantité de pages, et occasionnellement l’intégralité de livres. Ce programme est aussi utilisé pour la reconnaissance de texte et la reconnaissance optique de caractères (OCR, optical character recognition). La bibliothèque s’est rapidement rendue compte que pour automatiser le processus OCR, avec un rendement élevé, et atteindre son objectif, qui est de numériser un demi-million de pages par an, elle aurait besoin d’un produit plus robuste et capable de traiter automatiquement d’importants volumes de documents.
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Solution
 
 Pour trouver une solution permettant de traiter les documents imprimés, de les convertir en formats interrogeables, tels que le PDF et le PDF/A, et de numériser la création d’archives ou de dossiers, la bibliothèque a examiné diverses options disponibles sur le marché. Les critères suivants ont été examinés pour un certain nombre de produits: rapidité et qualité de l’OCR, gamme de formats et de compressions à l’exportation et possibilité d’intégrer des API/workflows. Après avoir examiné un certain nombre de produits, la bibliothèque a sélectionné ABBYY Recognition Server comme solution la plus performante.
@@ -82,18 +59,6 @@ D’autres projets internes incluent:
 
 **La collection Richard Rutt:** une collection de livres de tricot datant du 19ème siècle provenant de la bibliothèque de références artistiques de l’école Winchester a été numérisée et mise à disposition sous la forme de fichiers PDF interrogeables via Internet.
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="960" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 La reconnaissance optique de caractères puissante et précise est une partie intégrante des activités de l’unité de numérisation de bibliothèques. Grâce à l’augmentation de la production engendrée par ABBYY Recognition Server, le personnel de la bibliothèque est libéré du travail ennuyeux que constitue l’OCR manuel. Des millions de pages de documents provenant de la collection de l’université de Southampton sont disponibles en ligne dans des formats numériques pour les étudiants et pour le reste du monde.
@@ -102,18 +67,6 @@ La réussite de la numérisation peut également être attribuée à la soupless
 
 « L’installation d’ABBYY Recognition Server a été rapide. Les premières réponses d’ABBYY et de leurs équipes de support vis-à-vis de toutes les questions posées ont été rapides, avec un suivi de bonne qualité. Nous avons été très satisfaits des résultats et nous avons hâte d’utiliser le produit pour continuer à remplir nos objectifs en termes de numérisation. »
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## À propos de l’université de Southampton
 
 L’unité de numérisation de bibliothèques de l’université de Southampton propose  
@@ -123,6 +76,13 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu)
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## À propos d’ABBYY et contact
 
 [Vers la description d’ABBYY ›](https://tools.techidaily.com/abbyy/products/)
@@ -131,12 +91,6 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu)
 
 Partager 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.
@@ -149,8 +103,6 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -160,45 +112,19 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-getting-started-with-pro-level-youtube-tech/"><u>[Updated] Getting Started with Pro-Level YouTube Tech</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-from-airwaves-to-archives-online-recording-strategies-for-tv-shows/"><u>[Updated] In 2024, From Airwaves to Archives  Online Recording Strategies for TV Shows</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-insider-guide-to-gopro-wizardry/"><u>2024 Approved  Insider Guide to GoPro Wizardry</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-newcomers-guide-to-youtube-channel-setup-and-money-making-tips/"><u>2024 Approved  The Newcomer’s Guide to YouTube  Channel Setup & Money-Making Tips</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-nubia-red-magic-8s-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Nubia Red Magic 8S Pro? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-messages-from-apple-iphone-14-plus-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Messages from Apple iPhone 14 Plus to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dual-linguistic-learning-pathway/"><u>Dual Linguistic Learning Pathway</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-improved-behavioral-analytics-through-cookiebot-solutions/"><u>Experience Improved Behavioral Analytics Through Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-subcontracting-solutions-for-enhancing-abbyy-software-offerings/"><u>Expert Subcontracting Solutions for Enhancing ABBYY Software Offerings</u></a></li>
-<li><a href="https://win-answers.techidaily.com/game-changer-alert-solving-the-dark-souls-iii-unwanted-reboots-challenge/"><u>Game-Changer Alert: Solving the Dark Souls III Unwanted Reboots Challenge</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-samsung-galaxy-s23-fe-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Samsung Galaxy S23 FE Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-15-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 15 Video to Computer? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/idc-worldwide-market-review-top-intelligent-document-management-software-providers-assessed-2-2024-cycle/"><u>IDC Worldwide Market Review: Top Intelligent Document Management Software Providers Assessed –2# - 2024 Cycle</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-apple-iphone-x-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on Apple iPhone X</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/in-2024-auditory-alteration-made-easy-two-paths-to-revamping-sound-in-visual-media/"><u>In 2024, Auditory Alteration Made Easy Two Paths to Revamping Sound in Visual Media</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-apple-iphone-8-plus-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 8 Plus Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-elevate-video-performance-following-the-path-of-stars/"><u>In 2024, Elevate Video Performance  Following the Path of Stars</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ki-gesteuerte-rechnungsverwaltung-die-zukunft-der-buchhaltung-mit-intelligenter-technologie/"><u>KI-Gesteuerte Rechnungsverwaltung - Die Zukunft Der Buchhaltung Mit Intelligenter Technologie</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-for-superior-website-analytics/"><u>Leverage the Power of Cookiebot for Superior Website Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-your-sites-potential-with-the-advanced-tracking-of-cookiebot-solutions/"><u>Leverage Your Site's Potential with the Advanced Tracking of Cookiebot Solutions</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/logitech-webcam-and-microphone-problem-a-step-by-step-repair-guide/"><u>Logitech Webcam & Microphone Problem: A Step-by-Step Repair Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mariko-maeda-takes-the-helm-at-abbyy-japan-with-vision-for-continued-growth-in-japanese-markets/"><u>Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marketing-mastery-unleashed-exploring-the-impact-of-advanced-bot-solutions/"><u>Marketing Mastery Unleashed: Exploring the Impact of Advanced Bot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/quickly-create-a-youtube-animation-for-your-subscribe-button-with-filmora-for-2024/"><u>Quickly Create a YouTube Animation for Your Subscribe Button with Filmora for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-next-level-video-editing-the-ultimate-guide-to-cool-effects-for-2024/"><u>Updated Next-Level Video Editing The Ultimate Guide to Cool Effects for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-click-to-chatter-turning-titles-into-talk-on-fb/"><u>[New] 2024 Approved From Click to Chatter Turning Titles Into Talk on FB</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elite-zoonotic-pattern-compendium/"><u>[New] Elite Zoonotic Pattern Compendium</u></a></li>
+<li><a href="https://media-tips.techidaily.com/convert-your-vob-videos-for-free-discover-the-leading-8-converters-for-quick-mpg-conversion-online/"><u>Convert Your VOB Videos for Free: Discover the Leading 8 Converters for Quick MPG Conversion Online</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-engagement-using-cookiebot-powered-tools/"><u>Drive Engagement Using Cookiebot-Powered Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-optimize-your-site-using-cookiebot-technology/"><u>Drive More Traffic: Optimize Your Site Using Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harmonize-life-with-these-essential-music-video-apps-for-2024/"><u>Harmonize Life with These Essential Music Video Apps for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-reno-11-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Oppo Reno 11 Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reddits-golden-threads-celebrating-the-highest-rated-posts/"><u>In 2024, Reddit's Golden Threads Celebrating the Highest-Rated Posts</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/toothpaste-wont-fix-your-skip-along-dvd-learn-effective-alternatives-for-optimal-playback/"><u>Toothpaste Won't Fix Your Skip-Along DVD: Learn Effective Alternatives for Optimal Playback</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/understanding-and-resolving-pointer-headers-errors-in-windows-10-8-and-7/"><u>Understanding & Resolving Pointer Headers Errors in Windows 10, 8, and 7</u></a></li>
 </ul></div>
+

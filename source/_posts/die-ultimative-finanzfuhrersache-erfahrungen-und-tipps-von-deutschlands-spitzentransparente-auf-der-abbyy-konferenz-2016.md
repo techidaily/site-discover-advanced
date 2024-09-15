@@ -1,40 +1,22 @@
 ---
 title: "Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016"
-date: 2024-09-08T23:44:00.177Z
-updated: 2024-09-09T23:44:00.177Z
+date: 2024-09-08T23:26:14.642Z
+updated: 2024-09-14T19:55:52.939Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ffcad7f48962d75f242ed7b8339741a057dbb535926e2709bec686a6dd167dd4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Die Ultimative Finanzführersache: Erfahrungen Und Tipps Von Deutschlands Spitzentransparente Auf Der ABBYY-Konferenz 2016
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## StrategieTage Finance 2016 – ABBYY auf dem Spitzentreffen deutscher CFOs
 
 11\. Februar 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, berät Finanzvorstände namhafter Unternehmen vom 17\. – 18\. Februar auf Schloss Bensberg zum Thema [automatische Kreditorenbuchhaltung](https://tools.techidaily.com/abbyy/products/). Auch in diesem Jahr diskutieren deutsche CFOs auf den StrategieTagen Finance wieder die Zukunft von Finanzabteilungen. Neben den Finanzvorständen bekannter Unternehmen wie Nordzucker, ThyssenKrupp oder Universal Music sind auch prominente Gastredner aus der Politik eingeladen - unter anderem Dr. Michel Friedmann und Dr. Gregor Gysi.
 
 „Wir freuen uns darauf, die Automatisierung der Prozesse in und um die Kreditorenbuchhaltung mit führenden Vertretern aus Politik und Wirtschaft zu diskutieren“, sagt Markus Pichler, Director Business Unit Solutions der ABBYY Europe. „Dass sich Lösungen zum Rechnungseingang lohnen, zeigen Projekte wie das [Rechnungseingangsprojekt der Rhenus Assets & Services](https://tools.techidaily.com/abbyy/products/).“ 
@@ -78,8 +60,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -89,52 +69,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-sharpening-recording-quality-by-removing-borders/"><u>[New] 2024 Approved  Sharpening Recording Quality by Removing Borders</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-high-paying-creator-status-on-youtube/"><u>[New] High-Paying Creator Status on YouTube</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-navigating-the-world-of-youtube-product-endorsements/"><u>[New] Navigating the World of YouTube Product Endorsements</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-real-time-engagement-proven-strategies-for-facebook-video-screen-sharing/"><u>[New] Real-Time Engagement  Proven Strategies for Facebook Video Screen Sharing</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-unmatched-downloader-transform-your-tiktok-to-mp4-effortlessly/"><u>[New] Unmatched Downloader  Transform Your TikTok to MP4 Effortlessly</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-leading-vr-accessories-the-top-10-countdown/"><u>[Updated] Leading VR Accessories  The Top 10 Countdown</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster/"><u>2024 Approved  A Detailed Tutorial On How To Use Green Screen In Kinemaster</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-tutorial-on-powerpoint-voice-to-text-conversion/"><u>A Comprehensive Tutorial on PowerPoint Voice to Text Conversion</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-premier-smart-automation-ally-for-the-arsenal-ladies-team/"><u>ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-showcase-innovative-solutions-for-smart-data-entry-and-boosting-productivity-with-digitized-documents-march-14th-march-18th/"><u>ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-exclusive-online-demo-combining-flexicapture-features-with-timeline-for-enhanced-data-processing/"><u>ABBYY's Exclusive Online Demo: Combining FlexiCapture Features with Timeline for Enhanced Data Processing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-guide-to-advanced-bi-and-process-mining-strategies-unlocking-insights-with-e-book/"><u>ABBYY's Guide to Advanced BI and Process Mining Strategies: Unlocking Insights with E-Book</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-traffic-using-cutting-edge-cookiebot-solutions/"><u>Boost Your Site's Traffic Using Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comparing-giants-how-does-googles-newly-launched-gemini-stack-up-against-the-acclaimed-chatgpt/"><u>Comparing Giants: How Does Google's Newly Launched Gemini Stack Up Against the Acclaimed ChatGPT?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-site-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Site: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/executive-strategies-overcoming-obstacles-in-artificial-intelligence/"><u>Executive Strategies: Overcoming Obstacles in Artificial Intelligence</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Pro Without Passcode?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-macs-prime-screen-seize-collection-max-156/"><u>In 2024, Mac's Prime Screen Seize Collection (Max 156)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/innovative-zooid-conceptual-models/"><u>Innovative Zooid Conceptual Models</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marketing-mastery-unleashed-exploring-the-impact-of-advanced-bot-solutions/"><u>Marketing Mastery Unleashed: Exploring the Impact of Advanced Bot Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/master-the-art-of-wholesome-eating-design-a-personalized-meal-guide-via-chatgpt/"><u>Master the Art of Wholesome Eating: Design a Personalized Meal Guide via ChatGPT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://win11.techidaily.com/microsoft-store-fixes-handling-error-code-0x80072f17/"><u>Microsoft Store Fixes: Handling Error Code 0X80072F17</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/precision-marketing-via-innovative-cookie-based-analytics-tools/"><u>Precision Marketing via Innovative Cookie-Based Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-gaming-giants-tussle-with-video-powerhouse-youtube/"><u>The Gaming Giant's Tussle with Video Powerhouse YouTube</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-choosing-your-stream-obs-or-twitch-studio/"><u>[New] 2024 Approved Choosing Your Stream OBS or Twitch Studio?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-secrets-of-filmo/"><u>[Updated] Secrets of Filmo</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/10-shopping-powerhouses-where-to-buy-personalized-present-wrappers/"><u>10 Shopping Powerhouses Where to Buy Personalized Present Wrappers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-personalization-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated Personalization: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/elevate-your-feed-with-these-507-killer-instagram-captions-of-2024/"><u>Elevate Your Feed with These 507 Killer Instagram Captions of 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-distribution-network-through-cutting-edge-rpa-and-intelligent-scanning-technology/"><u>Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-plus-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 Plus without Losing Any Content? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oneplus-ace-2-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from OnePlus Ace 2 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-realme-c55-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Realme C55 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-what-is-behind-the-blue-icon-that-graces-your-messenger-chat-window/"><u>In 2024, What Is Behind the Blue Icon that Graces Your Messenger Chat Window?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-review-for-garmin-venu-mastering-247-health-and-exercise-insights/"><u>The Ultimate Review for Garmin Venu - Mastering 24/7 Health and Exercise Insights</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,24 +1,12 @@
 ---
 title: "Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier"
-date: 2024-09-08T23:43:58.257Z
-updated: 2024-09-09T23:43:58.257Z
+date: 2024-09-09T22:20:37.812Z
+updated: 2024-09-14T17:18:55.590Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f301e5bf6586c75f1b0b08c5ac.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
@@ -29,20 +17,8 @@ thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f30
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Conference3](https://static1.abbyy.com/abbyycommedia/33731/news-conference3.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 À l’occasion du salon Solutions, [DOXIO](http://www.doxio.com/), un leader de la gestion documentaire et [ABBYY](https://tools.techidaily.com/abbyy/products/), un éditeur de logiciel mondialement reconnu, révèlent ce jour la signature d’un partenariat stratégique. Cette collaboration vise à combiner l'expertise de DOXIO en matière de gestion de bout en bout des processus documentaires et la puissante solution logicielle nouvelle génération de Traitement Intelligent des Documents (IDP) d'ABBYY, ABBYY Vantage afin de faire entrer la gestion documentaire dans une nouvelle ère.
 
 "Nous sommes ravis d'adopter ABBYY Vantage comme pierre angulaire de notre stratégie de modernisation de notre outil de production documentaire. Ce choix est le fruit de l'engagement de DOXIO pour l'innovation et la qualité. La plateforme logicielle ABBYY Vantage est à la pointe de la technologie en matière de traitement de documents et nous permettra de fournir des services de gestion documentaire toujours plus performants et adaptés aux besoins de nos clients."
@@ -61,32 +37,34 @@ Avec plus de 400 clients et près de 60 millions d’euros de chiffres d’affai
 
 [www.doxio.com](http://www.doxio.com/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -101,8 +79,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,38 +88,12 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-advanced-vocal-tuners-for-android-and-ios/"><u>[New] Advanced Vocal Tuners for Android and iOS</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-educator-elite-selective-learning-yt-channels-for-2024/"><u>[New] Educator Elite  Selective Learning YT Channels for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-nights-canvas-rendered-in-hd-the-ultimate-sky-sites-list/"><u>[New] Night's Canvas Rendered in HD  The Ultimate Sky Sites List</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-top-picks-for-high-quality-game-captures/"><u>[New] The Top Picks for High-Quality Game Captures</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[Updated] In 2024, Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-igniting-online-trends-crafting-viral-facebook-posts/"><u>[Updated] In 2024, Igniting Online Trends  Crafting Viral Facebook Posts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-grid-gurus-find-the-ultimate-photo-organizing-apps/"><u>2024 Approved  Grid Gurus  Find the Ultimate Photo Organizing Apps</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/capitalizing-on-growth-streamline-revenue-management-using-abbyy-solutions/"><u>Capitalizing on Growth: Streamline Revenue Management Using ABBYY Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-se-2022-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-the-art-of-screen-enhancement-in-teams-for-2024/"><u>Mastering the Art of Screen Enhancement in Teams for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maxoak-185wh50000mah-battery-pack-review/"><u>MaxOak 185Wh/50000mAh Battery Pack Review</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/preserving-literary-heritage-digitizing-tolstoys-works-with-abbyy-technology/"><u>Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70%% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-visual-impact-expert-guide-to-crop-your-instagram-content/"><u>[New] 2024 Approved Visual Impact Expert Guide to Crop Your Instagram Content</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-realme-12-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-cookiebot-technology-for-superior-web-analytics-and-conversion-optimization/"><u>Leverage Cookiebot Technology for Superior Web Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/markus-pichler-promoted-to-vice-president-of-commercial-operations-in-europe-at-dabbyy/"><u>Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-technology-boost-online-engagement-and-insights-today/"><u>Optimized With Cookiebot Technology - Boost Online Engagement & Insights Today!</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-fixed-how-to-fix-origin-not-launching-on-windows-1011/"><u>Troubleshooting: [FIXED] How to Fix 'Origin Not Launching on Windows 10/11</u></a></li>
 </ul></div>
+
