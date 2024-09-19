@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-09-08T18:55:59.314Z
-updated: 2024-09-14T20:30:01.920Z
+date: 2024-09-15T21:56:52.967Z
+updated: 2024-09-18T18:53:04.267Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -66,27 +66,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-disable-snippet-view-in-youtube-for-full-content-for-2024/"><u>[New] Disable Snippet View in YouTube for Full Content for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-update-to-sonys-premium-blu-ray-player/"><u>2024 Approved Unveiling the Update to Sony’s Premium Blu-Ray Player</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-bargains-in-the-market-6-leading-4k-projectors-for-2024/"><u>Best Bargains in the Market 6 Leading 4K Projectors for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-site-performance-boosting-engagement-with-smart-tracking/"><u>Cookiebot-Enhanced Site Performance: Boosting Engagement with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-installation-of-epson-wf-2750-printer-drivers-quick-guide-for-windows-users/"><u>Easy Installation of Epson WF-2750 Printer Drivers: Quick Guide for Windows Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/get-ahead-an-amazing-open-source-chatbot-option-if-youre-not-holding-out-for-chatgpt-app/"><u>Get Ahead: An Amazing Open-Source Chatbot Option If You're Not Holding Out for ChatGPT App!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-zte-axon-40-lite-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of ZTE Axon 40 Lite Phone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/premium-pc-gaming-on-the-go-with-the-asus-rog-ally-x-a-comprehensive-review/"><u>Premium PC Gaming On-the-Go with the Asus ROG Ally X - A Comprehensive Review</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unlocking-the-potential-of-quantum-hdr-for-2024/"><u>Unlocking the Potential of Quantum HDR for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-download-official-msi-z370-a-pro-motherboard-drivers/"><u>Free Download: Official MSI Z370-A Pro Motherboard Drivers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-v27e-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo V27e Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-how-to-make-macbook-pro-video-tutorials-easy/"><u>In 2024, How to Make Macbook Pro Video Tutorials Easy</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-xs-max-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone XS Max to iPad? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/joke-fusion-best-meme-concepts-for-special-occasions/"><u>Joke Fusion Best Meme Concepts for Special Occasions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ts-of-sending-short-videos-to-youtube-tech-for-mobile-and-laptops/"><u>Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/seeking-access-to-all-mutually-shared-media-in-chats/"><u>Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-finding-the-ideal-video-shrinker-app-for-your-pc-in-windows/"><u>Ultimate Guide: Finding the Ideal Video Shrinker App for Your PC in Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-oppo-by-drfone-android/"><u>Universal Unlock Pattern for Oppo</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/vlog6/"><u>ユーザーから愛されるVlog動画のための編集ツールトップ6ピック</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

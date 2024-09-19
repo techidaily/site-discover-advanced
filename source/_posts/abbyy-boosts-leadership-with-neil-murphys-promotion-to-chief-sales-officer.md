@@ -1,7 +1,7 @@
 ---
 title: ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer
-date: 2024-09-11T20:48:08.456Z
-updated: 2024-09-14T20:05:01.358Z
+date: 2024-09-16T00:02:38.366Z
+updated: 2024-09-18T22:11:43.844Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg
@@ -74,20 +74,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/essentials-checklist-for-evaluating-vidma-recorder-for-2024/"><u>Essentials Checklist for Evaluating Vidma Recorder for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 8 Plus with a Broken Screen?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-how-much-cash-can-you-score-for-watching-a-million-videos/"><u>In 2024, How Much Cash Can You Score for Watching A Million Videos?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-starting-your-macbook-pro-from-scratch/"><u>Step-by-Step Guide: Starting Your MacBook Pro From Scratch</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/1723062096524-top-10-entertaining-games-to-beat-boredom-anywhere-anytime/"><u>Top 10 Entertaining Games to Beat Boredom Anywhere, Anytime!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/transform-your-iphone-photos-of-texts-into-editable-files-with-scan-and-ocr-technology/"><u>Transform Your iPhone Photos of Texts Into Editable Files with Scan & OCR Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/transforming-patient-interactions-with-abbyy-cutting-edge-innovations-for-modern-telehealth-services/"><u>Transforming Patient Interactions with ABBYY: Cutting-Edge Innovations for Modern Telehealth Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/understanding-the-terms-of-use-for-abbyys-flexicapture-including-dpa-and-gdpr-provisions/"><u>Understanding the Terms of Use for ABBYY's FlexiCapture, Including DPA & GDPR Provisions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-immediate-streams-from-obs-to-insta-for-2024/"><u>[New] Immediate Streams From OBS to Insta for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-construction-lab/"><u>[New] Video Construction Lab</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-visual-snippet-retriever/"><u>[New] Visual Snippet Retriever</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44cm44ot44oh44kq5pig5yop44gm6kal44gl44kj44ge77yb44o744oi44op44ow44or44k344ol44o844og44kj44oz44kw44go5lplusu5q2j5oml6acg44cn/"><u>「ビデオ映像が見づらい！・トラブルシューティングと修正手順」</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-stay-ahead-of-the-curve-with-these-10-must-use-tags/"><u>2024 Approved Stay Ahead of the Curve with These 10 Must-Use Tags</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-comprehensive-guide-to-affordable-video-enhancement-websites/"><u>A Comprehensive Guide to Affordable Video Enhancement Websites</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-aspects-you-shouldnt-ignore-a-guide-to-selecting-the-perfect-tablet/"><u>Crucial Aspects You Shouldn't Ignore: A Guide to Selecting the Perfect Tablet</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-tips-for-syncing-two-windows-displays/"><u>Quick Tips for Syncing Two Windows Displays</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-graphic-driver-problems-with-cyberpunk-2077-on-pc-a-guide-for-windows-10/"><u>Resolving Graphic Driver Problems with Cyberpunk 2077 on PC: A Guide for Windows 10</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-5-free-video-players-vlc-or-mpc-winner/"><u>Top 5 Free Video Players VLC or MPC Winner?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status
-date: 2024-09-08T17:51:42.627Z
-updated: 2024-09-14T19:15:53.308Z
+date: 2024-09-16T03:47:06.765Z
+updated: 2024-09-18T17:42:24.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ff66889aaf2236739a2923efe4cfc57f9cd9ea7ad49a91b99fcb2a46f695a7e.jpg
@@ -62,28 +62,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-from-snap-to-share-the-ultimate-guide-to-archiving-photos-for-2024/"><u>[Updated] From Snap to Share The Ultimate Guide to Archiving Photos for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-tailoring-teammates-backgrounds-in-microsoft-teams-calls/"><u>[Updated] In 2024, Tailoring Teammates’ Backgrounds in Microsoft Teams Calls</u></a></li>
-<li><a href="https://network-issues.techidaily.com/direct3d-launch-fails-issue-settled/"><u>Direct3D Launch Fails, Issue Settled</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-campaigns-with-cookiebot-technology/"><u>Enhanced Marketing Campaigns with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-precision-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Precision with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-our-cookiebot-driven-technology/"><u>Enhanced Personalization with Our Cookiebot-Driven Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-optimization-with-cookiebot-technology/"><u>Enhanced Traffic Optimization with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-website-performance-through-advanced-analytics-and-cookiebot-technology/"><u>Enhancing Website Performance Through Advanced Analytics and Cookiebot Technology</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-honor-magic-vs-2-easily-by-drfone-android/"><u>How To Unlock a Honor Magic Vs 2 Easily?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-xiaomi-redmi-note-13-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Xiaomi Redmi Note 13 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-definitive-handbook-on-openai-cover-to-cover-knowledge-guide/"><u>The Definitive Handbook on OpenAI: Cover-to-Cover Knowledge Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/ultimate-windows-recordings-made-simple-for-2024/"><u>Ultimate Windows Recordings Made Simple for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/understanding-and-fixing-the-root-causes-of-arise-game-crashes/"><u>Understanding and Fixing the Root Causes of Arise Game Crashes</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-ultimate-guide-to-converting-webm-to-mp3-top-tools/"><u>Updated In 2024, The Ultimate Guide to Converting WebM to MP3 Top Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-ig-spotlight-superheroes-top-tier-covers-on-the-go/"><u>[New] In 2024, IG Spotlight Superheroes Top-Tier Covers on the Go</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-techniques-for-successful-photo-background-alteration-on-fb-for-2024/"><u>[New] Techniques for Successful Photo Background Alteration on FB for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-a24-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy A24? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-bring-your-vision-to-life-youtube-trailers-using-filmoras-magic/"><u>In 2024, Bring Your Vision to Life YouTube Trailers Using Filmora's Magic</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-sonic-enhancement-strategies-for-your-instagram-creativity/"><u>In 2024, Sonic Enhancement Strategies for Your Instagram Creativity</u></a></li>
+<li><a href="https://extra-information.techidaily.com/spherical-shot-setup-systems/"><u>Spherical Shot Setup Systems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-implement-spatial-sound-on-windows-11/"><u>Strategies to Implement Spatial Sound on Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/yify-iphoneipadpsp/"><u>YIFY 映画ファイル iPhone・iPad・PSP用のダウンロードと効率的再生ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/youtube202youtube-ics/"><u>Youtubeで配信中止の202지YouTube 볼륨 다운로드 편ics를 구하는 コツ</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY"
-date: 2024-09-12T21:48:46.425Z
-updated: 2024-09-14T21:44:08.949Z
+date: 2024-09-17T19:03:18.970Z
+updated: 2024-09-18T19:45:37.216Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8497a84119e0a96a5c983db49610c81e2418d1546f465ac4877a5dbfe4aa35e7.JPG
@@ -83,13 +83,6 @@ Gartner Magic Quadrant
 
 IA Month
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 
 
 #### September is Intelligent Automation Month
@@ -122,11 +115,25 @@ The leader in AI-based intelligent document processing and process mining techno
 
 [![For Video](https://static1.abbyy.com/abbyycommedia/32356/for-video.jpg)](https://www.youtube.com/watch?v=OUr3jexLu7M) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What the analysts say
 
 [All reports](https://tools.techidaily.com/abbyy/products/) 
 
 ![11 01 23 Vertical Isg Report 2022](https://static1.abbyy.com/abbyycommedia/36781/11-01-23-vertical-isg-report-2022.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY Named 2022 Leader of IDP in the ISG Provider Lens™ Intelligent Automation – Solutions and Services Report
 
@@ -162,13 +169,6 @@ See what ABBYY smart technologies can do for your industry:
 
 [![04B Healthcare](https://static2.abbyy.com/abbyycommedia/31316/04b-healthcare.jpg) Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![02B Transportationandlogistics](https://static1.abbyy.com/abbyycommedia/31318/02b-transportationandlogistics.jpg) Transportation & Logistics](https://www.abbyy.com/solutions/transportation/ "Transportation & Logistics") 
 
 [Government](https://tools.techidaily.com/abbyy/products/) 
@@ -197,19 +197,6 @@ See what ABBYY smart technologies can do for your industry:
 
 ![Costain Croup PLC](https://static5.abbyy.com/abbyycommedia/31198/costain.png) 
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Costain Group PLC
 
 Construction Civil Engineering
@@ -223,13 +210,6 @@ Document Processing
 [Read the story](https://tools.techidaily.com/abbyy/products/) [Watch the video](https://www.youtube.com/watch?v=w708adcpE-A "Watch the video") 
 
 ![Paragon Customer Communications Limited](https://static2.abbyy.com/abbyycommedia/31571/paragon-logo-168x52.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Paragon Customer  
  Communications Limited
@@ -271,6 +251,13 @@ Document Processing
 
 ### What’s trending?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Intelligent Process Automation
 
 More companies are saving millions of dollars by turning to Intelligent Process Automation to identify opportunities for automation and work smarter and faster. ABBYY Intelligent Process Automation combines process mining with Intelligent Document Processing to help you transform enterprise data and get the insights you need to improve process efficiency and effectiveness.
@@ -295,6 +282,19 @@ Businesses are digging deeper to fully understand their processes to discover ne
 
 [Try ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY news
 
 [Explore the Newsroom](https://tools.techidaily.com/abbyy/products/) 
@@ -302,10 +302,10 @@ Businesses are digging deeper to fully understand their processes to discover ne
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Bosch relies on Intelligent Automation from ABBYY
@@ -337,18 +337,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigating-facebook-stories-like-a-pro/"><u>[Updated] Navigating Facebook Stories Like a Pro</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-infinix-hot-40-pro-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Infinix Hot 40 Pro?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-tecno-spark-10-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Tecno Spark 10 5G</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/pioneering-reviews-on-electronic-devices-with-toms-hardware-authority/"><u>Pioneering Reviews on Electronic Devices with Tom's Hardware Authority</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-most-innovative-and-easy-to-use-mobile-photo-layers-top-10-for-2024/"><u>The Most Innovative & Easy-to-Use Mobile Photo Layers (Top 10) for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/top-choices-for-tiny-tower-tech-expert-recommendations-on-slim-case-selections/"><u>Top Choices for Tiny Tower Tech : Expert Recommendations on Slim Case Selections</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-adept-vlc-playback-and-capture-techniques/"><u>[Updated] Adept VLC Playback & Capture Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-discover-free-methods-to-enhance-alter-and-amplify-your-vocal-expression-for-2024/"><u>[Updated] Discover FREE Methods To Enhance, Alter & Amplify Your Vocal Expression for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-xiaomi-redmi-a2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-itel-p40plus-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Itel P40+?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-stream-video-freely-on-any-os-no-cost-video-player/"><u>In 2024, Stream Video Freely on Any OS No-Cost VIDEO Player</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-samsung-galaxy-a25-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Samsung Galaxy A25 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-six-strategies-leveraging-chatgpt-in-your-remote-and-freelance-career/"><u>Top Six Strategies: Leveraging ChatGPT in Your Remote & Freelance Career</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-tech-upgrading-windows-10-home-to-pro-edition/"><u>Transform Your Tech: Upgrading Windows 10 Home to Pro Edition</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-itel-by-drfone-android/"><u>Universal Unlock Pattern for Itel</u></a></li>
 </ul></div>
 

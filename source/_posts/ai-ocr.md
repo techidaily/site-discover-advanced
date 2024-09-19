@@ -1,7 +1,7 @@
 ---
 title: "AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋"
-date: 2024-09-12T16:14:51.768Z
-updated: 2024-09-14T16:05:58.652Z
+date: 2024-09-11T16:24:25.571Z
+updated: 2024-09-19T01:25:40.414Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg
@@ -43,6 +43,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 繋がりを考慮しない処理しかできないケースがあります。先ほどの例で申しますと、本来であれば異なる種類の申請書に記載のある氏名と本人確認書類の氏名が一致しているか、など書類間で確認すべき事項があっても、繋がりを意識できないOCR製品の場合は目視での確認のみに留まります。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## OCR導入に失敗する要因その2：業務利用に起因する問題
 
 二つ目に挙げられるのは、業務利用を検討する際に発生する問題です。
@@ -58,16 +65,16 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35676/2.png)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
+<span id="1983472">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 また秘匿性という観点では、OCR処理内容を他の部署に見せたくないなど、部門ごとのセキュリティが求められるケースもあります。この場合はテナント機能により部門ごとに作業領域を区分けできることが重要です。
@@ -77,13 +84,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 3つ目は、「セキュリティと接続性」です。OCR処理を行う帳票には、個人情報や会社の機密情報が含まれることが多々あります。OCR製品の選択では、充分なセキュリティを保てない、あるいは社内のセキュリティ基準を満たせない場合が無いか検討が必要です。
 
 また、社内の認証手続きに合致しない、社内ネットワーク基準に干渉するためアクセスできない、といったことが無いように、シングルサインオンや多段階認証への対応であるとか様々なシステムとの接続性にも事前に目を向ける必要があります。
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## OCR導入に失敗する要因その3：ワークフローに起因する問題
 
@@ -105,6 +105,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35678/4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AI OCRの自動化で失敗しないためには
 
 今まで見てきたように、OCR導入とその自動化は、「識字率、AI自動学習、簡単さ」といったOCRそのものの性能・特徴だけではなく、「文書レイアウトへ柔軟に対応できるのか、業務での利用に耐えうる製品か、望むフローを構成できるのか」といった領域についても考慮することが重要です。
@@ -116,13 +123,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 ※ ABBYY FlexiCaptureについての概要は、[ABBYY FlexiCapture 12紹介 – はじめの一歩](https://www.youtube.com/watch?v=pM2aqWlLgfk) をご参照ください。
 
 [AI OCR](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -187,21 +187,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-expert-gaming-techniques-mastering-switch-pro-controller-on-steam-for-2024/"><u>[New] Expert Gaming Techniques Mastering Switch Pro Controller on Steam for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-ultimate-6-film-compiler-tools/"><u>[Updated] 2024 Approved Ultimate 6 Film Compiler Tools</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-zero-to-hero-steps-to-construct-your-channels-backlinks/"><u>[Updated] From Zero to Hero Steps to Construct Your Channel's Backlinks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-to-in-frame-multimedia-experience-on-mac/"><u>[Updated] The Ultimate Guide to In-Frame Multimedia Experience on Mac</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/compatible-bluetooth-adaptor-software-for-win10-win7-and-win8-get-it-here/"><u>Compatible Bluetooth Adaptor Software for Win10, Win7 & Win8 - Get It Here</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-technology-boosting-website-efficiency-and-tracking-success/"><u>Cookiebot-Driven Technology: Boosting Website Efficiency and Tracking Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimizing-your-website-with-advanced-tracking-and-analytics/"><u>Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-amplify-audience-response-with-unique-instagram-quiz-features/"><u>In 2024, Amplify Audience Response with Unique Instagram Quiz Features</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-tecno-spark-20-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Tecno Spark 20 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>In 2024, Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/say-goodbye-to-distractions-with-a-chromebook-your-key-to-ultimate-concentration-online/"><u>Say Goodbye to Distractions with a Chromebook - Your Key to Ultimate Concentration Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-carryminatis-income-evolution-with-ajey-nagar/"><u>[Updated] 2024 Approved CarryMinati's Income Evolution with Ajey Nagar</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1726227530787-mxf-gif-movavi/"><u>網路上無成本地自動轉換 MXF 到 GIF - 利用 Movavi 轉檔工具</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/connect-with-digiarty-unleashing-artistic-innovation-and-collaboration-opportunities/"><u>Connect With Digiarty - Unleashing Artistic Innovation and Collaboration Opportunities</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-latest-movavi-mac-free-2024-software-essential-tips-for-reliable-system-backups-and-protection/"><u>Discover the Latest Movavi Mac Free 2024 Software - Essential Tips for Reliable System Backups and Protection</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-vivo-y100t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Vivo Y100t Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://article-tips.techidaily.com/prime-examples-14-dynamic-text-animations-for-2024/"><u>Prime Examples 14 Dynamic Text Animations for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-guide-updating-and-downloading-hp-envy-20s-driver-software/"><u>Step-by-Step Guide: Updating and Downloading HP Envy 20'S Driver Software</u></a></li>
+<li><a href="https://solve-news.techidaily.com/ultimate-guide-capturing-screenshots-and-recording-your-screen-on-a-razer-laptop/"><u>Ultimate Guide: Capturing Screenshots and Recording Your Screen on a Razer Laptop</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

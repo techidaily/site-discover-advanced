@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-09-09T23:05:11.293Z
-updated: 2024-09-14T20:54:50.556Z
+date: 2024-09-17T21:41:41.482Z
+updated: 2024-09-19T00:46:03.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -42,24 +42,22 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-exploring-sierra-icloud-drives-a-complete-overview/"><u>[New] In 2024, Exploring Sierra iCloud Drives – A Complete Overview</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-charting-the-course-for-unmatched-cloud-storage/"><u>2024 Approved Charting the Course for Unmatched Cloud Storage</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pushing-boundaries-advanced-iphone-silhouette-techniques/"><u>2024 Approved Pushing Boundaries Advanced iPhone Silhouette Techniques</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/deciph-written-as-a-dialogue-between-two-characters-user-and-assistant-in-an-online-forum-setting-discussing-the-topic-of-what-is-aggregatorhostexe-on-windo37/"><u>Deciph Written as a Dialogue Between Two Characters (User and Assistant) in an Online Forum Setting Discussing the Topic of What Is AggregatorHost.exe on Windows, and Is It Safe?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Location Changers for Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-12-mini-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone 12 mini?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/iphone-collage-crafting-made-simple-for-2024/"><u>IPhone Collage Crafting Made Simple for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigate-the-future-of-insurance-with-our-digital-agility-advancement-ebook-your-guide-to-modernization-in-insurtech/"><u>Navigate the Future of Insurance with Our 'Digital Agility Advancement' EBook – Your Guide to Modernization in InsurTech</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-issue-of-missing-hd-audio-on-your-nvidia-device-a-step-by-step-guide/"><u>Solving the Issue of Missing HD Audio on Your NVIDIA Device: A Step-by-Step Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-honor-magic-5-lite-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Honor Magic 5 Lite Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-a-sincere-look-at-high-quality-audio-streaming-recordcast/"><u>[Updated] 2024 Approved A Sincere Look at High-Quality Audio Streaming RecordCast</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-advice-how-to-correctly-address-the-msvbvm50dll-error-missing-file-issue/"><u>Expert Advice: How to Correctly Address the msvbvm50.dll Error Missing File Issue</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/get-your-factory-pro-for-ipod-videos-securely-guaranteed-safe-purchase-today/"><u>Get Your Factory Pro for iPod Videos Securely – Guaranteed Safe Purchase Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guide-creating-videos-from-audio-clips-perfectly-tailored-for-your-youtube-channel/"><u>Guide: Creating Videos From Audio Clips Perfectly Tailored for Your YouTube Channel</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-activation-lock-on-apple-iphone-11-4-easy-ways-by-drfone-ios/"><u>In 2024, Bypass Activation Lock On Apple iPhone 11 - 4 Easy Ways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-clear-and-compelling-1080p-streaming-on-the-social-network/"><u>In 2024, Clear and Compelling 1080P Streaming on the Social Network</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-optimize-visibility-choosing-the-right-hashtags-today/"><u>In 2024, Optimize Visibility Choosing the Right Hashtags Today</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/master-multitask-media-with-ease-expertly-using-netflixs-picture-in-picture-feature/"><u>Master Multitask Media with Ease Expertly Using Netflix’s Picture-In-Picture Feature</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/seamlessly-integrating-multiple-voice-notes-techniques-and-tips/"><u>Seamlessly Integrating Multiple Voice Notes: Techniques and Tips</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

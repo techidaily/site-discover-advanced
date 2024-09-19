@@ -1,7 +1,7 @@
 ---
 title: Enhancing Customer Onboarding with Mobile OCR Technology
-date: 2024-09-13T00:06:03.577Z
-updated: 2024-09-14T18:14:26.530Z
+date: 2024-09-15T19:46:45.327Z
+updated: 2024-09-18T22:50:44.355Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8404aae8332517e90ea13209ccbcb49d56b9cbe41228f9bbeee698b42d6caf34.jpg
@@ -31,15 +31,22 @@ Allowing engaged customers ‘self-service experience’ can engender in them se
 
 According to a recent [Pew Research](http://www.pewinternet.org/2015/04/01/chapter-one-a-portrait-of-smartphone-ownership/), 24 percent of U.S. citizens have paid their bills using smartphones, while 44 percent said they are aware of such services. Yet, most people surveyed - 73 percent - avoid mobile payment apps, citing security and privacy as top worries. New mobile OCR technology now offers not only a fast, safe and convenient user experience, but data security as well. Data such as bank details, credit card number, card owner’s name or payment amount can be instantly captured, processed and transferred without saving copies on the device. For banks and insurance companies, this is a sure way to build trust and credibility with engaged customers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Customer-onboarding with ease
 
 Real-time recognition technology promises [efficient customer onboarding](https://www.forbes.com/sites/adrianbridgwater/2017/04/19/abbyy-builds-instant-text-capture-recognition-tool-for-mobile/#3cb40997521f) that can help small businesses create a positive first impression and turn their customers into advocates. This is particularly true for front-end service providers such as airlines, hotels and car rental companies. Manual registration process for new customers is often frustrating, cumbersome and time-consuming. With the new technology, however, customers can simply point their mobile phone cameras at their identification documents and have their data transferred into a company's system without leaving a trace on the device.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facilitating visual connection
@@ -59,13 +66,6 @@ The Real-Time Recognition SDK product is discontinued. Explore [ABBYY's Mobile C
 To see ABBYY's latest technology solutions, visit the [ABBYY Products page](https://tools.techidaily.com/abbyy/products/).
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Financial Services](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -130,19 +130,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-learn-more-top-education-streams-online/"><u>[New] In 2024, Learn More Top Education Streams Online</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-capturing-clarity-best-practices-for-iphone-photo-cropping/"><u>[Updated] Capturing Clarity Best Practices for iPhone Photo Cropping</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-lullaby-movies-assessment-and-overview/"><u>2024 Approved Lullaby Movies Assessment & Overview</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
-<li><a href="https://win-blog.techidaily.com/batman-arkham-knight-bug-blues-find-quick-hacks-to-keep-your-adventure-going/"><u>Batman: Arkham Knight Bug Blues? Find Quick Hacks to Keep Your Adventure Going</u></a></li>
-<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-m14-5g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy M14 5G FRP Locks</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/no-more-interruptions-how-to-stop-rogue-company-from-crashing-your-pc-gameplay/"><u>No More Interruptions: How to Stop Rogue Company From Crashing Your PC Gameplay</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/stellars-rejuvenation-revamping-anywhere-db-servers/"><u>Stellar's Rejuvenation: Revamping Anywhere DB Servers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-capture-every-moment-the-premier-8-free-screen-capture-apps-for-android/"><u>[New] Capture Every Moment The Premier 8 Free Screen Capture Apps for Android</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-unleashing-your-iphone-the-top-techniques-for-skyline-pics/"><u>[New] In 2024, Unleashing Your iPhone The Top Techniques for Skyline Pics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-secure-communication-made-easy-the-best-10-free-and-protected-video-conferencing-tools/"><u>[New] Secure Communication Made Easy The Best 10 Free and Protected Video Conferencing Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-webcam-and-cam-tech-on-the-windows-11-market-for-2024/"><u>[New] Top Webcam & Cam Tech on the Windows 11 Market for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-leveraging-video-shorts-to-generate-income-online/"><u>[Updated] 2024 Approved Leveraging Video Shorts to Generate Income Online</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-logitech-g25-racing-wheel-driver-software-download-for-windows-7-8-and-10/"><u>Free Logitech G25 Racing Wheel Driver Software Download for Windows 7, 8 & 10</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-elite-5-digital-title-specialists/"><u>In 2024, Exploring the Elite 5 Digital Title Specialists</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-vivo-y100a-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y100A Black and White | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-web-based-applications-enhancing-your-abilities-in-crafting-effective-prompts/"><u>Top 7 Web-Based Applications Enhancing Your Abilities in Crafting Effective Prompts</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

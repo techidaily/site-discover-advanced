@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-09-11T21:41:58.475Z
-updated: 2024-09-14T16:34:43.948Z
+date: 2024-09-11T16:41:04.008Z
+updated: 2024-09-19T02:34:19.540Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -61,33 +61,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-professional-video-file-preservation-six-essential-steps-for-windows-11/"><u>[New] 2024 Approved Professional Video File Preservation Six Essential Steps for Windows 11</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-dji-spark-ultimate-portable-camera-uav-guide-for-2024/"><u>[New] DJI Spark Ultimate Portable Camera UAV Guide for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-expert-analysis-how-showmore-enhances-your-video-capture-techniques/"><u>[New] Expert Analysis How ShowMore Enhances Your Video Capture Techniques</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-enhance-video-production-7-best-free-sounds-for-editors/"><u>[Updated] 2024 Approved Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-exclusive-online-demo-combining-flexicapture-features-with-timeline-for-enhanced-data-processing/"><u>ABBYY's Exclusive Online Demo: Combining FlexiCapture Features with Timeline for Enhanced Data Processing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-guide-to-advanced-bi-and-process-mining-strategies-unlocking-insights-with-e-book/"><u>ABBYY's Guide to Advanced BI and Process Mining Strategies: Unlocking Insights with E-Book</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-traffic-using-cutting-edge-cookiebot-solutions/"><u>Boost Your Site's Traffic Using Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-site-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Site: Enhance User Experience with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-tips-for-repairing-a-non-functional-logitech-g533-microphone/"><u>Expert Tips for Repairing a Non-Functional Logitech G533 Microphone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-8-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 8 with IMEI Code?</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/transforma-tus-archivos-mts-en-mp4-de-forma-gratuita-con-estos-trucos-sencillos/"><u>Transforma Tus Archivos Mts en Mp4 De Forma Gratuita Con Estos Trucos Sencillos</u></a></li>
-<li><a href="https://techidaily.com/vivo-data-recovery-recover-lost-data-from-vivo-s17-by-fonelab-android-recover-data/"><u>Vivo Data Recovery – recover lost data from Vivo S17</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-virtual-meetups-made-easy-understanding-xbox-one-zoom/"><u>[New] 2024 Approved Virtual Meetups Made Easy Understanding Xbox One Zoom</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-professional-videographers-choice-for-screen-recordings-for-2024/"><u>[New] Professional Videographer's Choice for Screen Recordings for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-access-and-install-new-chatgpt-modules-easily/"><u>How to Access and Install New ChatGPT Modules Easily</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-utilizing-tools-like-chatgpt-or-bard-a-smart-move-for-your-money-matters/"><u>Is Utilizing Tools Like ChatGPT or Bard a Smart Move for Your Money Matters?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/secrets-to-enjoying-authentic-cricket-games-in-real-time-for-2024/"><u>Secrets to Enjoying Authentic Cricket Games in Real-Time for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-tech-savvy-approach-to-saving-your-insta-content-for-2024/"><u>The Tech-Savvy Approach to Saving Your Insta Content for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/tips-and-tricks-for-apple-id-locked-issue-on-apple-iphone-x-by-drfone-ios/"><u>Tips and Tricks for Apple ID Locked Issue On Apple iPhone X</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-what-is-an-ai-script-generator-wondershare-virbo-glossary/"><u>Updated 2024 Approved What Is an AI Script Generator? | Wondershare Virbo Glossary</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

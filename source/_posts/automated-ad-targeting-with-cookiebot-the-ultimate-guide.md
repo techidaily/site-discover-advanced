@@ -1,7 +1,7 @@
 ---
 title: "Automated Ad Targeting with Cookiebot: The Ultimate Guide"
-date: 2024-09-11T16:52:04.616Z
-updated: 2024-09-14T16:51:42.586Z
+date: 2024-09-16T23:25:32.913Z
+updated: 2024-09-18T16:07:23.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb6fabc72096593a99e32594f.png
@@ -53,31 +53,11 @@ By enabling accountability for these types of issues, it will create transparenc
 
 Setting up an in-house AI team will be one of the means that will allow you to develop your AI projects. By calling on AI talents in specific divisions, you will have a solid team that can help you recruit and retain your employees. New AI-related teams and job descriptions will need to be created by adding scientists, data engineers, and machine learning engineers to your staff.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Practicing participatory design
 
 Another way to create a more sustainable solution to building responsible AI is to base it on participatory design, which includes the humans who are involved in the actual use of the final solution.
 
 Picture this. If an automated software is to be used in a call center to help reduce an employee’s workload, it is preferable that customers, a call center supervisor, and a call center employee be involved in the development process.
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Plan your AI budget
 
@@ -91,34 +71,41 @@ Source: [Deloitte](https://www.cio.com/article/3393443/state-auto-taps-rpa-to-cu
 
 Therefore, a key action to take quickly is to define a budget for your future AI project as it will require a lot of funds — the absence of which will result in the total failure of the project.
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Start small and experiment
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28689/ai-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Although you want to develop your artificial intelligence strategy as quickly as possible, it requires a little patience and experimentation. It is best to create a small number of artificial intelligence resources that are difficult to implement. Tailor these resources so that they give you an advantage in your industry. This may require the use of specific data that has been carefully researched and used in the development of AI applications.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Alleviate employee’s displacement anxiety
 
 The extent to which AI will eliminate or transform jobs is unclear, but companies should begin to educate their employees about how their jobs may change and recommend ways to re-qualify to remain relevant. This includes retraining workers whose tasks are supposed to be automated — or giving them time to look for a new job. A concrete illustration of this is Insurer State Auto, which is [training its staff to handle more complex claims](https://www.cio.com/article/3393443/state-auto-taps-rpa-to-cut-costs-and-transform-its-workforce.html), as [robotic process automation (RPA)](https://www.cio.com/article/3236451/what-is-rpa-robotic-process-automation-explained.html) frequently handles lower-level tasks.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,6 +121,13 @@ The promise of AI is exciting. When implemented in specific processes in your bu
 In his recent interview with Unite.AI, Andrew Pery, Ethics Evangelist and Digital Intelligence Consultant at ABBYY, [discussed ethics in AI, abuses of AI, and what the AI industry can do about these concerns moving forward.](https://www.unite.ai/andrew-pery-ethics-evangelist-abbyy-interview-series/)
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -198,17 +192,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-expert-advice-on-mending-iphone-xs-identity-check/"><u>[New] In 2024, Expert Advice on Mending iPhone X's Identity Check</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-optimal-method-integrating-links-into-tiktok-bios-for-2024/"><u>[Updated] Optimal Method Integrating Links Into TikTok Bios for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-vivo-x100-unlock-without-password-by-drfone-android/"><u>5 Solutions For Vivo X100 Unlock Without Password</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-and-sales-using-smart-visitor-tracking-technology/"><u>Drive Engagement and Sales Using Smart Visitor Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driving-targeted-traffic-through-advanced-personalization-techniques-using-our-unique-algorithm/"><u>Driving Targeted Traffic Through Advanced Personalization Techniques Using Our Unique Algorithm</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-meizu-21-pro-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Meizu 21 Pro</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-video-reduction-tips-for-mac-users/"><u>In 2024, Instagram Video Reduction Tips for Mac Users</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intel-iris-xe-video-card-update-download-guide-for-windows-users/"><u>Intel Iris Xe Video Card Update - Download Guide for Windows Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Nokia G42 5G? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/step-by-step-process-to-erase-your-presence-from-chatgpt-platforms/"><u>Step-by-Step Process to Erase Your Presence From ChatGPT Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-snipping-video-time-a-youtube-editors-handbook/"><u>[New] 2024 Approved Snipping Video Time A YouTube Editors' Handbook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unlocking-asmrs-health-perks-a-guide/"><u>[New] Unlocking ASMR's Health Perks A Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-buzzing-tracks-ultimate-backdrops-for-youtube-shorts/"><u>[Updated] 2024 Approved Buzzing Tracks Ultimate Backdrops for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-video-game-top-tips-for-perfect-live-thumbnails/"><u>[Updated] Elevate Your Video Game Top Tips for Perfect Live Thumbnails</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/digital-game-chronicles-snappy-screenshots-for-every-moment/"><u>Digital Game Chronicles Snappy Screenshots for Every Moment</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-xiaomi-redmi-a2-to-mac-drfone-by-drfone-android/"><u>How to Mirror Xiaomi Redmi A2 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-oneplus-12r-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass OnePlus 12R FRP</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-poco-c50-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Poco C50 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-for-recording-epic-cod-matches-on-your-pc/"><u>Step-by-Step Tutorial for Recording Epic COD Matches on Your PC</u></a></li>
 </ul></div>
 

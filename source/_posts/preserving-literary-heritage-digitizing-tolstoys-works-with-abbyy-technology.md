@@ -1,7 +1,7 @@
 ---
 title: "Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology"
-date: 2024-09-13T23:26:15.346Z
-updated: 2024-09-14T17:05:02.099Z
+date: 2024-09-15T01:12:19.735Z
+updated: 2024-09-18T23:44:17.526Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03036a5859c384dd9ace3b529.jpg
@@ -42,10 +42,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -61,10 +61,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -92,15 +92,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-ideal-android-video-recording-tools-ranked-five-best-for-2024/"><u>[New] Ideal Android Video Recording Tools Ranked Five Best for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-integrating-social-spaces-tiktok-uploads-on-facebook-for-2024/"><u>[New] Integrating Social Spaces TikTok Uploads on Facebook for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-evaluation-of-the-netgear-orbi-rb50-y-amp/"><u>Comprehensive Evaluation of the Netgear Orbi RB50 Y Amp</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-personalized-experience-optimize-your-sites-engagement/"><u>Cookiebot-Enabled Personalized Experience: Optimize Your Site's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Enabled Solutions: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/expertly-merge-vimeo-footage-with-ppts-using-modern-tools/"><u>Expertly Merge Vimeo Footage with PPTs Using Modern Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oppo-reno-11-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Oppo Reno 11 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-note-30-vip-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-c22-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Nokia C22 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-video-experience-the-top-10-listed-tools/"><u>[Updated] FB Video Experience The Top 10 Listed Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-the-nuances-of-mukbang-filmmaking-techniques/"><u>[Updated] In 2024, Navigating the Nuances of Mukbang Filmmaking Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pairing-audio-with-visuals-web-forum/"><u>[Updated] Pairing Audio with Visuals Web Forum</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-channels-with-powerful-visual-branding-strategies/"><u>[Updated] Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-index-performance-on-your-pc/"><u>Enhancing Index Performance on Your PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-5-alternative-editors-beyond-youtubes-limits-for-2024/"><u>Top 5 Alternative Editors Beyond Youtube's Limits for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ttamp3/"><u>TTAをMP3に変換する -高解像度オーディオ維持方法 : 入門編</u></a></li>
 </ul></div>
 

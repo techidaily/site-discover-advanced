@@ -1,7 +1,7 @@
 ---
 title: Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets
-date: 2024-09-13T18:45:31.741Z
-updated: 2024-09-14T17:48:09.071Z
+date: 2024-09-14T22:48:25.889Z
+updated: 2024-09-18T17:01:51.354Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4ccd50e41e8a2b78b87f09590.jpg
@@ -64,32 +64,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-transform-tweets-converting-video-to-gifs-at-no-cost/"><u>[New] Transform Tweets Converting Video to GIFs at No Cost</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-visualizationvirtue-the-art-of-resizing-photos-and-videos-in-instagram-for-2024/"><u>[New] VisualizationVirtue The Art of Resizing Photos and Videos in Instagram for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-secure-and-simple-step-by-step-for-google-meet-recordings/"><u>[Updated] In 2024, Secure and Simple Step-by-Step for Google Meet Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-integration-customizing-web-interactions-for-you/"><u>Cookiebot Integration: Customizing Web Interactions for You!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-personalized-experience-optimize-your-sites-engagement/"><u>Cookiebot-Enabled Personalized Experience: Optimize Your Site's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Enabled Solutions: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-personalized-data-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Personalized Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digital-pages-unveiled-a-guide-to-website-content-and-design/"><u>Digital Pages Unveiled: A Guide to Website Content and Design</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/enhance-engagement-with-these-essential-freegame-hashtags-for-youtube-for-2024/"><u>Enhance Engagement with These Essential FreeGame Hashtags for YouTube for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-samsung-galaxy-z-flip-5-devices-by-drfone-android/"><u>How to Reset Gmail Password on Samsung Galaxy Z Flip 5 Devices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-document-online-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to Sign a PDF document online</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-realme-gt-3-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Realme GT 3 FRP Bypass</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-circulating-content-the-art-of-playlist-sharing/"><u>[New] 2024 Approved Circulating Content The Art of Playlist Sharing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-ensuring-effective-monetization-strategies-for-yt-channels-for-2024/"><u>[New] Ensuring Effective Monetization Strategies for YT Channels for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-expert-methods-for-shushing-complaints-in-gmeet-sessions/"><u>[New] In 2024, Expert Methods for Shushing Complaints in GMeet Sessions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-navigating-the-nuances-zooming-in-on-roblox/"><u>2024 Approved Navigating the Nuances Zooming In on Roblox</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-ultimate-gag-reel-collection-comical-cells-and-cell-blocks-on-facebook/"><u>2024 Approved The Ultimate Gag Reel Collection Comical Cells and Cell Blocks on Facebook</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-skills-a-tailored-approach-to-graphic-careers/"><u>Harnessing Skills A Tailored Approach to Graphic Careers</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-pova-6-pro-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Tecno Pova 6 Pro 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030573661-mp4windows-1011/"><u>MP4ファイルがWindows 10/11メディアプレーヤーで正常に再生されない場合のトラブルシューティング</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030490891-pc/"><u>PCゲームライブ配信動画編集手順</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-lava-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Lava Device</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

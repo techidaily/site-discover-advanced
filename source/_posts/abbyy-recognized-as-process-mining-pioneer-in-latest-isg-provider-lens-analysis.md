@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis
-date: 2024-09-11T21:56:48.864Z
-updated: 2024-09-14T19:19:46.956Z
+date: 2024-09-14T19:54:45.839Z
+updated: 2024-09-18T18:09:06.607Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae42c21363a9149298cc2eac3.jpg
@@ -34,10 +34,10 @@ Process mining is the key to proving automation opportunities and benefits. Use 
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/analystreport-process-mining-isg-provider-lens-en.pdf "Read the report") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You migt also be interested in...
@@ -45,10 +45,10 @@ Process mining is the key to proving automation opportunities and benefits. Use 
 [![NelsonHall Process Discovery and Process Mining NEAT Evaluation 2021](https://static1.abbyy.com/abbyycommedia/34916/136-nelsonhall-2021-en-360x232.jpg) NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment See report](https://digital.abbyy.com/hubfs/documents/content/report-process-discovery-and-mining-evaluation-nelsonhall-2021-en.pdf "NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment")[![ABBYY Timeline Process Mining](https://static4.abbyy.com/abbyycommedia/31769/02-timeline-video-2021.jpg) ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform Learn more](https://www.abbyy.com/timeline/ "ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform")[![Data Transformation in Process Mining | ABBYY Blog](https://static3.abbyy.com/abbyycommedia/33166/colleagues-whiteboarding.jpg) The Importance of Data Transformation in Process Mining and Discovery Read article](https://www.abbyy.com/blog/data-transformation-in-process-mining-and-discovery/ "The Importance of Data Transformation in Process Mining and Discovery") 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -122,17 +122,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-advanced.techidaily.com/boosting-sap-bot-capabilities-through-abbyys-advanced-content-analytics/"><u>Boosting SAP Bot Capabilities Through ABBYY's Advanced Content Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/capitalizing-on-growth-streamline-revenue-management-using-abbyy-solutions/"><u>Capitalizing on Growth: Streamline Revenue Management Using ABBYY Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/changer-la-maniere-de-traiter-les-documents-avec-doxio-et-abbyy-une-revolution-dans-le-gestionnaire-papier/"><u>Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Personalization: Enhance User Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expertly-curated-selection-of-2024-best-smartwatches-on-the-market/"><u>Expertly Curated Selection of 2024 Best Smartwatches on the Market</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-poco-x5-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Poco X5 Pro Phones with/without a PC</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-c50-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Poco C50 Lock Screen Password?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-11-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone 11 Properly</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/no-more-lines-crossed-exit-chatgpts-reach/"><u>No More Lines Crossed? Exit ChatGPT's Reach</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/rapid-relay-youtube-playlists-to-the-public-for-2024/"><u>Rapid Relay Youtube Playlists to the Public for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ription-wins-unlock-monetization-benefits-for-2024/"><u>Subscription Wins Unlock Monetization Benefits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-crafting-captivating-content-the-instagram-reel-way/"><u>[New] 2024 Approved Crafting Captivating Content The Instagram Reel Way</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-a-countdown-of-the-most-memorable-animated-tiktoks-for-2024/"><u>[Updated] A Countdown of the Most Memorable Animated TikToks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-using-youtube-to-boost-classroom-engagement-for-2024/"><u>[Updated] Strategies for Using YouTube to Boost Classroom Engagement for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpeg-mp3/"><u>簡単な手順でMPEG-#からMP3への音声変換方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
+<li><a href="https://win-blog.techidaily.com/free-online-conversion-change-mp4-to-wmv-using-movavis-tool/"><u>Free Online Conversion: Change MP4 to WMV Using Movavi's Tool</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/obsmkvmp4/"><u>OBSで録画したMKVビデオをMP4に直してください | 変換手順詳しく解説</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfect-audio-preservation-with-dvd-to-wav-ripping-software-solutions/"><u>Perfect Audio Preservation with DVD to WAV Ripping Software Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-now-hp-officejet-4500-printer-driver-2024-enhanced-features/"><u>Update Now: HP Officejet 4500 Printer Driver 2024 Enhanced Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-german-a-convincing-10-point-perspective/"><u>Why Learn German? - A Convincing 10-Point Perspective</u></a></li>
 </ul></div>
 

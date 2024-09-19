@@ -1,7 +1,7 @@
 ---
 title: "Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role"
-date: 2024-09-11T21:50:47.431Z
-updated: 2024-09-14T18:15:41.102Z
+date: 2024-09-17T17:40:38.351Z
+updated: 2024-09-18T17:38:36.466Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16477a8d9fa6304264e3f24e3.jpg
@@ -70,19 +70,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-script-to-screen-professional-youtube-editing-secrets/"><u>[New] In 2024, From Script to Screen Professional YouTube Editing Secrets</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/insight-chatgpts-default-tools-explained/"><u>Insight: ChatGPT's Default Tools Explained</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-samsung-galaxy-s23-ultra-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Samsung Galaxy S23 Ultra without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unveiling-iphone-xs-advanced-photography-tools/"><u>Unveiling iPhone X's Advanced Photography Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-engrossing-12-pc-clicker-games-that-keep-you-hooked/"><u>[New] Engrossing 12 PC Clicker Games That Keep You Hooked</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-efficient-network-livestream-techniques-using-vlc/"><u>[New] In 2024, Efficient Network Livestream Techniques Using VLC</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-reviving-a-dying-twitch-stream-in-seconds-for-2024/"><u>[Updated] Reviving a Dying Twitch Stream in Seconds for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-streamlined-playback-import-tunes-into-inshot/"><u>[Updated] Streamlined Playback Import Tunes Into InShot</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-chromatic-creativity-enhancing-your-craft/"><u>2024 Approved Chromatic Creativity Enhancing Your Craft</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpeg-mp3/"><u>簡単な手順でMPEG-#からMP3への音声変換方法</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/amazon-luna-experience-a-deep-dive-into-its-seamless-gaming-streams/"><u>Amazon Luna Experience - A Deep Dive Into Its Seamless Gaming Streams</u></a></li>
+<li><a href="https://discover-able.techidaily.com/converti-file-ogv-a-mp4-gratuitamente-su-internet-con-movavi/"><u>Converti File OGV a MP4 Gratuitamente Su Internet Con Movavi</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/flacapple-losslesswindowsmac/"><u>FLACからApple Losslessへの変換手法：WindowsとMacで使える方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/h264-format-not-working-on-vlc-media-player-uncover-successful-troubleshooting-tips-here/"><u>H264 Format Not Working on VLC Media Player? Uncover Successful Troubleshooting Tips Here!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-rapid-pause-video-snapshot-manual/"><u>In 2024, Rapid Pause Video Snapshot Manual</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/makemkiand/"><u>MakeMKIの基本使い方&期限切れ公認コード後始末ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-converting-mp4-video-files-to-audio-in-mp3-quality-comprehensive-tutorials-and-tools/"><u>Master the Art of Converting MP4 Video Files to Audio in MP3 Quality: Comprehensive Tutorials and Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-trustworthy-ways-to-extract-audio-from-youtube-videos-for-2024/"><u>Three Trustworthy Ways to Extract Audio From YouTube Videos for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
