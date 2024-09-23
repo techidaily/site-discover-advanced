@@ -1,7 +1,7 @@
 ---
 title: Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH
-date: 2024-09-11T00:04:57.059Z
-updated: 2024-09-14T21:26:14.109Z
+date: 2024-09-20T17:20:04.556Z
+updated: 2024-09-23T18:07:37.427Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a055c6f3927bcc9e40cc66cb.jpg
@@ -19,6 +19,13 @@ Insurance | Accounts Payable Automation
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## So ist’s Recht! ABBYY FlexiCapture ermöglicht die automatisierte Erfassung von Rechnungen der DEURAG
 
 Versicherungen | Kreditorenbuchhaltung 
@@ -28,6 +35,13 @@ Versicherungen | Kreditorenbuchhaltung
 #### Über den Kunden
 
 ![Deutsche Rechtsschutz-Versicherung AG](https://static2.abbyy.com/abbyycommedia/5314/deurag-logo_155.gif) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name        | Deutsche Rechtsschutz-Versicherung AG |
 | ----------- | ------------------------------------- |
@@ -94,6 +108,19 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 
 [![cs-norton-360x162](https://static5.abbyy.com/abbyycommedia/14890/cs-norton-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
 
 ###### Like, share or repost
@@ -103,6 +130,13 @@ Teilen  True ?  : ""
 [Mehr über ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -125,25 +159,21 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-propel-your-social-media-success-best-6-apps-for-instagram-reels/"><u>[New] Propel Your Social Media Success Best 6 Apps for Instagram Reels</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-high-end-gamers-guide-to-switch-recordings/"><u>[Updated] 2024 Approved High-End Gamers' Guide to Switch Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-groups-leadership-addresses-covid-1eb-concerns-with-a-formal-declaration-by-ulf-persson-ceo/"><u>ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-top-contender-in-the-2024-gartner-magic-quadrant-excellence-in-process-mining-solutions/"><u>ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-welcomes-weronika-niemczyk-to-lead-human-resources-as-new-c-level-executive/"><u>ABBYY Welcomes Weronika Niemczyk to Lead Human Resources as New C-Level Executive</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/accelerate-digital-marketing-success-with-our-cookiebot-solution/"><u>Accelerate Digital Marketing Success with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-analytics-driven-by-the-latest-web-pixel-innovation/"><u>Advanced Analytics Driven by the Latest Web Pixel Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automate-with-cookiebot-enhance-your-sites-user-experience/"><u>Automate with Cookiebot: Enhance Your Site's User Experience</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exploring-gadgets-with-tom-in-depth-reviews-and-advice-on-hardware-solutions/"><u>Exploring Gadgets with Tom: In-Depth Reviews and Advice on Hardware Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/synergy-of-tech-and-comfort-mercedes-ai-voice-update/"><u>Synergy of Tech & Comfort: Mercedes' AI Voice Update</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-tecno-spark-20-proplus-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Tecno Spark 20 Pro+ Phone</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/top-rated-no-cost-software-for-dvd-sound-extraction/"><u>Top Rated No-Cost Software for DVD Sound Extraction</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revolutionize-selfies-with-top-android-and-ios-face-modifiers/"><u>[New] Revolutionize Selfies with Top Android & iOS Face Modifiers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unlocking-creative-expression-an-in-depth-guide-to-snapchat-filters-for-2024/"><u>[New] Unlocking Creative Expression An In-Depth Guide to Snapchat Filters for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-behind-closed-doors-of-youtube-a-discovery-manual/"><u>[Updated] In 2024, Behind Closed Doors of YouTube A Discovery Manual</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-streamlining-your-podcast-production-process/"><u>[Updated] Streamlining Your Podcast Production Process</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027179271-mp3/"><u>「ツイキャスから高品質のMP3ファイルへ変換ガイド」</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-oppo-reno-11-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Oppo Reno 11 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-lgs-new-tech-horizon-in-bp550-for-2024/"><u>Exploring LG's New Tech Horizon in BP550 for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-effortless-game-captures-with-nvidia/"><u>In 2024, Effortless Game Captures with NVIDIA</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-from-start-to-finish-flipping-a-clip-in-final-cut-pro-in-4-steps/"><u>New 2024 Approved From Start to Finish Flipping a Clip in Final Cut Pro in 4 Steps</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-walkthrough-the-process-of-deleting-content-from-your-youtube-channel/"><u>Ultimate Walkthrough: The Process of Deleting Content From Your YouTube Channel</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-lava-blaze-curve-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Lava Blaze Curve 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wonderfox-hd-video-converter-pro-factory-edition/"><u>WonderFox HD Video Converter Pro Factory Editionが正常にインストールされました。よろしくお願い致します!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029041642-android/"><u>スマートフォンで動画が再生しないときの解決策: Androidを使った詳細ガイド</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

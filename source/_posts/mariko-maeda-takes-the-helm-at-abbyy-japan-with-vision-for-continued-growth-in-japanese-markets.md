@@ -1,7 +1,7 @@
 ---
 title: Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets
-date: 2024-09-14T22:48:25.889Z
-updated: 2024-09-18T17:01:51.354Z
+date: 2024-09-20T16:04:38.929Z
+updated: 2024-09-23T16:49:00.672Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4ccd50e41e8a2b78b87f09590.jpg
@@ -29,6 +29,13 @@ ABBYYジャパン代表取締役社長に就任した前田まりこは、次の
 
 前田まりこは、ABBYY入社以前は米国に拠点を置く自動化ロボットのリーディング・カンパニーであるGreyOrangeで日本及び韓国チームを統括してきました。また営業、ソリューション・コンサルティング、オペレーション、カスタマー・エクスペリエンスに焦点を当てたセールス戦略と収益拡大をリードするなど、豊富な経験を誇ります。（早稲田大学大学院修士課程修了）
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -40,6 +47,19 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 詳細は[www.abbyy.com/ja/company/about-us/](https://tools.techidaily.com/abbyy/products/)をご覧ください。
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
 
@@ -64,24 +84,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-circulating-content-the-art-of-playlist-sharing/"><u>[New] 2024 Approved Circulating Content The Art of Playlist Sharing</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-ensuring-effective-monetization-strategies-for-yt-channels-for-2024/"><u>[New] Ensuring Effective Monetization Strategies for YT Channels for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-expert-methods-for-shushing-complaints-in-gmeet-sessions/"><u>[New] In 2024, Expert Methods for Shushing Complaints in GMeet Sessions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-navigating-the-nuances-zooming-in-on-roblox/"><u>2024 Approved Navigating the Nuances Zooming In on Roblox</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-ultimate-gag-reel-collection-comical-cells-and-cell-blocks-on-facebook/"><u>2024 Approved The Ultimate Gag Reel Collection Comical Cells and Cell Blocks on Facebook</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/harnessing-skills-a-tailored-approach-to-graphic-careers/"><u>Harnessing Skills A Tailored Approach to Graphic Careers</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-pova-6-pro-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Tecno Pova 6 Pro 5G to New Android? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726030573661-mp4windows-1011/"><u>MP4ファイルがWindows 10/11メディアプレーヤーで正常に再生されない場合のトラブルシューティング</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726030490891-pc/"><u>PCゲームライブ配信動画編集手順</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-lava-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Lava Device</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-inspire-humorous-graphics-for-online-platform/"><u>[New] In 2024, Inspire Humorous Graphics for Online Platform</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-crafting-perfect-tiktok-captions-the-ultimate-20-guide/"><u>[Updated] In 2024, Crafting Perfect TikTok Captions The Ultimate 20 Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-virtual-potential-with-kinemasters-latest-android-release/"><u>2024 Approved Unlocking Virtual Potential with KineMaster's Latest Android Release</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/assessing-the-chic-and-agile-performance-of-swagtrons-electric-scooter-a-consumer-guide/"><u>Assessing the Chic and Agile Performance of Swagtron's Electric Scooter: A Consumer Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-guide-how-to-download-and-watch-ted-talks/"><u>Easy Guide: How to Download and Watch TED Talks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-to-watch-vob-movies-on-an-ipad-the-ultimate-tutorial/"><u>Easy Methods to Watch VOB Movies on an iPad – The Ultimate Tutorial</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-vivo-y78-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Vivo Y78 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-install-intel-uhd-graphics-655-drivers-on-windows-10-or-11/"><u>How to Install Intel UHD Graphics 655 Drivers on Windows 10 or 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/relentless-joy-in-9-full-length-holiday-spectacles-free-online-for-2024/"><u>Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-windows-10s-bluetooth-pairing-woes-expert-advice-and-strategies/"><u>Resolving Windows 10'S Bluetooth Pairing Woes: Expert Advice and Strategies</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secure-social-media-comprehensive-guide-to-change-your-facebook-account-password/"><u>Secure Social Media: Comprehensive Guide to Change Your Facebook Account Password</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier"
-date: 2024-09-11T23:07:25.961Z
-updated: 2024-09-19T03:11:59.746Z
+date: 2024-09-16T17:07:26.595Z
+updated: 2024-09-23T16:47:55.526Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d8f2922d20e310fe909f77a8d8b81c6fbacf60f301e5bf6586c75f1b0b08c5ac.jpeg
@@ -31,21 +31,35 @@ _Ulf Persson, PDG d'ABBYY Groupe_
 
 Ce partenariat stratégique entre DOXIO et ABBYY marque une étape significative dans le domaine de la gestion documentaire. Les deux entreprises sont résolues à façonner l'avenir de ce secteur en offrant des solutions de pointe.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À PROPOS DE DOXIO
 
 Avec plus de 400 clients et près de 60 millions d’euros de chiffres d’affaires, DOXIO est un acteur majeur de la gestion documentaire, de la donnée et de l’identification à distance. Tiers de confiance créé il y a plus de 30 ans et filiale du Crédit Agricole, DOXIO couvre l’ensemble des processus papier et numériques au-travers de quatre domaines d’activité : la communication client, la dématérialisation et l’archivage, les plateformes digitales et les solutions de certification et de sécurité. Acteur français et 100% localisé en France, DOXIO emploie 400 salariés sur 9 sites de production, au plus près des entreprises et moteurs de leurs territoires.
 
 [www.doxio.com](http://www.doxio.com/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À PROPOS D’ABBYY
 
 ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous combinons l'innovation et l'expérience pour transformer les informations issues de documents stratégiques en résultats exploitables et pertinents, dans plus de 200 langues et en temps réel. Nous permettons à plus de 10 000 entreprises dans le monde, y compris de nombreuses entreprises du classement Fortune 500, d'avoir un impact majeur là où cela compte le plus : l'expérience client, l'excellence opérationnelle et la compétitivité. ABBYY est une entreprise mondiale dont le siège social se trouve à Milpitas, en Californie, et qui dispose de bureaux dans 14 pays. ABBYY est le partenaire [officiel d’intelligente automation du club de football féminin d'Arsenal](https://tools.techidaily.com/abbyy/products/). Pour plus d'informations, consultez le site www.abbyy.com/company et rejoignez-nous sur [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware?ref%5Fsrc=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) et [Facebook](https://www.facebook.com/ABBYYsoft/?locale=fr%5FFR).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -53,10 +67,10 @@ ABBYY transforme vos données pour les mettre au service de l'entreprise. Nous c
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -82,14 +96,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-endorsements-on-screen-shaping-perceptions-for-2024/"><u>[New] Endorsements on Screen Shaping Perceptions for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-game-changing-homes-in-blocktown/"><u>[Updated] In 2024, Game Changing Homes in Blocktown</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722967629296-easy-steps-to-fresh-software-upgrade-your-canon-d530s-performance-today/"><u>Easy Steps to Fresh Software: Upgrade Your Canon D530's Performance Today!</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/effortless-dvd-winx-dvd-copy-iso/"><u>Effortless DVD 복사기 WinX DVD Copy 활용: 원형 ISO 제작 기술에 대한 간단한 안내</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-y100i-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo Y100i Android SIM Unlock APK</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/windows-11-couldnt-be-installed-error-code-80240020-solved/"><u>Windows 11 Couldn't Be Installed Error Code 80240020 [Solved]</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-launching-a-channel-a-comprehensive-discosteps-guide/"><u>[New] 2024 Approved Launching a Channel A Comprehensive DiscoSteps Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-webcam-and-monitor-recording-how-to-combine/"><u>[Updated] Webcam & Monitor Recording How to Combine</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027179271-mp3/"><u>「ツイキャスから高品質のMP3ファイルへ変換ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44cm44ot44oh44kq5pig5yop44gm6kal44gl44kj44ge77yb44o744oi44op44ow44or44k344ol44o844og44kj44oz44kw44go5lplusu5q2j5oml6acg44cn/"><u>「ビデオ映像が見づらい！・トラブルシューティングと修正手順」</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-infinix-hot-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030048568-bup/"><u>効果的な方法でBUPファイルを再生：エラーに直面した際の詳細ガイド</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-tecno-spark-10-4g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Tecno Spark 10 4G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-effective-gamingcomputer-extension-mats-of-202er/"><u>The Most Effective Gaming/Computer Extension Mats of 202Er</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/who-benefits-from-nvidias-adaptable-generative-ai/"><u>Who Benefits From NVIDIA’s Adaptable Generative AI?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-ai-cant-replace-experts-in-coin-analysis/"><u>Why AI Can't Replace Experts in Coin Analysis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029041642-android/"><u>スマートフォンで動画が再生しないときの解決策: Androidを使った詳細ガイド</u></a></li>
 </ul></div>
 

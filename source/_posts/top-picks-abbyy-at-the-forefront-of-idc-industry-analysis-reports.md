@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports"
-date: 2024-09-13T01:06:22.380Z
-updated: 2024-09-19T03:46:57.536Z
+date: 2024-09-22T18:30:43.478Z
+updated: 2024-09-23T16:52:21.929Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5adbaedbc32c515398682e6a33ec3c2c1afff467021d3f18604d423ee17ce346.jpg
@@ -18,6 +18,13 @@ In diesem ersten Bericht von IDC werden KI-Technologien wie optische Zeichenerke
 ![abbyy-leads-in-idc-marketscape](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/abbyy-leads-in-idc-marketscape-pic.png?h=704&w=800)
 
 Das IDC-MarketScape-Analysemodell wurde entwickelt, um einen Überblick über die Wettbewerbsfähigkeit von ICT-Anbietern auf einem bestimmten Markt zu geben. Die Bewertung erfolgt nach einem stringenten Punktesystem, das sowohl qualitative als auch quantitative Kriterien berücksichtigt und in einer grafischen Darstellung der Position jedes Anbieters innerhalb eines bestimmten Marktes resultiert. Die Punktzahl in der Kategorie Capabilities bewertet das Produkt, die Markteinführung und die kurzfristige Geschäftsabwicklung des Anbieters. Die Strategiebewertung misst die Ausrichtung der Anbieterstrategien an den Kundenanforderungen in einem Zeitrahmen von drei bis fünf Jahren. Der Marktanteil der Anbieter wird durch die Größe der Icons dargestellt. 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
 
@@ -100,27 +107,20 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-preferred-speech-to-text-ipad-apps-3/"><u>[New] Preferred Speech-to-Text iPad Apps #3</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-strategizing-your-data-space-pre-eminent-cloud-services/"><u>[New] Strategizing Your Data Space Pre-Eminent Cloud Services</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-digital-symphony-recording-on-a-mac/"><u>[Updated] 2024 Approved Digital Symphony Recording on a Mac</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-quick-reference-guide-to-mastering-mobizens-screen-recording-tech/"><u>[Updated] In 2024, Quick Reference Guide to Mastering Mobizen's Screen Recording Tech</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-oppo-reno-10-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Oppo Reno 10 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-an-animated-gif-with-integrated-audio-a-step-by-step-guide/"><u>Creating an Animated GIF With Integrated Audio: A Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cutting-your-videos-into-halves-across-all-platforms-pc-mac-iphone-and-android/"><u>Cutting Your Videos Into Halves Across All Platforms: PC, Mac, iPhone & Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outube-openers-technique-one-and-technique-two/"><u>DIY YouTube Openers Technique One & Technique Two</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-animated-shiva-artwork-without-cost-or-hassle-top-tips-and-tricks/"><u>Download Animated Shiva Artwork Without Cost or Hassle: Top Tips and Tricks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-top-hd-movies-and-tv-shows-for-free-quick-secure-streamable-video-downloader/"><u>Download Top HD Movies & TV Shows for Free – Quick, Secure, Streamable Video Downloader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-guide-how-to-download-and-watch-ted-talks/"><u>Easy Guide: How to Download and Watch TED Talks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-to-watch-vob-movies-on-an-ipad-the-ultimate-tutorial/"><u>Easy Methods to Watch VOB Movies on an iPad – The Ultimate Tutorial</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-lava-blaze-2-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Lava Blaze 2 5G</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/step-by-step-guide-verify-linux-kernel-and-os-release-in-a-jiffy/"><u>Step-by-Step Guide: Verify Linux Kernel and OS Release in a Jiffy!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unlocking-youtube-on-facebook-feeds/"><u>[New] Unlocking YouTube on Facebook Feeds</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-infinix-note-30-vip-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Infinix Note 30 VIP Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-4k-media-apps-for-windows-7-free-downloads-and-how-tos/"><u>Best 4K Media Apps for Windows 7: Free Downloads & How-To's!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/boost-engagement-with-effective-wirecast-broadcasts-on-fb/"><u>Boost Engagement with Effective Wirecast Broadcasts on FB</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/expert-tips-for-overcoming-mp4-format-issues-with-powerdirector-software/"><u>Expert Tips for Overcoming MP4 Format Issues with PowerDirector Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/flacapple-losslesswindowsmac/"><u>FLACからApple Losslessへの変換手法：WindowsとMacで使える方法</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>In 2024, Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-unlock-vivid-visuals-windows-hdplus-guide-to-hdr-mastery/"><u>In 2024, Unlock Vivid Visuals Windows HD+ Guide to HDR Mastery</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: 伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減
-date: 2024-09-11T17:45:50.010Z
-updated: 2024-09-14T23:49:12.334Z
+date: 2024-09-22T18:04:07.447Z
+updated: 2024-09-23T18:21:53.899Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c010ac8c095463e82a02d0121c6ae49a6934a26c38ee953e2dee2be944508d80.jpg
@@ -34,6 +34,13 @@ ABBYYジャパン代表取締役社長 前田まりこのコメント
 この度の伊藤忠商事様への導入を契機として、多くの紙業務の課題が残る商社業界のみならず、金融や物流業界への導入支援を推進する予定です。  
 多くのお客様に採用されているABBYYのソリューションで日本のお客様の業務自動化と効率化を促進し、生産性とビジネス拡大に大きく貢献できるよう、今後もプロダクト改善と機能拡充に努めます」
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYについて
 
 ABBYYはインテリジェント・オートメーションを推進するリーディング・カンパニーです。オートメーション・プラットフォームの原動力となるテクノロジーを提供することにより、人々の働き方やビジネス加速の方法に新しいビジョンをもたらしています。ABBYYのソリューションは、企業データを変換し、よりスマートかつ迅速な業務の遂行に必要なインサイトを提供します。 
@@ -45,6 +52,13 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 詳細は[www.abbyy.com/ja/company/about-us/](https://tools.techidaily.com/abbyy/products/)をご覧ください。
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
 
@@ -69,19 +83,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-camtasia-tutorial-implementing-the-classic-ken-burns-effect-for-2024/"><u>[New] Camtasia Tutorial Implementing the Classic Ken Burns Effect for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-optimizing-colors-in-films-via-luts/"><u>[Updated] In 2024, Optimizing Colors in Films via Luts</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-elevate-your-career-best-video-resume-makers-and-templates-for-2024/"><u>New Elevate Your Career Best Video Resume Makers and Templates for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-easy-entryway-initiating-a-live-discussion-on-instagram/"><u>[New] Easy Entryway Initiating a Live Discussion on Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-minimalists-guide-to-aerial-imagery-with-dji-spark/"><u>[New] The Minimalist's Guide to Aerial Imagery with DJI Spark</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44cm44ow44op44km44k244ky44o844og44gu44oq44ki44or44k44kk44og5ypluso6yyy44gm5yplusv6io944gq5pya5paw44k944ov44oi44go44gd44gu5l244ge5pa544cn/"><u>「ブラウザゲームのリアルタイム収録が可能な最新ソフトとその使い方」</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-engagement-mastering-the-art-of-looped-videos-for-ig/"><u>2024 Approved Elevate Engagement Mastering the Art of Looped Videos for IG</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-honor-v-purse-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Honor V Purse without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-galaxy-m34-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Galaxy M34 on Windows??</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals/"><u>In 2024, TwitTrek Toolkit A Comprehensive Approach to Saving Tweets' Visuals</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-the-art-of-batch-file-and-folder-deletion-in-windows-11-pcs/"><u>Mastering the Art of Batch File and Folder Deletion in Windows 11 PCs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030573661-mp4windows-1011/"><u>MP4ファイルがWindows 10/11メディアプレーヤーで正常に再生されない場合のトラブルシューティング</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030490891-pc/"><u>PCゲームライブ配信動画編集手順</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unmatched-access-the-finest-5-browser-tools-for-fb-videos/"><u>Unmatched Access The Finest 5 Browser Tools for FB Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/why-it-matters-to-be-courteous-when-speaking-to-artificial-intelligence-insights-on-chatgpt-alexa-and-siri/"><u>Why It Matters to Be Courteous When Speaking to Artificial Intelligence: Insights on ChatGPT, Alexa & Siri</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

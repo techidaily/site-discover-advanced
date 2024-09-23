@@ -1,7 +1,7 @@
 ---
 title: ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題
-date: 2024-09-15T23:56:19.413Z
-updated: 2024-09-19T02:37:27.424Z
+date: 2024-09-20T17:45:49.801Z
+updated: 2024-09-23T16:19:47.445Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453eb6e04c1cfde40ef70bbce3.jpg
@@ -13,9 +13,23 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
 
@@ -26,6 +40,13 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 目的に特化したAIというABBYYのビジョンにより、企業は最善のAIモデルを活用し、最適化された信頼性の高い成果を得ることができます。OCRの効率向上に継続的に注力し、構築済みモデルやパッケージソリューションの市場を拡大することで、市場での地位をさらに強固なものにしています。モデルトレーニングのしやすさ、市場の幅広さ、クラウドサービスは、ABBYYの顧客が特に評価する主要な長所の一部です。 
 
 _**Vaibhav Bansal, Vice President, Everest Group**_
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
@@ -98,26 +119,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-surviving-the-block-top-houses/"><u>[New] In 2024, Surviving the Block Top Houses</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-professional-guide-expertise-in-vimeo-video-logging/"><u>[New] Professional Guide Expertise in Vimeo Video Logging</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027179271-mp3/"><u>「ツイキャスから高品質のMP3ファイルへ変換ガイド」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726030048568-bup/"><u>効果的な方法でBUPファイルを再生：エラーに直面した際の詳細ガイド</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/deciphering-twitch-downtime-from-personal-connectivity-glitches-a-comprehensive-guide/"><u>Deciphering Twitch Downtime From Personal Connectivity Glitches: A Comprehensive Guide</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-vivo-y100t-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Vivo Y100t to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/maximizing-visibility-tips-for-linking-and-sharing-chatbot-talks/"><u>Maximizing Visibility: Tips for Linking and Sharing Chatbot Talks</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/navigating-the-waters-of-education-savings-a-step-by-step-to-snagging-a-tidal-academic-discount/"><u>Navigating the Waters of Education Savings: A Step-by-Step to Snagging a Tidal Academic Discount</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-unleash-pro-level-video-editing-with-64-bit-software/"><u>New 2024 Approved Unleash Pro-Level Video Editing with 64-Bit Software</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/self-verification-on-instagram-does-it-serve-us/"><u>Self-Verification on Instagram Does It Serve Us?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wonderfox-hd-video-converter-pro-factory-edition/"><u>WonderFox HD Video Converter Pro Factory Editionが正常にインストールされました。よろしくお願い致します!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029041642-android/"><u>スマートフォンで動画が再生しないときの解決策: Androidを使った詳細ガイド</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-effortlessdataback-take/"><u>[New] EffortlessDataback Take</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-choice-collection-high-quality-virtual-reality-titles-for-cardboard-for-2024/"><u>[Updated] Choice Collection High-Quality Virtual Reality Titles for Cardboard for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-express-corporate-essence-designing-emblems-on-the-go/"><u>2024 Approved Express Corporate Essence - Designing Emblems on the Go</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-free-live-streaming-platforms-for-the-exciting-ncaa-basketball-march-madness-tournament/"><u>Best Free Live Streaming Platforms for the Exciting NCAA Basketball March Madness Tournament</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-installation-guide-intel-ac-7260-dual-band-wifi-card-driver-download/"><u>Effortless Installation Guide: Intel AC 7260 Dual Band WiFi Card Driver Download</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-ashen-crash-error-fast-easy-techniques-inside/"><u>Fixing the Ashen Crash Error - Fast, Easy Techniques Inside!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gifs-that-speak-volumes-unveiling-6-critical-strategies-for-memetic-design/"><u>In 2024, GIFs That Speak Volumes Unveiling 6 Critical Strategies for Memetic Design</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-audio-prime-websites-for-turning-video-melodies-into-sound-effects/"><u>In 2024, Seamless Audio Prime Websites for Turning Video Melodies Into Sound Effects</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/outdated-plugins-for-modern-chatgpt-usage/"><u>Outdated Plugins for Modern ChatGPT Usage</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/yify-iphoneipadpsp/"><u>YIFY 映画ファイル iPhone・iPad・PSP用のダウンロードと効率的再生ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/youtube202youtube-ics/"><u>Youtubeで配信中止の202지YouTube 볼륨 다운로드 편ics를 구하는 コツ</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/vlog6/"><u>ユーザーから愛されるVlog動画のための編集ツールトップ6ピック</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

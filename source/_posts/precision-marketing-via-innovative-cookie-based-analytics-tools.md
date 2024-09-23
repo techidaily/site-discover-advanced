@@ -1,7 +1,7 @@
 ---
 title: Precision Marketing via Innovative Cookie-Based Analytics Tools
-date: 2024-09-17T22:53:21.124Z
-updated: 2024-09-18T22:01:27.094Z
+date: 2024-09-20T18:14:17.506Z
+updated: 2024-09-23T17:31:17.530Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a5e29cc0296d5b97722e8cc9.png
@@ -17,6 +17,13 @@ June 20, 2016
 
 ![OCR developers](https://static4.abbyy.com/abbyycommedia/25830/76061989_thumbnail.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why do world-leading developers choose to use ABBYY SDKs?
 
 More and more software developers are working to incorporate advanced Optical Character Recognition (OCR) and data capture into their applications and solutions. The ability to capture printed information and make it digital is an important capability, especially in info-intense fields like financial services, healthcare, banking, and high-tech industries.
@@ -28,6 +35,13 @@ But why spend months writing your own technology and struggling with solutions t
 
   
 ABBYY offers a suite of professional grade capture tools in our family of SDK products that work together to provide a platform for success.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYY SDK Toolkits
 
@@ -43,6 +57,13 @@ Our SDK toolkits are based on our award-winning recognition platform and they en
 
 [![OCR developers, OCR API](https://static1.abbyy.com/abbyycommedia/25832/76061989_thumbnail-300x300.jpg)](https://www.abbyy.com/media/25832/76061989%5Fthumbnail-300x300.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can integrate those same cutting-edge abilities without the need to start from scratch. And you’ll quickly benefit from professional grade ABBYY SDKs capabilities that simply are not possible using freeware and open source code.
 
 [Access our OCR SDK page](https://tools.techidaily.com/abbyy/products/) to learn more about ABBYY FineReader Engine. Now is the time to consider how it and [other ABBYY SDKs](https://tools.techidaily.com/abbyy/products/) can help you. Get a free trial at [www.ABBYY.com/OCR-SDK/](https://www.ABBYY.com/OCR-SDK/) or call +1 (408) 457-9777.
@@ -50,10 +71,10 @@ Now you can integrate those same cutting-edge abilities without the need to star
 [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -119,17 +140,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-glassify-privacy-webcam-panel/"><u>[New] Glassify Privacy Webcam Panel</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-seamlessly-embedded-your-tiktok-bios-direct-link-method/"><u>[Updated] 2024 Approved Seamlessly Embedded Your TikTok Bio's Direct Link Method</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1726028828347-8/"><u>鑑賞のために！今月の一流、中国映像作品専用フリーウェブサイトベスト8選</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-play-7t-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor Play 7T? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-nokia-xr21-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Nokia XR21.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-definitive-walkthrough-on-implementing-copilot-in-microsoft-teams/"><u>The Definitive Walkthrough on Implementing Copilot in Microsoft Teams</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unleashing-creativity-with-captivating-image-assemblies-for-2024/"><u>Unleashing Creativity with Captivating Image Assemblies for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-13c-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi 13C Device</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-podcastpioneers-charting-new-territories-for-2024/"><u>[New] PodcastPioneers Charting New Territories for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-how-to-quickly-craft-perfect-subtitles-and-captions-for-facebook-video-feeds-for-2024/"><u>[Updated] How To Quickly Craft Perfect Subtitles and Captions for Facebook Video Feeds for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-plant-pals-playlist-the-best-agrigames-for-friends/"><u>2024 Approved Plant Pals' Playlist The Best AgriGames for Friends</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-dominate-the-battlefield-learn-vocal-modification-for-free-fire-characters-for-2024/"><u>How to Dominate the Battlefield Learn Vocal Modification for Free Fire Characters for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-and-effortless-upgrade-to-latest-scansnap-ix500-windows-drivers-how-to-guide/"><u>Quick and Effortless Upgrade to Latest ScanSnap iX500 Windows Drivers: How To Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-instructions-for-downloading-inshot-editing-software-on-pc/"><u>Step-by-Step Instructions for Downloading InShot Editing Software on PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-tutorial-converting-movies-tofrom-wmv-with-simple-techniques/"><u>Step-by-Step Tutorial: Converting Movies To/From WMV with Simple Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamline-your-smartphone-screen-activatedeactivate-pip-for-youtube-for-2024/"><u>Streamline Your Smartphone Screen Activate/Deactivate PIP for YouTube for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/success-story-overcoming-plex-avi-playback-challenges-with-easy-steps/"><u>Success Story: Overcoming Plex AVI Playback Challenges with Easy Steps!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-drive-with-the-escort-ix-the-cutting-edge-ai-jammer-for-smart-drivers/"><u>Transform Your Drive with the Escort iX: The Cutting-Edge AI Jammer for Smart Drivers</u></a></li>
 </ul></div>
 

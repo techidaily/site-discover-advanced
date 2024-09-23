@@ -1,7 +1,7 @@
 ---
 title: "Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies"
-date: 2024-09-08T20:45:55.668Z
-updated: 2024-09-14T20:12:05.415Z
+date: 2024-09-16T17:41:09.504Z
+updated: 2024-09-23T16:31:47.617Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a1248d9b4e7ad7b3aedb40cb2befdc93715f7a75414c6458bd1e077bee973ffa.jpg
@@ -14,6 +14,13 @@ Third-party content
 ## ABBYY Takes the Lead in Quadrant Knowledge Solutions’ 2022 SPARK Matrix for Intelligent Document Processing 
 
 ![ABBYY is Leader in SPARK Matrix: Intelligent Document Processing (IDP), 2022](https://static1.abbyy.com/abbyycommedia/36496/11-01-23-vertical-spark-quadrant-knowlege-solutions.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY named 2022 technology leader of Intelligent Document Processing (IDP)
 
@@ -31,29 +38,36 @@ _Quadrant Knowledge Solutions_
 
 The Quadrant Knowledge Solutions SPARK Matrix™ includes a detailed analysis of global market dynamics, major trends, vendor landscape, and competitive positioning. The study provides competitive analysis and ranking of the leading technology vendors in the form of its SPARK Matrix. It gives strategic information for users to evaluate different provider capabilities, competitive differentiation, and market position.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you for your interest in ABBYY.
 
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/analystreport-intelligent-document-processing-quadrant-en.pdf "Read the report") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### You might also be interested in...
 
 [![ISG Provider Lens™ Intelligent Automation - IDP, 2021](https://static2.abbyy.com/abbyycommedia/35251/145-ia-solutionsandservices-idp-360x232.jpg) ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report See report](https://digital.abbyy.com/hubfs/documents/content/analystreport-intelligent-document-processing-isg-provider-lens-en.pdf "ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report ")[![ABBYY Vantage IDP](https://static4.abbyy.com/abbyycommedia/34808/vantage-new-product-video.jpg) ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce Learn more](https://www.abbyy.com/vantage/ "ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce")[![Intelligent Document Processing | ABBYY Blog](https://static1.abbyy.com/abbyycommedia/34870/ap-content-2-848x444.jpg) What Is Intelligent Document Processing (IDP), and How Does It Work? Read article](https://www.abbyy.com/blog/intelligent-document-processing/ "What Is Intelligent Document Processing (IDP), and How Does It Work?") 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -124,12 +138,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-fueled-solutions-enhancing-your-digital-experience/"><u>Cookiebot-Fueled Solutions: Enhancing Your Digital Experience</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-infinix-smart-8-plus-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Infinix Smart 8 Plus to Roku | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-honor-play-7t-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Honor Play 7T</u></a></li>
-<li><a href="https://techidaily.com/simple-solutions-resolve-your-logitech-keyboard-delay-issues-with-these-effortless-tips/"><u>Simple Solutions: Resolve Your Logitech Keyboard Delay Issues with These Effortless Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ling-the-mystery-of-youtubes-monetization-rates-for-2024/"><u>Unveiling the Mystery of YouTube's Monetization Rates for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-revolutionize-your-vlog-with-these-elite-12-cameras/"><u>[New] 2024 Approved Revolutionize Your Vlog with These Elite 12 Cameras</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamlining-group-chats-on-skype-for-dual-os-environments/"><u>[Updated] Streamlining Group Chats on Skype for Dual OS Environments</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-s18-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo S18</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030401410-avisynth/"><u>AviSynthプラグインを使った動画の向き変え手順</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028888456-avisynth/"><u>AviSynthを使って簡単なビデオ編集 - ステップバイステップガイド</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/conversion-facile-et-sans-frais-de-dts-vers-mp3-en-ligne-via-la-solution-de-movavi/"><u>Conversion Facile Et Sans Frais De DTS Vers MP3 en Ligne via La Solution De Movavi</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-way-to-get-the-latest-canon-driver-software-on-windows-devices/"><u>Effortless Way to Get the Latest Canon Driver Software on Windows Devices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-tools-and-websites-for-converting-wav-audio-to-mp3-on-pcmac-step-by-step-guide/"><u>Free Tools & Websites for Converting WAV Audio to MP3 on PC/Mac - Step-by-Step Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-honor-90-lite-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Honor 90 Lite Fingerprint Lock</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-13-pro-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix iPhone 13 Pro Unavailable Issue With Ease</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028762577-mp3/"><u>MP3フォーマットにおけるサウンドクオリティ向上のステップバイステップガイド</u></a></li>
+<li><a href="https://win-web.techidaily.com/pay-to-keep-your-pc-updated-find-out-how-much-microsoft-plans-to-charge-for-windows-11-updates-from-next-year-onwards-zdnet-insight/"><u>Pay to Keep Your PC Updated? Find Out How Much Microsoft Plans to Charge for Windows 11 Updates From Next Year Onwards | ZDNet Insight</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027301907-pc60fps/"><u>PC上でスムーズな60FPS動画編集入門：初心者が始められる技術ガイド</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030181157-windows-10/"><u>Windows 10環境下での画面記録: オンボードアクセサリ無しに済む解決策</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030007316-windows-11107/"><u>Windows 11/10/7でのビデオの縦横回転テクニックの完全ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028548117-youtubemp3/"><u>YouTube動画を高音質MP3に簡単にコンバートする方法とテクニック</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027295203-microsoft-teams/"><u>レコーディング機能に問題がある時、Microsoft Teamsでどうすれば良いか</u></a></li>
 </ul></div>
 

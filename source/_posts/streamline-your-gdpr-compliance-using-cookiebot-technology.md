@@ -1,7 +1,7 @@
 ---
 title: Streamline Your GDPR Compliance Using Cookiebot Technology
-date: 2024-09-17T01:28:43.172Z
-updated: 2024-09-19T02:58:24.372Z
+date: 2024-09-21T18:34:21.503Z
+updated: 2024-09-23T17:20:50.462Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d545d1676a1f32d06cb990c5.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d
 11月17日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 日本の従業員における42%は「AIで業務負担の軽減になる」と回答  
 深刻化する人手不足の中で注目される「ドキュメントAI」
@@ -52,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/94567bf4df3b715033d93123bd31d8eb4bb0ab79d
 
 [![](https://static1.abbyy.com/abbyycommedia/34771/infographic-for-survey-jp.jpg)](https://www.abbyy.com/media/34771/infographic-for-survey-jp.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 【調査方法】
 
 本調査はABBYYが委託し、Sapio Research社が2021年9、10月に実施。英国、米国、フランス、ドイツ、日本の企業（従業員500人以上）で働く5,025人を対象とし、ドキュメント内のデータにアクセスする際の問題、幅広い影響、ソフトウェアと自動化技術の役割について聞き取り調査を実施しました。
@@ -83,23 +97,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-a-comprehensive-look-at-quantum-hdr/"><u>[New] A Comprehensive Look at Quantum HDR</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-privishield-shield-and-cam-cover/"><u>[New] In 2024, PriviShield Shield & Cam Cover</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-animated-shiva-artwork-without-cost-or-hassle-top-tips-and-tricks/"><u>Download Animated Shiva Artwork Without Cost or Hassle: Top Tips and Tricks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-top-hd-movies-and-tv-shows-for-free-quick-secure-streamable-video-downloader/"><u>Download Top HD Movies & TV Shows for Free – Quick, Secure, Streamable Video Downloader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-guide-how-to-download-and-watch-ted-talks/"><u>Easy Guide: How to Download and Watch TED Talks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-to-watch-vob-movies-on-an-ipad-the-ultimate-tutorial/"><u>Easy Methods to Watch VOB Movies on an iPad – The Ultimate Tutorial</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-erase-your-yahoo-mail-account-forever-a-step-by-step-process/"><u>How to Erase Your Yahoo Mail Account Forever – A Step-by-Step Process</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-score-free-adventures-tiktoks-hidden-background-gemstones/"><u>In 2024, Score-Free Adventures TikTok's Hidden Background Gemstones</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/no-charges-yes-to-superior-free-webm-player-selections/"><u>No Charges? Yes to Superior, Free WebM Player Selections</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-copyright-recordings-and-their-permissibility-for-2024/"><u>YouTube Copyright Recordings and Their Permissibility for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[New] Best Photo to Cartoon Software for Windows & Mac</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-film-fanatics-unite-ioss-best-free-and-paid-filmmaking-tools-for-2024/"><u>[Updated] Film-Fanatics Unite! IOS's Best Free & Paid Filmmaking Tools for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-cutting-edge-convenience-smartwatch-mac-access/"><u>[Updated] In 2024, Cutting-Edge Convenience Smartwatch, Mac Access</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-breakthrough-in-computing-in-depth-review-of-the-stellar-ultra-lightweight-lg-gram-156-laptop/"><u>A Breakthrough in Computing: In-Depth Review of the Stellar, Ultra-Lightweight LG Gram 15.6 Laptop</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030401410-avisynth/"><u>AviSynthプラグインを使った動画の向き変え手順</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-chatgpt-copilot-plugin-functionality-overview-for-enhanced-browsing/"><u>Exploring ChatGPT Copilot Plugin: Functionality Overview for Enhanced Browsing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-m34-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy M34 Device</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030573661-mp4windows-1011/"><u>MP4ファイルがWindows 10/11メディアプレーヤーで正常に再生されない場合のトラブルシューティング</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030490891-pc/"><u>PCゲームライブ配信動画編集手順</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

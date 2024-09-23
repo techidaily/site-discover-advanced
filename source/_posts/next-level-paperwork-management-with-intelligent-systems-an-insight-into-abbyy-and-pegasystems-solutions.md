@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions"
-date: 2024-09-17T03:30:53.367Z
-updated: 2024-09-18T22:09:16.605Z
+date: 2024-09-16T16:50:53.904Z
+updated: 2024-09-23T16:56:18.399Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef1524e233743a9045ce3a1167e9.jpg
@@ -22,6 +22,20 @@ Enabling Pega BPM and RPA to transform documents and unstructured content automa
 As a Pega technology partner, ABBYY provides Intelligent Document Processing solutions that enable Pega customers to add a new level of automation to their handling of documents and unstructured content. ABBYY’s technology automatically classifies and extracts document data, turning content into structured, actionable information that makes Pega processes smarter—dramatically improving the customer experience and increasing operational efficiency.
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Integration benefits
 
@@ -44,6 +58,13 @@ ABBYY FlexiCapture Connector for Pega enables Pega BPM and RPA to transform docu
 [Download connector](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Selected use cases
 
@@ -68,17 +89,10 @@ Adding FlexiCapture to Pega’s Accounts Payable processes easily manages this c
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -100,20 +114,19 @@ Adding FlexiCapture to Pega’s Accounts Payable processes easily manages this c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-best-mac-screen-capture-tools/"><u>[New] Best Mac Screen Capture Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-premium-cloud-storage-services-a-guides-choice/"><u>[New] Premium Cloud Storage Services A Guide's Choice</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-revamp-your-resonance-the-7-premier-voice-recorder-change-android-apps-for-2024/"><u>[New] Revamp Your Resonance The 7 Premier Voice Recorder Change Android Apps for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-essential-tips-for-converting-videos-to-mac-discs/"><u>[Updated] 2024 Approved Essential Tips for Converting Videos to Mac Discs</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-samsung-galaxy-m34-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Samsung Galaxy M34 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/55s76z2i5pku5b2x5pmc44gr44kq44o844oh44kj44kq44oi44op44od44kv6lplus95yqg44gu57ch5y2y44ks44kk44oj/"><u>画面撮影時にオーディオトラック追加の簡単ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/detailed-assessment-of-the-asus-prime-ap-750g-gold-750w-power-unit-reviews-and-insights/"><u>Detailed Assessment of the Asus Prime AP-750G Gold 750W Power Unit: Reviews and Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-oppo-a56s-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Oppo A56s 5G Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-samsung-galaxy-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigate-and-watch-harnessing-netflixs-picture-in-picture-functionality/"><u>Navigate and Watch Harnessing Netflix's Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-lol-gaming-on-air-top-3-recording-methods/"><u>[Updated] In 2024, LOL Gaming On Air Top 3 Recording Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-pace-your-panorama-learning-time-lapses-on-samsung-phones/"><u>[Updated] Pace Your Panorama Learning Time-Lapses on Samsung Phones</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-unlocking-full-potential-in-zoom-screensharing/"><u>[Updated] Unlocking Full Potential in Zoom Screensharing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pixelpioneer-8-version-visual-conjurer/"><u>2024 Approved PixelPioneer 8-Version Visual Conjurer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/big-sur-basics-for-system-and-hardware-enthusiasts-for-2024/"><u>Big Sur Basics for System & Hardware Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevating-your-nba-experience-with-advanced-streaming-for-2024/"><u>Elevating Your NBA Experience with Advanced Streaming for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improve-your-play-the-ultimate-fix-guide-to-overcome-stuttering-in-hogwarts-legacy/"><u>Improve Your Play: The Ultimate Fix Guide to Overcome Stuttering in Hogwarts Legacy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin"
-date: 2024-09-11T22:46:51.829Z
-updated: 2024-09-14T16:36:50.236Z
+date: 2024-09-17T16:53:10.590Z
+updated: 2024-09-23T17:07:07.099Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/289536a26b86dc5c26586097f9ebf58e81d35aa537c61d20d15b54d1edc660b4.jpg
@@ -76,23 +76,32 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-easy-mastery-of-ipad-video-recording/"><u>[New] Easy Mastery of iPad Video Recording</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapchat-story-genius-over-a-hundred-story-ideas-to-elevate-your-social-narrative/"><u>[New] In 2024, Snapchat Story Genius Over a Hundred Story Ideas to Elevate Your Social Narrative</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-link-films-for-organized-youtube-display/"><u>[New] Link Films for Organized YouTube Display</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-11-favorite-places-to-legally-stream-or-download-films-for-free/"><u>Discover 11 Favorite Places to Legally Stream or Download Films for Free</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-customer-onboarding-with-mobile-ocr-technology/"><u>Enhancing Customer Onboarding with Mobile OCR Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-digital-marketing-strategies-the-efficiency-of-cookiebot-technology/"><u>Enhancing Digital Marketing Strategies: The Efficiency of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-rpa-efficiency-using-all-encompassing-enterprise-workflow-analysis-tools/"><u>Enhancing RPA Efficiency Using All-Encompassing Enterprise Workflow Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-sticker-free-video-creation-on-tiktok/"><u>In 2024, Expert Sticker-Free Video Creation on TikTok</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-itel-a05s-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Itel A05s Phones with/without a PC</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-androids-dreamland-discover-top-15-immersive-gameplay/"><u>[Updated] 2024 Approved Android's Dreamland Discover Top 15 Immersive Gameplay</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-effortless-video-recordings-of-google-meets-on-phones-for-2024/"><u>[Updated] Effortless Video Recordings of Google Meets on Phones for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-record-online-tv-shows-for-2024/"><u>[Updated] How to Record Online TV Shows for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/55s76z2i5pku5b2x5pmc44gr44kq44o844oh44kj44kq44oi44op44od44kv6lplus95yqg44gu57ch5y2y44ks44kk44oj/"><u>画面撮影時にオーディオトラック追加の簡単ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-accessibility-learn-how-to-insert-subtitles-into-your-vimeo-content-easily/"><u>Enhancing Accessibility: Learn How to Insert Subtitles Into Your Vimeo Content Easily</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exclusive-discounts-on-wonderfox-pro-hd-media-processor-factory-edition-advanced-video-conversion-technology/"><u>Exclusive Discounts on WonderFox Pro HD Media Processor Factory Edition - Advanced Video Conversion Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exploring-the-basics-of-video-transcoding-with-wonderfoxs-detailed-tutorial/"><u>Exploring the Basics of Video Transcoding with WonderFox's Detailed Tutorial</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/get-your-factory-pro-for-ipod-videos-securely-guaranteed-safe-purchase-today/"><u>Get Your Factory Pro for iPod Videos Securely – Guaranteed Safe Purchase Today!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-v30-lite-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo V30 Lite 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-instagrams-video-upload-constraints-a-detailed-guide/"><u>Mastering Instagram's Video Upload Constraints A Detailed Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/resonant-revelry-auditory-additions-to-whatsapp-statues/"><u>Resonant Revelry Auditory Additions to WhatsApp Statues</u></a></li>
+<li><a href="https://driver-install.techidaily.com/reviving-gpu-performance-master-the-newest-ddu-tactics/"><u>Reviving GPU Performance - Master the Newest DDU Tactics</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-the-warframe-not-launching-dilemma-a-step-by-step-guide/"><u>Solving the 'Warframe Not Launching' Dilemma - A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-lava-yuva-2-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Lava Yuva 2 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-tactics-when-are-my-car-speakers-going-blind/"><u>Troubleshooting Tactics: When Are My Car Speakers Going Blind?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

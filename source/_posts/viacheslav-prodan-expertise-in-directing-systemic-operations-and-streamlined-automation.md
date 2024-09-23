@@ -1,7 +1,7 @@
 ---
 title: "Viacheslav Prodan: Expertise in Directing Systemic Operations & Streamlined Automation"
-date: 2024-09-13T18:28:23.950Z
-updated: 2024-09-14T17:35:32.515Z
+date: 2024-09-20T16:17:02.355Z
+updated: 2024-09-23T17:42:26.069Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/603cef112c71acaaa3fdccdd6f7a956de3ad09701fee843146114a343a411d66.jpg
@@ -41,38 +41,24 @@ With a free schedule, my morning starts with deciding where I will work today—
 
 ![ABBYY Customer Excellence team](https://static1.abbyy.com/abbyycommedia/36641/abbyy-team.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What keeps you going, and what do you enjoy the most in your role, any highlights?
 
 I can honestly say that I love what I do and have confidence in my own abilities to do a great job. It’s very fulfilling to see the results of our work and helping to improve the lives of employees around the world. I am also grateful for the support of my colleagues and manager. I’m certainly living by the phrase: “Do what you love, and you’ll never work another day in your life.”
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What was your previous experience before ABBYY?
 
 I was head of technical support at the largest private logistics company in Ukraine—working my way up from being a systems administrator. It was there that I discovered my love for automation and optimization. I saw the first results of automating repetitive manual tasks and was awestruck at how much time and effort it could save employees.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Your top advice to someone joining ABBYY in your function?
 
 Sometimes you need to take a step back and look at what you're doing to determine if everything is right. Self-analysis, the desire to do something for people, and not be afraid to voice the most daring proposals are key attributes. And most importantly, enjoy what you do and how you do it. This is what I expect from an employee on my team.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How do you spend your free time?
 
@@ -80,7 +66,21 @@ In recent years, I have been trying to spend more time in nature and have been c
 
 ![camping](https://static1.abbyy.com/abbyycommedia/36643/camping-abbyy-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When I’m not taking trips or camping breaks, I love to play board games with friends. I’m also guilty of spending hours online just looking for information about new technologies or breakthroughs in IT (information technology) or what tech companies are doing. I have a real thirst for tech news.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### If you could have one wish come true, what would it be?
 
@@ -96,6 +96,13 @@ People who don’t learn from their mistakes. This is important so that you can 
 
 The “Intouchables” movie—it's an incredible story.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
 [See all open positions](https://boards.eu.greenhouse.io/abbyy/?itm%5Fsource=corpblog)
@@ -103,10 +110,10 @@ The “Intouchables” movie—it's an incredible story.
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -172,19 +179,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-adding-music-mini-banners-on-instagram-profiles/"><u>[New] In 2024, Adding Music Mini-Banners on Instagram Profiles</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-keeping-synchronization-fix-frame-disruptions-in-obs-for-2024/"><u>[New] Keeping Synchronization Fix Frame Disruptions in OBS for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-quieten-system-sounds-on-pc-and-mac-devices/"><u>[New] Quieten System Sounds on PC and Mac Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-transforming-dull-interviews-into-engaging-assessments/"><u>[Updated] In 2024, Transforming Dull Interviews Into Engaging Assessments</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-campaigns-with-cookiebot-technology/"><u>Enhanced Marketing Campaigns with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-precision-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Precision with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-our-cookiebot-driven-technology/"><u>Enhanced Personalization with Our Cookiebot-Driven Technology</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-frame-rate-and-smoothness-problems-in-red-dead-redemption-2/"><u>Fixing Frame Rate & Smoothness Problems in Red Dead Redemption 2</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-play-7t-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor Play 7T to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/simplified-techniques-for-reordering-yt-videos-for-2024/"><u>Simplified Techniques for Reordering YT Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/top-9-invisible-media-extractors-for-2024/"><u>Top 9 Invisible Media Extractors for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/xpert-advice-yt-clip-sharing-using-your-google-id/"><u>[New] Expert Advice YT Clip Sharing Using Your Google ID</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>[New] In 2024, Annual Roundup Top No-Money Video Editing Software Reviewed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-savvy-obs-arrangement-for-economical-pcs/"><u>[Updated] Savvy OBS Arrangement for Economical PCs</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/gratuit-centre-de-telechargement-winx-convertisseur-video-ripper-dvd-et-outils-multimedia-professionnels/"><u>Gratuit Centre De Téléchargement WinX - Convertisseur Vidéo, Ripper DVD Et Outils Multimédia Professionnels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-shield-your-digital-presence-from-the-risks-posed-by-fraudgpt/"><u>How to Shield Your Digital Presence From the Risks Posed by FraudGPT</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-x100-pro-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo X100 Pro</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-honor-80-pro-straight-screen-edition-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Honor 80 Pro Straight Screen Edition Lock Screen Password</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-instructions-for-downloading-inshot-editing-software-on-pc/"><u>Step-by-Step Instructions for Downloading InShot Editing Software on PC</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-effective-management-of-your-tweets-with-a-content-calendar/"><u>Step-by-Step Tutorial: Effective Management of Your Tweets with a Content Calendar</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/windows-mac-and-mobile-stability-a-comprehensive-guide-to-smooth-video-playback/"><u>Windows, Mac & Mobile Stability: A Comprehensive Guide to Smooth Video Playback</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

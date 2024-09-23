@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-09-13T02:22:47.273Z
-updated: 2024-09-19T00:38:55.887Z
+date: 2024-09-18T18:52:22.150Z
+updated: 2024-09-23T17:29:23.827Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -21,6 +21,13 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
 
 以下のリストでは、見逃したかもしれない2020年のプロセスインテリジェンス記事のトップピックを厳選しました。ビジネスをDXの成功に向けて推進したストーリー、業務プロセスへの新しいアプローチを奨励したストーリー、企業の回復力を高めるためのヒントなどです。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. ABBYY CMO Scott OpitzによるQ&Aセッション
 
 ![Scott Opitz ABBYY CMO](https://static1.abbyy.com/abbyycommedia/32066/1.jpg)
@@ -29,11 +36,25 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. DXの成功はプロセスの真実を理解することから
 
 デジタルインテリジェンスは、企業にとって今最も重要と考えられている場所、つまり顧客体験、競争上の優位性、可視性、コンプライアンスに多大な影響を与えます。 ABBYYのデジタルマーケティングのディレクターでありプロセスのエキスパートであるRyan Raikerは、RTInsights.comの記事で、どのようにビジネスが組織のプロセスを深く理解する必要としているかを説明しています。
 
 [記事はこちら](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. 業務プロセスとリスク、失敗の理解
 
@@ -57,19 +78,6 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 米国で非常事態宣言が発令されてからわずか数週間後の3月下旬、Amazonでさえ1か月もの配達遅延が発生したと報告されました。 ABBYYの製品マーケティング担当役員（Vice President）であるBruce Orcuttは、サプライチェーンが回復力を発揮するためには、迅速にピボット（軸を決めて旋回）できる必要があるとSupply & Demand Chain Executiveで語っています。
 
 [記事はこちら](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
@@ -89,10 +97,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
@@ -100,13 +108,6 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 **_詳細、体験版申し込みは[こちら](https://tools.techidaily.com/abbyy/products/)より承ります。_**
 
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -171,20 +172,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-best-editors-for-diy-dji-film-production-at-home/"><u>[New] Best Editors for DIY DJi Film Production at Home</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-innovative-posting-add-youtube-to-your-insta-narratives-for-2024/"><u>[Updated] Innovative Posting Add YouTube to Your Insta Narratives for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44cm44ow44op44km44k244ky44o844og44gu44oq44ki44or44k44kk44og5ypluso6yyy44gm5yplusv6io944gq5pya5paw44k944ov44oi44go44gd44gu5l244ge5pa544cn/"><u>「ブラウザゲームのリアルタイム収録が可能な最新ソフトとその使い方」</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-utilizing-youtubes-cc-to-enhance-your-videography/"><u>2024 Approved Utilizing YouTube's CC to Enhance Your Videography</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/55s76z2i5pku5b2x5pmc44gr44kq44o844oh44kj44kq44oi44op44od44kv6lplus95yqg44gu57ch5y2y44ks44kk44oj/"><u>画面撮影時にオーディオトラック追加の簡単ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-free-mp4-movie-downloads-for-your-android-device/"><u>Guide: Free MP4 Movie Downloads for Your Android Device</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-missing-spatial-sound-feature-in-windows-11-and-10/"><u>How to Fix Missing Spatial Sound Feature in Windows 11 & 10</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-complete-process-for-adding-widgets-on-windows-11/"><u>The Complete Process for Adding Widgets on Windows 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-infinix-note-30-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Infinix Note 30? Fixed | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-cost-free-creative-conversion-twitter-to-tweeple-gifs/"><u>[Updated] 2024 Approved Cost-Free Creative Conversion Twitter to Tweeple GIFs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-from-verbal-to-written-an-intensive-guide-to-google-document-voice-functionality/"><u>[Updated] 2024 Approved From Verbal to Written An Intensive Guide to Google Document Voice Functionality</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-art-of-game-channel-branding-with-premade-banners/"><u>[Updated] 2024 Approved The Art of Game Channel Branding with Premade Banners</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-enhanced-mac-technology-video-plus-sound-record/"><u>[Updated] Enhanced Mac Technology Video + Sound Record</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-routine-for-large-files-journey-from-iphones-to-macs/"><u>[Updated] The Ultimate Routine for Large Files' Journey From iPhones to Macs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027179271-mp3/"><u>「ツイキャスから高品質のMP3ファイルへ変換ガイド」</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-realme-narzo-60-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Realme Narzo 60 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-epson-et-4550-working-in-no-time-download-and-setup-guide-for-windows-users/"><u>Get the Epson ET-4550 Working in No Time: Download and Setup Guide for Windows Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-enhancing-video-visibility-with-strategic-youtube-links/"><u>In 2024, Enhancing Video Visibility with Strategic YouTube Links</u></a></li>
+<li><a href="https://network-issues.techidaily.com/installation-process-concluded-smoothly-for-nvidia/"><u>Installation Process Concluded Smoothly for NVIDIA</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-zoom-expertise-for-improved-google-meet-visibility-for-2024/"><u>The Ultimate Zoom Expertise for Improved Google Meet Visibility for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-walkthrough-the-process-of-deleting-content-from-your-youtube-channel/"><u>Ultimate Walkthrough: The Process of Deleting Content From Your YouTube Channel</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wonderfox-hd-video-converter-pro-factory-edition/"><u>WonderFox HD Video Converter Pro Factory Editionが正常にインストールされました。よろしくお願い致します!</u></a></li>
 </ul></div>
 

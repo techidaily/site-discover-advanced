@@ -1,7 +1,7 @@
 ---
 title: "Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution"
-date: 2024-09-07T19:01:40.592Z
-updated: 2024-09-14T19:03:05.892Z
+date: 2024-09-18T17:44:59.359Z
+updated: 2024-09-23T17:37:45.577Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a71e7a06fbd4b66d64319f0c.jpg
@@ -19,6 +19,13 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Connexions setzt auf ABBYY bei der Auswertung von Meinungsumfragen
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 229 kb)](https://static5.abbyy.com/abbyycommedia/6144/cs-connexions-fc-d.pdf) 
@@ -28,6 +35,19 @@ Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen
 ### Der Hintergrund
 
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Die Lösung
 
@@ -41,10 +61,10 @@ Es ging eine Anfrage an ABBYY, das Software-Portfolio vorzustellen, worauf die A
 Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional ist das Handling der im Connexions Büro eingehenden Umfragedaten recht einfach. Alle Fragebögen werden vor Ort schnell eingescannt und mit FlexiCapture verarbeitet, anschließend werden die Daten erfasst und in die Connexions Datenbank exportiert. FlexiCapture unterstützt Connexions bei der zentralen Sammlung und Zuordnung der Daten und macht das Outsourcing einzelner Arbeitsschritte überflüssig. So sind sowohl die zeitgerechte Verarbeitung als auch die sichere Überwachung der Daten garantiert.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Das Ergebnis
@@ -52,10 +72,16 @@ Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional i
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Der Blick nach vorn
@@ -93,16 +119,20 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>[New] In 2024, Audio Clarity 10 Pro Tips for High-Quality Recordings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-vidharvest-instagram-live-fb-for-2024/"><u>[Updated] VidHarvest Instagram Live (FB) for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-understanding-and-leveraging-snapchat-spotlight/"><u>2024 Approved Understanding and Leveraging Snapchat Spotlight</u></a></li>
-<li><a href="https://driver-error.techidaily.com/device-setup-guide-clearing-the-incorrect-configuration-error-message-error-code-1/"><u>Device Setup Guide: Clearing the 'Incorrect Configuration' Error Message (Error Code 1)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/hands-off-strategies-for-snapshots-of-online-meetings-macpc-platforms-for-2024/"><u>Hands-Off Strategies for Snapshots of Online Meetings (Mac/PC Platforms) for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/how-to-find-your-perfect-livestream-service-match/"><u>How to Find Your Perfect Livestream Service Match</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-get-and-install-logitech-brio-webcam-driver-on-windows-1087/"><u>How to Get and Install Logitech Brio Webcam Driver on Windows 10/8/7</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-unleashing-connectivity-setting-up-a-zoom-call-on-android/"><u>[New] In 2024, Unleashing Connectivity Setting Up a Zoom Call on Android</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-lively-discourse-evaluation-iteration-8/"><u>[New] Lively Discourse Evaluation - Iteration 8</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-podcast-logo-basics-key-principles-for-striking-art/"><u>[New] Podcast Logo Basics Key Principles for Striking Art</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-streaming-technology-for-live-events/"><u>[New] Top Streaming Technology for Live Events</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/chromefirefox/"><u>【Chrome・Firefox】動画ダウンロードソフトワックスにおける代替アプリケーションとその使い方</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-mp3-to-wav-converters-top-picks-for-windows-and-macos/"><u>Best MP3 to WAV Converters: Top Picks for Windows & macOS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/check-for-software-conflicts/"><u>Check for Software Conflicts</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comparing-apple-itunes-with-microsofts-zune-which-media-player-wins-out/"><u>Comparing Apple iTunes with Microsoft's Zune: Which Media Player Wins Out?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/conversion-mts-avi-and-positive-adjectives-like-simple-swift-fast-and-effortless/"><u>Conversion, MTS, AVI, and Positive Adjectives Like Simple, Swift, Fast, and Effortless.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-mp4-audio-tracks-to-mp3-files-free-of-charge-in-windows-10/"><u>Convert MP4 Audio Tracks to MP3 Files Free of Charge in Windows 10</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/creating-an-animated-gif-with-integrated-audio-a-step-by-step-guide/"><u>Creating an Animated GIF With Integrated Audio: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cutting-your-videos-into-halves-across-all-platforms-pc-mac-iphone-and-android/"><u>Cutting Your Videos Into Halves Across All Platforms: PC, Mac, iPhone & Android</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-conquer-the-financial-frontier-of-tiktok-with-these-8-money-making-techniques/"><u>In 2024, Conquer the Financial Frontier of TikTok with These 8 Money-Making Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/live-from-the-cloud-effective-dji-drone-broadcasting-tips/"><u>Live From the Cloud Effective DJI Drone Broadcasting Tips</u></a></li>
 </ul></div>
 

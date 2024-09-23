@@ -1,7 +1,7 @@
 ---
 title: Pioneering Solutions for Tomorrow's Trade Financing Obstacles
-date: 2024-09-17T17:30:10.217Z
-updated: 2024-09-18T22:44:50.295Z
+date: 2024-09-22T18:47:04.772Z
+updated: 2024-09-23T17:36:09.553Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/547814a807b4543590f62321378a7a383eefe4ae6434dfc2add6edc999f55579.jpg
@@ -15,11 +15,25 @@ White paper
 
 ![New Solutions for New Challenges in Trade Finance - ABBYY White paper](https://static1.abbyy.com/abbyycommedia/32863/48-new-solutions-for-new-challenges-in-trade-finance-en-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Increase productivity, ensure compliance, and improve safety
 
 Trade finance has not been insulated from the sweeping changes of 2020-2021\. Long-standing vulnerabilities have bubbled to the surface, and banks are looking for solutions. There is a growing imperative to reduce costs, improve productivity, avoid compliance violations, and reduce risk of damaging errors. If banks focused on trade finance are to overcome today’s challenges, the first step will be taking a hard look at their operations.
 
 In this white paper, we discuss the value of taking a holistic approach to streamlining trade finance by focusing on people, processes, and content. By leveraging Digital Intelligence—a combination of process discovery and Intelligent Document Processing—trade finance organizations can increase productivity, bolster their compliance efforts, and even improve the safety of their shipments and the people who handle them.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Download it now!
 
@@ -31,10 +45,10 @@ Download it to learn more about:
 * Preparing for future opportunities with blockchain
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY and its technologies.
@@ -44,10 +58,10 @@ Download it to learn more about:
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -119,20 +133,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-remove-default-podcast-listings-from-spotify-playlists/"><u>[New] In 2024, Remove Default Podcast Listings From Spotify Playlists</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-top-20-cheerful-facebook-incarceration-gems-for-a-happy-mood-enhancement/"><u>[New] Top 20 Cheerful Facebook Incarceration Gems for a Happy Mood Enhancement</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-peek-into-the-viral-world-of-stock-photo-memes/"><u>[Updated] 2024 Approved A Peek Into the Viral World of Stock Photo Memes</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-seamless-media-magic-turning-xml-ssa-into-dynamic-srts-for-2024/"><u>[Updated] The Seamless Media Magic Turning XML, SSA Into Dynamic SRTs for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029488666-mov/"><u>「ダビンチ解決策: ダヴィンチ・リゾルブにMOVファイルを正常読み取れない対処法」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/2024flacandcue/"><u>2024年度に選ばれたベストのFLAC&CUEパーツ転送ソフトウェア紹介</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726027901031-2024avi/"><u>2024年リッチメディア形式の動画プレーヤーを活用して「AVIファイル」をスムーズに再生する方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/aacwav5/"><u>AACからWAVへ自由で手軽な変換ツール：5人気のフリーソフト</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abema-pc6/"><u>ABEMA PC録画機能を活用した最高の6つのツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advocate-for-zero-cost-flash-video-editing-tool-the-perfect-gift-you-can-recommend/"><u>Advocate for Zero-Cost Flash Video Editing Tool: The Perfect Gift You Can Recommend!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Oppo A58 4G? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/optimize-with-cookiebot-technology-the-key-to-customized-user-experience-and-seo-success/"><u>Optimize with Cookiebot Technology: The Key to Customized User Experience and SEO Success</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/trasforma-i-file-m4a-in-mp4-gratuitamente-online-con-convertimp3/"><u>Trasforma I File M4A in MP4 Gratuitamente Online Con ConvertiMp3</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44kz44oz44ou44ol44o844k44o844gr44ki44kl5psplus6ycb5asn5a2m44gu44op44k444kq55wq57we6yyy6zplusz44ks44kk44oj/"><u>コンピューターによる放送大学のラジオ番組録音ガイド</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-controlling-bitrate-overload-in-obs/"><u>[Updated] 2024 Approved Controlling Bitrate Overload in OBS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-tools-for-image-transformation-framecraft-pro/"><u>[Updated] Premier Tools for Image Transformation FrameCraft Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamlined-list-6-efficient-mac-screen-recording-solutions-for-2024/"><u>[Updated] Streamlined List 6 Efficient Mac Screen Recording Solutions for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sierras-best-curated-list-of-exceptional-mac-video-tools/"><u>2024 Approved Sierra's Best Curated List of Exceptional Mac Video Tools</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-xs-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone XS and iPad Securely</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/canon-mg2520-windows-compatible-driver-downloads-and-latest-version-info/"><u>Canon MG2520 Windows Compatible Driver Downloads and Latest Version Info</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-honor-x50-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Honor X50 Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-2022-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone SE (2022) 3 Ways To Unlock</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/optimize-entertainment-with-plex-top-prime-day-bargains/"><u>Optimize Entertainment with Plex: Top Prime Day Bargains</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
 </ul></div>
 

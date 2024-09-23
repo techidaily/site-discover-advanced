@@ -1,7 +1,7 @@
 ---
 title: "Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology"
-date: 2024-09-15T01:12:19.735Z
-updated: 2024-09-18T23:44:17.526Z
+date: 2024-09-22T17:40:20.454Z
+updated: 2024-09-23T16:37:38.495Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03036a5859c384dd9ace3b529.jpg
@@ -19,6 +19,13 @@ July 27, 2017
 
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tolstoy: famous and rare
 
 It’s hard to find a literature fan anywhere in the world who hasn’t heard of writer Leo Tolstoy who lived in Russia in later 19th century. War and Peace is one of his most famous sagas which became synonymous to a long literary work with many characters and lines. There are more films around the world based on Tolstoy’s book Anna Karenina than on any other book ever. Unbelievable as it may be, the full works of Tolstoy are available to a very limited audience, being kept in private collections and libraries. The full 90 volumes of Tolstoy literary works have been published only once with an edition of a mere 5,000 units and never republished.
@@ -26,6 +33,13 @@ It’s hard to find a literature fan anywhere in the world who hasn’t heard of
 Apart from the finished works of fiction - prose, poetry, drama - these volumes contain numerous drafts, manuscripts and drawings, all sorts of editorial comments, rare stories, novels, diaries, letters, religious tracts, philosophical thesis, travelogues, childhood memories, essays and schoolbooks.
 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Tolstoy fans used technologies
 
@@ -42,10 +56,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -61,10 +75,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -92,14 +106,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-fb-video-experience-the-top-10-listed-tools/"><u>[Updated] FB Video Experience The Top 10 Listed Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-the-nuances-of-mukbang-filmmaking-techniques/"><u>[Updated] In 2024, Navigating the Nuances of Mukbang Filmmaking Techniques</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pairing-audio-with-visuals-web-forum/"><u>[Updated] Pairing Audio with Visuals Web Forum</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-channels-with-powerful-visual-branding-strategies/"><u>[Updated] Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/enhancing-index-performance-on-your-pc/"><u>Enhancing Index Performance on Your PC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-5-alternative-editors-beyond-youtubes-limits-for-2024/"><u>Top 5 Alternative Editors Beyond Youtube's Limits for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ttamp3/"><u>TTAをMP3に変換する -高解像度オーディオ維持方法 : 入門編</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-art-of-audible-alteration-a-journey-through-cost-free-audio-effects-software-for-2024/"><u>[New] The Art of Audible Alteration A Journey Through Cost-Free Audio Effects Software for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-8-must-have-methods-for-crafting-memorable-gifs/"><u>[Updated] 8 Must-Have Methods for Crafting Memorable GIFs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-free-templates-for-sustainable-storytelling/"><u>[Updated] In 2024, Free Templates for Sustainable Storytelling</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-insta-photo-carousel-magic/"><u>[Updated] In 2024, Insta-Photo Carousel Magic</u></a></li>
+<li><a href="https://techtrends.techidaily.com/group-music-sessions-on-spotify-connect-and-jam-with-friends/"><u>Group Music Sessions on Spotify: Connect and Jam with Friends</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6 to other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-sony-xperia-10-v-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Sony Xperia 10 V without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-8-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 8 to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pushing-boundaries-adobes-recommended-lut-list-for-creative-professionals/"><u>In 2024, Pushing Boundaries Adobe's Recommended LUT List for Creative Professionals</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

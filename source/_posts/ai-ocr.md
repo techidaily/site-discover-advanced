@@ -1,7 +1,7 @@
 ---
 title: "AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋"
-date: 2024-09-11T16:24:25.571Z
-updated: 2024-09-19T01:25:40.414Z
+date: 2024-09-21T17:18:04.921Z
+updated: 2024-09-23T18:33:59.950Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg
@@ -17,11 +17,31 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 
 ![](https://static3.abbyy.com/abbyycommedia/35672/ai-ocr-automation-cover3-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## なぜOCR導入はうまくいかないのか
 
 働き方改革や業務自動化の一環として多くの企業がAI OCRを採用、導入しています。ところが実際に導入された企業において、読み取り精度(識字率)やAI自動学習、設定の簡便さといった特徴ばかりを気にしすぎた為に、当初予定していたOCR業務プロセスがうまく回らずに、利用をやめるケースがあります。
 
 OCRの検討段階では気づきにくい、OCRによる働き方改革や業務自動化を実現する上で注意すべきポイントについてご紹介いたします。
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## OCR導入に失敗する要因その１：文書レイアウトに起因する問題
 
@@ -43,13 +63,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 繋がりを考慮しない処理しかできないケースがあります。先ほどの例で申しますと、本来であれば異なる種類の申請書に記載のある氏名と本人確認書類の氏名が一致しているか、など書類間で確認すべき事項があっても、繋がりを意識できないOCR製品の場合は目視での確認のみに留まります。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## OCR導入に失敗する要因その2：業務利用に起因する問題
 
 二つ目に挙げられるのは、業務利用を検討する際に発生する問題です。
@@ -63,19 +76,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 一つ目は、「秘匿性の担保」です。個人情報や会社の機密情報が記載されている帳票は、部分的に隠してOCR処理したい場合があります。部分的に隠す＝墨消しが求められるケースとして2つほど例を挙げますと、OCR結果を検証するオペレータにその他情報を見せたくない場合や、検証者には検証のため見せても良いが出力結果では墨消ししたい、といったケースがそれにあたります。このように情報を隠匿できないと情報漏洩に繋がることが考えられます。
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35676/2.png)
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 また秘匿性という観点では、OCR処理内容を他の部署に見せたくないなど、部門ごとのセキュリティが求められるケースもあります。この場合はテナント機能により部門ごとに作業領域を区分けできることが重要です。
 
@@ -106,10 +106,10 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35678/4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## AI OCRの自動化で失敗しないためには
@@ -123,6 +123,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 ※ ABBYY FlexiCaptureについての概要は、[ABBYY FlexiCapture 12紹介 – はじめの一歩](https://www.youtube.com/watch?v=pM2aqWlLgfk) をご参照ください。
 
 [AI OCR](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -187,20 +194,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-carryminatis-income-evolution-with-ajey-nagar/"><u>[Updated] 2024 Approved CarryMinati's Income Evolution with Ajey Nagar</u></a></li>
-<li><a href="https://discover-community.techidaily.com/1726227530787-mxf-gif-movavi/"><u>網路上無成本地自動轉換 MXF 到 GIF - 利用 Movavi 轉檔工具</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/connect-with-digiarty-unleashing-artistic-innovation-and-collaboration-opportunities/"><u>Connect With Digiarty - Unleashing Artistic Innovation and Collaboration Opportunities</u></a></li>
-<li><a href="https://blog-min.techidaily.com/discover-the-latest-movavi-mac-free-2024-software-essential-tips-for-reliable-system-backups-and-protection/"><u>Discover the Latest Movavi Mac Free 2024 Software - Essential Tips for Reliable System Backups and Protection</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-vivo-y100t-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Vivo Y100t Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
-<li><a href="https://article-tips.techidaily.com/prime-examples-14-dynamic-text-animations-for-2024/"><u>Prime Examples 14 Dynamic Text Animations for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/step-by-step-guide-updating-and-downloading-hp-envy-20s-driver-software/"><u>Step-by-Step Guide: Updating and Downloading HP Envy 20'S Driver Software</u></a></li>
-<li><a href="https://solve-news.techidaily.com/ultimate-guide-capturing-screenshots-and-recording-your-screen-on-a-razer-laptop/"><u>Ultimate Guide: Capturing Screenshots and Recording Your Screen on a Razer Laptop</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-maximizing-reach-twitch-streams-via-facebook/"><u>[New] 2024 Approved Maximizing Reach Twitch Streams via Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-unrestricted-display-save-tool/"><u>[New] 2024 Approved Unrestricted Display Save Tool</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-converting-tweeted-videos-into-playable-mp3-tracks/"><u>[New] Converting Tweeted Videos Into Playable MP3 Tracks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-immediate-dance-broadcasts-on-roktv/"><u>[Updated] Immediate Dance Broadcasts on ROKTV</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029488666-mov/"><u>「ダビンチ解決策: ダヴィンチ・リゾルブにMOVファイルを正常読み取れない対処法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/2024flacandcue/"><u>2024年度に選ばれたベストのFLAC&CUEパーツ転送ソフトウェア紹介</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/aacwav5/"><u>AACからWAVへ自由で手軽な変換ツール：5人気のフリーソフト</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abema-pc6/"><u>ABEMA PC録画機能を活用した最高の6つのツール</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advocate-for-zero-cost-flash-video-editing-tool-the-perfect-gift-you-can-recommend/"><u>Advocate for Zero-Cost Flash Video Editing Tool: The Perfect Gift You Can Recommend!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/avoiding-common-pitfalls-using-movie-maker-on-windows-8/"><u>Avoiding Common Pitfalls Using Movie Maker on Windows 8</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-samsung-galaxy-s21-fe-5g-2023-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Samsung Galaxy S21 FE 5G (2023)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/break-free-from-periscope-unique-mobile-video-apps-for-smartphones/"><u>Break Free From Periscope Unique Mobile Video Apps for Smartphones</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-on-repairing-a-malfunctioning-logitech-mouse-wheel/"><u>Expert Tips on Repairing a Malfunctioning Logitech Mouse Wheel</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oneplus-11r-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On OnePlus 11R? Fixed | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44kz44oz44ou44ol44o844k44o844gr44ki44kl5psplus6ycb5asn5a2m44gu44op44k444kq55wq57we6yyy6zplusz44ks44kk44oj/"><u>コンピューターによる放送大学のラジオ番組録音ガイド</u></a></li>
 </ul></div>
 

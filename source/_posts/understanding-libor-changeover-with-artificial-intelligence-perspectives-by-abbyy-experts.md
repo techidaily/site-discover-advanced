@@ -1,7 +1,7 @@
 ---
 title: "Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts"
-date: 2024-09-12T16:42:18.292Z
-updated: 2024-09-14T19:48:18.177Z
+date: 2024-09-18T18:57:28.627Z
+updated: 2024-09-23T17:40:58.904Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e54865f3f57ec57dc69d69631538169245afb52f02b58f105955b7146a11c16.jpg
@@ -35,6 +35,13 @@ So let’s talk a minute about contract language and how it is holding the banki
 
 AI with ML has been much hyped in recent years, but it often sounds like a solution looking for a problem. AI, in simple terms, is building computer programs (also called ‘computer vision’) to help them find, interpret, make decisions, and take action on complex language embedded in a corpus of data or documents as expert or highly-trained users would. Far from being a replacement for high-paid skilled labor, such as attorneys, paralegals, analysts and consultants, AI with ML helps them scale to global challenges such as LIBOR phase out.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Named entity recognition & extraction has advanced
 
 A particularly useful application of AI for LIBOR transition is recent advancements in **named entity extraction**, whereby AI-based programs can learn how to recognize legal entities in the corpus of contracts and related documents. An entity is a specific person, place, and/or action that is composed of multiple data fields that can be found anywhere in a contract. Often implied and never in a predictable place, named entities can be particularly vexing for legal experts to find as they plow through mountains of contracts.
@@ -42,6 +49,13 @@ A particularly useful application of AI for LIBOR transition is recent advanceme
 LIBOR rates, clauses, and affected parties are all entities in contracts that are rarely expressed in the same way within a single contract, let alone a single bank’s thousands of such contracts. But AI with machine learning can learn all of the permutations of these entities, including all of the stated and implied references to such entities, but can identify and understand them in seconds on a machine while a legal expert could take an hour or more to perform the same review. But AI does not get tired or distracted, like humans can, and can deliver results more consistently across thousands of documents.
 
 ![Why AI Matters in LIBOR Transition](https://static1.abbyy.com/abbyycommedia/28998/11986_picture_848x444.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With recent advancements in named entity recognition and extraction techniques, such as the ability of data scientists and legal experts to train the software with comprehensive taxonomies and variations (thesaurus, legal codes, aliases), modern AI solutions can be in production in a matter of days or weeks at a fraction of the cost of hiring an army of consultants and legal teams to do the work. LIBOR remediation experts can now help train their ‘virtual legal team’ of AI/ML software and supporting RPA bots to be their army of expert assistants to find, remediate, or flag for additional review all the impacted contracts and legal business entities.
 
@@ -57,7 +71,27 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Reginald J. Twigg
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -122,22 +156,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-15-innovative-cost-free-photo-manipulation-software/"><u>[New] 15 Innovative, Cost-Free Photo Manipulation Software</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-perfecting-presentations-choosing-from-top-10-free-screen-captures-for-mac/"><u>2024 Approved Perfecting Presentations Choosing From Top 10 Free Screen Captures for Mac</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boosting-ai-engagement-seven-key-strategies-for-improvement/"><u>Boosting AI Engagement: Seven Key Strategies for Improvement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/from-shopping-spree-to-stardom-editing-your-haul-video/"><u>From Shopping Spree to Stardom Editing Your Haul Video</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-in-depth-gopro-hero5-testing-report/"><u>In 2024, In-Depth GoPro Hero5 Testing Report</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-narzo-n55-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme Narzo N55? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-cloud-mastery-the-best-of-unlimited-space/"><u>[New] In 2024, Cloud Mastery The Best of Unlimited Space</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-save-money-on-titles-exclusive-list-of-11-free-creators/"><u>[Updated] In 2024, Save Money on Titles - Exclusive List of 11 Free Creators</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/arranging-expert-help-securing-an-apple-genius-bar-appointment/"><u>Arranging Expert Help: Securing an Apple Genius Bar Appointment</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030401410-avisynth/"><u>AviSynthプラグインを使った動画の向き変え手順</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028888456-avisynth/"><u>AviSynthを使って簡単なビデオ編集 - ステップバイステップガイド</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dynamic-font-movement-packs/"><u>Dynamic Font Movement Packs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-13t-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi 13T Phone with Broken Screen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-breakthrough-techniques-for-building-intricate-iphone-photo-collages/"><u>In 2024, Breakthrough Techniques for Building Intricate iPhone Photo Collages</u></a></li>
+<li><a href="https://driver-download.techidaily.com/k350-keyboard-support-software-download/"><u>K350 Keyboard Support Software Download</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028762577-mp3/"><u>MP3フォーマットにおけるサウンドクオリティ向上のステップバイステップガイド</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mystery-of-missing-movies-a6400s-quandary/"><u>Mystery of Missing Movies A6400's Quandary</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027301907-pc60fps/"><u>PC上でスムーズな60FPS動画編集入門：初心者が始められる技術ガイド</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-for-crusader-kings-iii-stability-issues-on-pcs/"><u>Troubleshooting Tips for Crusader Kings III Stability Issues on PCs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030181157-windows-10/"><u>Windows 10環境下での画面記録: オンボードアクセサリ無しに済む解決策</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030007316-windows-11107/"><u>Windows 11/10/7でのビデオの縦横回転テクニックの完全ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028548117-youtubemp3/"><u>YouTube動画を高音質MP3に簡単にコンバートする方法とテクニック</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Fueled Solutions: Enhancing Your Digital Experience"
-date: 2024-09-14T01:58:33.794Z
-updated: 2024-09-18T20:59:56.316Z
+date: 2024-09-20T17:30:04.138Z
+updated: 2024-09-23T18:11:09.403Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
@@ -32,6 +32,13 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30089/pic-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. 仕分け用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションで、仕分け用トレーニングバッチを選択し、新規バッチを作成します。
@@ -42,6 +49,19 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30091/pic-3.png)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 各サンプル画像に対し、仕分けしたいクラス（文書定義）を選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30092/pic-4.png)
@@ -51,10 +71,10 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30093/pic-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. 仕分けトレーニング（仕分け学習）とトレーニング結果の設定
@@ -63,9 +83,23 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30094/pic-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 結果に問題なければ、トレーニング結果を認識処理時に適用する設定を実施します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30095/pic-7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. 作業バッチで結果を確認
 
@@ -77,31 +111,37 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 データ抽出設定・確認方法は、次の4ステップになります。  
 ※文書仕分けについては既に設定済である事を前提とします。
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. フィールド追加
 
 対象の文書定義にトレーニングしたいフィールドを追加します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30097/pic-9.png)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. データ抽出用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションのフィールド抽出用トレーニングバッチで新規バッチを作成します。その際、「文書定義セクションの選択」で該当する文書定義 > セクションを選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30098/pic-10.png)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 次に、作成したバッチにトレーニング用のサンプル画像ファイルを読み込み、認識を実行します。また、それぞれのサンプル画像に対し「学習用」「テスト用」を設定します。
 
@@ -118,13 +158,6 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 以上でトレーニングの準備が整いましたので、学習ボタンをクリックする事によりトレーニングを実行、トレーニングが完了次第認識処理を実施し、結果を確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30101/pic-13.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. 作業バッチで結果を確認
 
@@ -154,14 +187,14 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
-ABBYY Japan エンジニアリングチーム
-
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ABBYY Japan エンジニアリングチーム
 
 ### いいね！、シェア、再投稿
 
@@ -226,18 +259,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-beginners-blueprint-for-green-screen-in-kinemaster-for-2024/"><u>[New] Beginner's Blueprint for Green Screen in KineMaster for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-battle-for-best-action-camera-sony-fdr-x1000v-meets-hero-4-black/"><u>[Updated] 2024 Approved Battle for Best Action Camera Sony FDR-X1000V Meets Hero 4 Black</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-adjusting-visuals-in-teams-conversations-at-any-time-for-2024/"><u>[Updated] Adjusting Visuals in Teams Conversations at Any Time for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-initiating-a-join-in-google-meet-through-computermobile/"><u>[Updated] Initiating a Join in Google Meet Through Computer/Mobile</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-precision-recording-tips-for-gamers-and-videographers-for-2024/"><u>[Updated] Precision Recording Tips for Gamers and Videographers for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/get-your-factory-pro-for-ipod-videos-securely-guaranteed-safe-purchase-today/"><u>Get Your Factory Pro for iPod Videos Securely – Guaranteed Safe Purchase Today!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/guide-creating-videos-from-audio-clips-perfectly-tailored-for-your-youtube-channel/"><u>Guide: Creating Videos From Audio Clips Perfectly Tailored for Your YouTube Channel</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pcyoutubedvd/"><u>PCでYouTube映像をDVDに保存するためのガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722901164747-the-samsung-galaxy-s25-decoded-what-to-expect-in-terms-of-cost-release-date-and-advanced-features/"><u>The Samsung Galaxy S25 Decoded: What to Expect in Terms of Cost, Release Date & Advanced Features</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-building-a-brand-how-to-harness-snapad-power-in-business/"><u>[New] Building a Brand How to Harness SnapAd Power in Business</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-showcasing-self-with-instagram-a-collection-of-100-captions-for-2024/"><u>[New] Showcasing Self with Instagram A Collection of 100 Captions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-scout-platforms-securing-partnerships-with-youtube-content-creators/"><u>2024 Approved Scout Platforms Securing Partnerships with YouTube Content Creators</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030401410-avisynth/"><u>AviSynthプラグインを使った動画の向き変え手順</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/avoiding-unwanted-accounts-on-insta/"><u>Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-6-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone 6 Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/discover-the-top-7-free-programs-for-effortless-cutting-of-mkv-movies-without-spending-a-penny/"><u>Discover the Top 7 Free Programs for Effortless Cutting of MKV Movies Without Spending a Penny</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030573661-mp4windows-1011/"><u>MP4ファイルがWindows 10/11メディアプレーヤーで正常に再生されない場合のトラブルシューティング</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030490891-pc/"><u>PCゲームライブ配信動画編集手順</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-games-galore-top-10-websites-for-pc-and-android-game-downloads/"><u>Updated Free Games Galore Top 10 Websites for PC and Android Game Downloads</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030181157-windows-10/"><u>Windows 10環境下での画面記録: オンボードアクセサリ無しに済む解決策</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726030007316-windows-11107/"><u>Windows 11/10/7でのビデオの縦横回転テクニックの完全ガイド</u></a></li>
 </ul></div>
 

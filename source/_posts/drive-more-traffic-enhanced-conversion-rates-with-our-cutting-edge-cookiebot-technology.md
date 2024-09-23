@@ -1,7 +1,7 @@
 ---
 title: "Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!"
-date: 2024-09-15T19:30:51.822Z
-updated: 2024-09-18T17:15:36.578Z
+date: 2024-09-17T18:50:12.261Z
+updated: 2024-09-23T18:40:34.700Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
@@ -19,6 +19,13 @@ July 27, 2017
 
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tolstoy: famous and rare
 
 It’s hard to find a literature fan anywhere in the world who hasn’t heard of writer Leo Tolstoy who lived in Russia in later 19th century. War and Peace is one of his most famous sagas which became synonymous to a long literary work with many characters and lines. There are more films around the world based on Tolstoy’s book Anna Karenina than on any other book ever. Unbelievable as it may be, the full works of Tolstoy are available to a very limited audience, being kept in private collections and libraries. The full 90 volumes of Tolstoy literary works have been published only once with an edition of a mere 5,000 units and never republished.
@@ -26,6 +33,13 @@ It’s hard to find a literature fan anywhere in the world who hasn’t heard of
 Apart from the finished works of fiction - prose, poetry, drama - these volumes contain numerous drafts, manuscripts and drawings, all sorts of editorial comments, rare stories, novels, diaries, letters, religious tracts, philosophical thesis, travelogues, childhood memories, essays and schoolbooks.
 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Tolstoy fans used technologies
 
@@ -42,10 +56,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -61,10 +75,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -92,21 +106,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/levate-your-video-game-youtube-production-mastery-for-2024/"><u>[New] Elevate Your Video Game YouTube Production Mastery for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-investigating-the-prowess-of-splitcam-cameras/"><u>[New] In 2024, Investigating the Prowess of SplitCam Cameras</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-instant-sharing-convert-tweets-to-snaps-users/"><u>[Updated] In 2024, Instant Sharing Convert Tweets to Snaps Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029488666-mov/"><u>「ダビンチ解決策: ダヴィンチ・リゾルブにMOVファイルを正常読み取れない対処法」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/2024flacandcue/"><u>2024年度に選ばれたベストのFLAC&CUEパーツ転送ソフトウェア紹介</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/google-jpegjpg-raw-movavi-imaging-tools/"><u>Google의 인터넷 세계에서 JPEG/JPG를 무료로 RAW 형식으로 바꾸기 - Movavi Imaging Tools</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-poco-m6-pro-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Poco M6 Pro 5G to New Android? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-google-pixel-8-pro-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Google Pixel 8 Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-infinix-smart-8-plus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Infinix Smart 8 Plus Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-oppo-a58-4g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Oppo A58 4G has been deleted.</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/sync-and-save-your-snaps-how-to-move-from-google-photos-to-icloud-seamlessly/"><u>Sync and Save Your Snaps: How To Move From Google Photos To iCloud Seamlessly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-exploring-magix-pixel-mastery-review/"><u>[New] 2024 Approved Exploring MAGIX Pixel Mastery Review</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-testing-toughness-prohero-hero-vs-nikkor-km-170/"><u>2024 Approved Testing Toughness ProHero Hero Vs Nikkor KM-170</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-video-format-mastery-best-practices-for-instagram/"><u>2024 Approved Video Format Mastery Best Practices for Instagram</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/edit-mov-files-for-free-top-6-cutting-tools-reviewed/"><u>Edit MOV Files for Free Top 6 Cutting Tools Reviewed</u></a></li>
+<li><a href="https://os-tips.techidaily.com/essential-steps-to-overcome-imessage-activation-errors-a-comprehensive-guide/"><u>Essential Steps to Overcome iMessage Activation Errors: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-find-the-disappeared-watch-tile/"><u>In 2024, Find the Disappeared Watch Tile</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-recommended-settings-when-sharing-videos-on-twitter-what-you-need-to-know-for-successful-engagement/"><u>Top Recommended Settings When Sharing Videos on Twitter: What You Need To Know For Successful Engagement</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/transform-your-videos-best-practices-using-manycams-live-webcam-software-features/"><u>Transform Your Videos: Best Practices Using ManyCam's Live Webcam Software Features</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
 </ul></div>
 

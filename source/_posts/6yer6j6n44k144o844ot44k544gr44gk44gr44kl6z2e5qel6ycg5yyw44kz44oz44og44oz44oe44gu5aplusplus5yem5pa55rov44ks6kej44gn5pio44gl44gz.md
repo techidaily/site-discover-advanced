@@ -1,7 +1,7 @@
 ---
 title: 金融サービスにおける非構造化コンテンツの対処方法を解き明かす
-date: 2024-09-09T16:36:55.625Z
-updated: 2024-09-14T17:32:00.802Z
+date: 2024-09-21T16:47:21.955Z
+updated: 2024-09-23T17:02:33.642Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a98c24ab59e2903c5366daaa.jpg
@@ -33,11 +33,25 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 
 ![workers using NLP in finance](https://static1.abbyy.com/abbyycommedia/34754/skills-for-finansial-services-2-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 金融における自然言語処理（NLP）
 
 自然言語処理（NLP）は、金融機関が非構造化文書から価値のあるデータや事実を発掘し、財務報告書、法的命令、定款、契約書、合意書、物件説明書、さらにはニュース、ブログ、およびソーシャルメディアのコンテンツなど、顧客に関する重要な詳細情報が含まれている可能性のある複雑な文書の面倒な調査を最適化するのに役立ちます。 これらの情報源からインサイトを得るためのソリューションとして、これまで手作業による調査が行われてきましたが、これは本質的に不正確で一貫性がなく、重要な詳細情報を見落とすリスクが高くなります。
 
 これらのデータソースやその他のデータソースを効率的に分析し、非構造化データからインサイトを導き出すことができれば、銀行やその他の金融サービス機関が現在および将来の顧客について適切な判断を下すことができます。 このように活用されていないコンテンツから、有意義な情報を得られる可能性があります。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 金融サービスにおける文書処理プロセスの自動化をお考えですか？
 
@@ -46,10 +60,10 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 [ABBYY Marketplaceにアクセスする](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY Marketplaceのアプローチ方法
@@ -67,10 +81,10 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 Cheryl Chiodi
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -136,14 +150,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-best-practices-for-instagram-story-screenshots-for-2024/"><u>[New] Unveiling the Best Practices for Instagram Story Screenshots for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-musicians-guide-to-copyright-compliance-on-ig-for-2024/"><u>[Updated] The Essential Musician's Guide to Copyright Compliance on IG for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-fostering-flourishing-visuals-with-after-effects-fonts/"><u>2024 Approved Fostering Flourishing Visuals with After Effects Fonts</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-realme-v30-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Realme V30 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/crafting-stories-excellence-among-8-film-categories-for-2024/"><u>Crafting Stories Excellence Among 8 Film Categories for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/impressive-25-increase-in-abbyys-revenue-for-the-year-201n7-key-insights-and-trends/"><u>Impressive 25% Increase in ABBYY's Revenue for the Year 201N7: Key Insights and Trends</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>In 2024, A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/increased-productivity-how-abbyys-automated-invoicing-enhances-operations-at-energy-distribution-compannies/"><u>Increased Productivity: How ABBYY's Automated Invoicing Enhances Operations at Energy Distribution Compannies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/laserfiche-optimization-with-abbyy-discover-flexicaptures-power/"><u>Laserfiche Optimization with ABBYY: Discover FlexiCapture's Power</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-dynamic-duels-ranking-the-top-street-fighter-titles/"><u>[New] In 2024, Dynamic Duels Ranking the Top Street Fighter Titles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-simple-steps-to-modify-screen-capture-on-macos/"><u>[New] Simple Steps to Modify Screen Capture on macOS</u></a></li>
+<li><a href="https://common-error.techidaily.com/8-proven-strategies-to-resolve-windows-11s-code-0x80f0922-update-issue/"><u>8 Proven Strategies to Resolve Windows 11'S Code 0X80ˈFː09:22 Update Issue</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-novice-to-pro-youtube-gamers-broadcasting-journey-for-2024/"><u>From Novice to Pro YouTube Gamers' Broadcasting Journey for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-2023s-samsung-bd-j5900-a-detailed-look/"><u>In 2024, 2023'S Samsung BD-J5900 A Detailed Look</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-hilarity-at-a-click-discovering-15-comical-youtubers-work/"><u>In 2024, Hilarity at a Click Discovering 15 Comical YouTubers' Work</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/partnership-performed-live-tiktok-edition/"><u>Partnership Performed Live TikTok Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-walkthrough-the-process-of-deleting-content-from-your-youtube-channel/"><u>Ultimate Walkthrough: The Process of Deleting Content From Your YouTube Channel</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO
-date: 2024-09-09T17:36:46.252Z
-updated: 2024-09-14T20:17:50.387Z
+date: 2024-09-22T16:38:26.055Z
+updated: 2024-09-23T16:13:15.123Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -49,27 +49,23 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-professional-level-photo-enhancement-on-snapchat/"><u>[New] 2024 Approved Professional-Level Photo Enhancement on Snapchat</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-leading-steadicams-for-professional-uav-filming/"><u>[New] Leading Steadicams for Professional UAV Filming</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-discovering-the-veracity-in-luminances-hdr/"><u>[Updated] In 2024, Discovering the Veracity in Luminance’s HDR</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-enhanced-marketing-insights-with-cookiebot-technology/"><u>1. Enhanced Marketing Insights with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/2022-spark-matrix-by-quadrant-smart-document-management/"><u>2022 Spark Matrix by Quadrant: Smart Document Management</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-vivo-y36-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Vivo Y36 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-prime-virtual-classroom-creation-tool/"><u>In 2024, Prime Virtual Classroom Creation Tool</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-touchpad-driver-for-acer-notebooks-model-w130-w129-on-windows-11-free-download-now/"><u>Latest Touchpad Driver for Acer Notebooks (Model: W130, W129) on Windows 11 - Free Download Now!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-powershot-companion-elph-190/"><u>The Ultimate PowerShot Companion: ELPH 190</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-docuai-master-how-abbyy-reigned-as-the-2021-pioneer-in-smart-document-solutions-insights-from-isg/"><u>Top DocuAI Master: How ABBYY Reigned as the 2021 Pioneer in Smart Document Solutions - Insights From ISG</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/uk-labor-seeks-robot-assistance-for-overworked-job-responsibilities-reports-by-abbyy/"><u>UK Labor Seeks Robot Assistance for Overworked Job Responsibilities: Reports by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/viacheslav-prodan-expertise-in-directing-systemic-operations-and-streamlined-automation/"><u>Viacheslav Prodan: Expertise in Directing Systemic Operations & Streamlined Automation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wie-abbyy-und-fraunhofer-die-digitalisierung-im-geschaftsumfeld-erforschen-einblicke-in-prozessinnovationen/"><u>Wie ABBYY Und Fraunhofer Die Digitalisierung Im Geschäftsumfeld Erforschen: Einblicke in Prozessinnovationen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-efficient-solutions-for-youtube-short-snags/"><u>[New] Efficient Solutions for YouTube Short Snags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-score-your-youtube-content-with-these-free-sounds/"><u>[New] In 2024, Score Your YouTube Content With These Free Sounds</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-laying-the-foundation-of-zoom-room-use/"><u>[Updated] Laying the Foundation of Zoom Room Use</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/h264-format-not-working-on-vlc-media-player-uncover-successful-troubleshooting-tips-here/"><u>H264 Format Not Working on VLC Media Player? Uncover Successful Troubleshooting Tips Here!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/makemkiand/"><u>MakeMKIの基本使い方&期限切れ公認コード後始末ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-converting-mp4-video-files-to-audio-in-mp3-quality-comprehensive-tutorials-and-tools/"><u>Master the Art of Converting MP4 Video Files to Audio in MP3 Quality: Comprehensive Tutorials and Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-official-order-for-watching-james-bond-movies-a-comprehensive-list/"><u>The Official Order for Watching James Bond Movies – A Comprehensive List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-transformation-tutorial-sdr-to-high-dynamic-range-video-upgrading-for-2024/"><u>The Ultimate Transformation Tutorial SDR to High-Dynamic Range Video Upgrading for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

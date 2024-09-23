@@ -1,7 +1,7 @@
 ---
 title: "The Evolution of Smartphone Scanners: IPhone X versus Xs - Insights From ABBYY's Latest Updates"
-date: 2024-09-09T21:32:29.342Z
-updated: 2024-09-14T23:07:12.771Z
+date: 2024-09-16T17:43:04.265Z
+updated: 2024-09-23T17:49:51.287Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f6c324fafe071963e5716ae7.jpg
@@ -83,6 +83,13 @@ The iPhone XS has an [IP Code](https://en.wikipedia.org/wiki/IP%5FCode) of IP68,
 
 The iPhone XS has a smaller battery capacity than the iPhone X, but it will last 30 minutes longer thanks to the new energy-efficient A12 Bionic chip.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tips: Galaxy S10 Rumours**
 
 The Samsung Galaxy S10, to be launched in the first quarter of 2019, is poised to be the main rival of the iPhone XS. Here’s what we may expect.
@@ -103,6 +110,13 @@ The S10 will launch with Android Pie on board. We must say that this latest Andr
 
 Of course, its all rumours at the moment, but one thing we can be certain of: after the controversial Galaxy S9, Samsung will make every effort not to disappoint. All we can do now is wait a couple of months until the official launch, when the specs and reviews will be available all over the Internet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: FineScanner Gets a Makeover**
 
 [FineScanner for iOS](http://qrs.ly/mg4z2wm) has had a major makeover. We have redesigned many of its GUI components, including:
@@ -121,13 +135,6 @@ Isn’t it beautiful?
 
 [Download or update](http://qrs.ly/mg4z2wm) your copy of FineScanner and tell us what you think about the new design in AppStore.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **App of the Week: Happy Glass**
 
 Today we’re going to tell you about one very happy glass.
@@ -137,6 +144,13 @@ Happy Glass is, in fact, a very addictive game that will help you while away 15 
 Your job is to fill the glass with water, which isn’t easy because there are various obstacles popping up preventing the water from flowing directly into the vessel. You need to draw new paths for the water and create obstacles preventing the glass from moving haphazardly all over the place.
 
 ![games for iphone happy glass](https://static1.abbyy.com/abbyycommedia/26573/img_3689.jpg) ![play on iphone](https://static1.abbyy.com/abbyycommedia/26574/img_3688.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This game will give a jolt to your imagination, stimulate lateral thinking, and put your reactions to the test. Thumbs up from us!
 
@@ -149,10 +163,10 @@ That’s all from us for today. Until next Monday! P.S. You can find the previou
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -219,20 +233,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-convenient-snipping-identify-the-top-5-apps-for-pc-captures-for-2024/"><u>[New] Convenient Snipping Identify the Top 5 Apps for PC Captures for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-from-individual-tracks-to-albums-building-a-personalized-soundtrack-on-web-and-mobile/"><u>[Updated] In 2024, From Individual Tracks to Albums Building a Personalized Soundtrack on Web & Mobile</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-nanovid-recorder-analysis-with-replacements/"><u>[Updated] In 2024, NanoVid Recorder Analysis with Replacements</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-step-into-tomorrow-installation-guide-for-windows-11/"><u>2024 Approved A Step Into Tomorrow Installation Guide for Windows 11</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-troubleshoot-broadcom-gige-network-drivers-on-windows-11-comprehensive-guide/"><u>Download & Troubleshoot Broadcom GigE Network Drivers on Windows 11 - Comprehensive Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/steam-game-distribution-now-more-seamless-and-improved/"><u>Steam Game Distribution Now More Seamless and Improved</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-4-ways-for-apple-iphone-7-to-mac-mirroring-drfone-by-drfone-ios/"><u>Top 4 Ways for Apple iPhone 7 to Mac Mirroring | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-two-techniques-for-simple-audio-extraction-from-youtube-videos/"><u>Top Two Techniques for Simple Audio Extraction From YouTube Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-from-concept-to-completion-review-of-magix-vpx/"><u>[New] 2024 Approved From Concept to Completion Review of Magix VPX</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-cinemas-best-shoot-techniques-the-ultimate-guide-for-24-for-2024/"><u>[New] Cinema's Best Shoot Techniques The Ultimate Guide for '24 for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-understanding-the-mechanics-of-vsdc-vs-leading-alternatives/"><u>[New] In 2024, Understanding the Mechanics of VSDC vs Leading Alternatives</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-livetv-and-facebook-integrating-fb-livestreams/"><u>[Updated] 2024 Approved LiveTV and Facebook Integrating FB Livestreams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-future-in-your-hands-choosing-a-premium-360-camera-today/"><u>[Updated] Future in Your Hands Choosing a Premium 360 Camera Today</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transforming-digital-media-expert-advice-for-macs-dvd-creation/"><u>[Updated] Transforming Digital Media Expert Advice for Mac's DVD Creation</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fixed-printer-malfunctions-post-win11-rollout/"><u>Fixed: Printer Malfunctions Post Win11 Rollout</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-vivo-t2x-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Vivo T2x 5G Without Password | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-combining-multiple-mp4-clips-on-your-windows-11-pc/"><u>Step-by-Step: Combining Multiple MP4 Clips on Your Windows 11 PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/tecnicas-efectivas-para-reducir-el-tamano-de-videos-pesados-antes-de-subirlos-a-facebook/"><u>Técnicas Efectivas Para Reducir El Tamaño De Vídeos Pesados Antes De Subirlos a Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-honor-x9a-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Honor X9a FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-recommended-settings-when-sharing-videos-on-twitter-what-you-need-to-know-for-successful-engagement/"><u>Top Recommended Settings When Sharing Videos on Twitter: What You Need To Know For Successful Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ttamp3/"><u>TTAをMP3に変換する -高解像度オーディオ維持方法 : 入門編</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-transferring-and-converting-your-itunes-music-library-onto-a-compact-disc-using-windows/"><u>Ultimate Guide: Transferring and Converting Your iTunes Music Library Onto a Compact Disc Using Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-streaming-mkv-videos-flawlessly-with-windows-media-player/"><u>Ultimate Tutorial: Streaming MKV Videos Flawlessly with Windows Media Player</u></a></li>
 </ul></div>
 

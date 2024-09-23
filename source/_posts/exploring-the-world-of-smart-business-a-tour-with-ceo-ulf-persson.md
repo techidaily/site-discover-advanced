@@ -1,7 +1,7 @@
 ---
 title: "Exploring the World of Smart Business: A Tour with CEO Ulf Persson"
-date: 2024-09-10T16:47:52.654Z
-updated: 2024-09-14T23:35:15.351Z
+date: 2024-09-21T18:45:21.779Z
+updated: 2024-09-23T16:40:15.298Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/db339cfb71ad17e704275f446976657b74bdf593b2c3464a856c74dd3bbe549b.jpg
@@ -30,6 +30,13 @@ Still, many of the same challenges exist: volatile market conditions, reduced wo
 
 However, there is a noticeable slowing in information technology (IT) decision-making. The haste during the pandemic to bypass standard sales cycles has left many organizations with technical debt and siloed solutions that haven’t made the impact promised. This has caused decision makers to untangle and reassess their automation solutions and be more prudent with future investments.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How AI Identity Proofing Is Transforming Government Services
 
 eBook
@@ -48,6 +55,13 @@ I encourage you to subscribe to The Intelligent Enterprise and learn about other
 
 ![Ulf Persson 110X110 (2)](https://static4.abbyy.com/abbyycommedia/37001/ulf-persson_110x110-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ulf Persson
 
 Chief Executive Officer at ABBYY
@@ -58,11 +72,31 @@ Over the past 20 years, Ulf Persson has been involved as an investor and board m
 
 Follow Ulf on [LinkedIn](https://www.linkedin.com/in/ulf-persson-10085a79/).
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg) **The Changing Role of the Finance Leader** Read more](https://tools.techidaily.com/abbyy/products/) [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg) **Three Ways AI Is Making Employees Happier** Read more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -121,22 +155,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-capturecrafted-expert-reviews-on-the-best-screen-recorders-for-2024/"><u>[Updated] CaptureCrafted Expert Reviews on the Best Screen Recorders for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-free-film-resource-highlights-where-to-start-your-search-for-2024/"><u>[Updated] Free Film Resource Highlights Where to Start Your Search for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-cost-free-webm-playback-the-top-10-players-reviewed/"><u>In 2024, Cost-Free WebM Playback The Top 10 Players Reviewed</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-tiktok-media-with-zoom-techniques/"><u>In 2024, Perfecting TikTok Media with Zoom Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/incorporating-ai-strategies-for-better-team-participation-mastery-of-insights-from-corporate-records/"><u>Incorporating AI Strategies for Better Team Participation: Mastery of Insights From Corporate Records</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-with-salesforce-made-easy-abbyy-updates-android-business-card-reader-with-new-functionality/"><u>Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-mastery-transform-images-to-searchable-text-via-scan-ocr-and-pdf-creation/"><u>IPhone App Mastery: Transform Images to Searchable Text via Scan, OCR, and PDF Creation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-cookiebot-technology-for-superior-web-analytics-and-conversion-optimization/"><u>Leverage Cookiebot Technology for Superior Web Analytics and Conversion Optimization</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/light-up-dull-iphone-videos-in-seconds-for-2024/"><u>Light Up Dull Iphone Videos in Seconds for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/system-and-compressed-memory-high-disk-usage-on-windows-11-solved/"><u>System and Compressed Memory High Disk Usage on Windows 11 [Solved]</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-best-value-top-6-discounted-4k-hd-projectors/"><u>[New] Best Value Top 6 Discounted 4K HD Projectors</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-learn-quick-image-text-alteration-online-resources/"><u>[Updated] Learn Quick Image Text Alteration Online Resources</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-how-to-add-crop-and-edit-music-to-canva-video/"><u>2024 Approved How To Add, Crop, And Edit Music To Canva Video?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoid-the-backtrack-blunder-with-these-tips-for-2024/"><u>Avoid the Backtrack Blunder with These Tips for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-solution-for-fixing-absent-or-lost-physxloaderdll-errors/"><u>Comprehensive Solution for Fixing Absent or Lost PhysXLoader.dll Errors</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/discover-the-top-5-excellent-video-repair-applications-compatible-with-your-os/"><u>Discover the Top 5 Excellent Video Repair Applications Compatible with Your OS</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-secrets-to-effective-video-tagging-revealed-here/"><u>In 2024, Secrets to Effective Video Tagging Revealed Here!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-ranked-avcd-to-digital-video-format-translator-software-for-windows-11-users-2024-edition/"><u>Top-Ranked AVCd to Digital Video Format Translator Software for Windows 11 Users, 2024 Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-kodi-buffering-woes-easy-steps-for-seamless-viewing/"><u>Troubleshoot Kodi Buffering Woes – Easy Steps for Seamless Viewing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/tsts/"><u>TSファイルの効率的な変換技術：TS動画再エンコード手順解説</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-convert-videos-for-playstation-portable-psp-models-psp-20003000gops3/"><u>Ultimate Guide: Convert Videos for PlayStation Portable (PSP) Models - PSP 2000/3000/Go/PS3</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-finding-the-ideal-video-shrinker-app-for-your-pc-in-windows/"><u>Ultimate Guide: Finding the Ideal Video Shrinker App for Your PC in Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/yify-iphoneipadpsp/"><u>YIFY 映画ファイル iPhone・iPad・PSP用のダウンロードと効率的再生ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/youtube202youtube-ics/"><u>Youtubeで配信中止の202지YouTube 볼륨 다운로드 편ics를 구하는 コツ</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/vlog6/"><u>ユーザーから愛されるVlog動画のための編集ツールトップ6ピック</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

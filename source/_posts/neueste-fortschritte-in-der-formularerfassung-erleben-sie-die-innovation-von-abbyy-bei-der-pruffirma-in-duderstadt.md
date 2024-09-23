@@ -1,7 +1,7 @@
 ---
 title: "Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt"
-date: 2024-09-15T22:39:41.028Z
-updated: 2024-09-18T19:09:55.726Z
+date: 2024-09-22T16:50:35.455Z
+updated: 2024-09-23T16:40:54.932Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751591496c468d996da741d28a.jpg
@@ -31,6 +31,13 @@ Die RPD bietet Krankenkassen und deren Verbänden im Rahmen ihres Auftrags Outso
 ABBYY Europe ist ein Mitglied der ABBYY Gruppe und verantwortet Vertrieb und Marketing in Westeuropa. ABBYY ist ein führender Anbieter von Technologien für Dokumentenerkennung, Data Capture und Linguistik. Zum Produktportfolio gehören ABBYY FineReader Applikationen für OCR (Optical Character Recognition), ABBYY FlexiCapture Produktreihe für Data Capture, sowie Software Development Kits für Entwickler. ABBYY bietet Professional Services, um Kunden bei der Implementierung von Business Lösungen auf Basis der ABBYY Produkte zu unterstützen. Weltweit nutzen Unternehmen mit einem hohen Aufkommen an Papierdokumenten ABBYY Software zur Automatisierung zeit- und arbeitsintensiver Verarbeitungsaufgaben und zur effizienteren Gestaltung von Businessprozessen. Staatliche Institutionen setzen ABBYY-Produkte für großvolumige Projekte ein, darunter die Australische Steuerbehörde, die Litauische Steueraufsichtsbehörde, das Russische Bildungsministerium, das Ukrainische Bildungsministerium, die Regierung des Montgomery County in den Vereinigten Staaten und die Regierung von Kanada. Zu den Lizenznehmern der Erkennungs-Technologien von ABBYY zählen: BancTec, Canon, EMC/Captiva, Hewlett-Packard, KnowledgeLake, Microsoft, NewSoft, Notable Solutions, Samsung Electronics, u.v.m. ABBYY-Applikationen werden weltweit zusammen mit Geräten führender Hersteller ausgeliefert, darunter Epson, Fujitsu, Fuji Xerox, Microtek, Panasonic, PFU, Plustek, Ricoh, Toshiba, und Xerox. ABBYY ist ein global tätiges Unternehmen mit regionalen Niederlassungen in Deutschland, Großbritannien, Frankreich, Spanien, den USA, Kanada, Ukraine, Zypern, Australien, Japan und Taiwan. Weitere Informationen über ABBYY finden sich im Web unter [www.abbyy.com](https://tools.techidaily.com/abbyy/products/).
 
 _ABBYY, das ABBYY Logo, ADRT, FineReader, FlexiCapture und FlexiLayout sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber._
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Über die Rezeptprüfstelle Duderstadt GmbH
 
@@ -73,27 +80,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[New] 2024 Approved Boost Your Visual Storytelling Key Strategies for Solo Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-new-gamer-era-starts-djis-mavic-air-versus-spark-battle/"><u>[Updated] New Gamer Era Starts DJI’s Mavic Air Versus Spark Battle</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-top-5-freefire-techniques-for-gaming-vloggers/"><u>2024 Approved Top 5 FreeFire Techniques for Gaming Vloggers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/add-life-to-your-footage-title-updating-techniques-in-photos-win-11-for-2024/"><u>Add Life to Your Footage Title Updating Techniques in Photos Win 11 for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028888456-avisynth/"><u>AviSynthを使って簡単なビデオ編集 - ステップバイステップガイド</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-installation-instructions-for-hp-840-g3-printer-drivers/"><u>Easy Installation Instructions for HP 840 G3 Printer Drivers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>How to identify missing drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028762577-mp3/"><u>MP3フォーマットにおけるサウンドクオリティ向上のステップバイステップガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027301907-pc60fps/"><u>PC上でスムーズな60FPS動画編集入門：初心者が始められる技術ガイド</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-infinix-smart-8-hd-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Infinix Smart 8 HD to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-the-power-of-command-line-a-cross-platform-approach-for-windows-operating-systems/"><u>Unlocking the Power of Command Line: A Cross-Platform Approach for Windows Operating Systems</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028548117-youtubemp3/"><u>YouTube動画を高音質MP3に簡単にコンバートする方法とテクニック</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027295203-microsoft-teams/"><u>レコーディング機能に問題がある時、Microsoft Teamsでどうすれば良いか</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-innovative-methods-for-time-loop-illusions/"><u>[New] 2024 Approved Innovative Methods for Time Loop Illusions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-thumbnail-wizardry-top-8-tools-to-boost-view-counts/"><u>[New] Thumbnail Wizardry Top 8 Tools to Boost View Counts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-from-live-action-to-digital-footage-gadget-guidebook-for-2024/"><u>[Updated] From Live Action to Digital Footage Gadget Guidebook for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-infinix-note-30i-unlock-without-password-by-drfone-android/"><u>5 Solutions For Infinix Note 30i Unlock Without Password</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
+<li><a href="https://win-blog.techidaily.com/beat-the-load-screen-fixing-madden-nfl-22-stuck-scenario-for-smooth-gaming/"><u>Beat the Load Screen: Fixing Madden NFL 22 Stuck Scenario for Smooth Gaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-accessibility-learn-how-to-insert-subtitles-into-your-vimeo-content-easily/"><u>Enhancing Accessibility: Learn How to Insert Subtitles Into Your Vimeo Content Easily</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exclusive-discounts-on-wonderfox-pro-hd-media-processor-factory-edition-advanced-video-conversion-technology/"><u>Exclusive Discounts on WonderFox Pro HD Media Processor Factory Edition - Advanced Video Conversion Technology</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/full-featured-winx-dvd-ripper-platinum-with-official-licensing-and-complimentary-upgrade/"><u>Full-Featured WinX DVD Ripper Platinum with Official Licensing and Complimentary Upgrade</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-iphone-6s-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked On iPhone 6s Plus?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-the-silent-problem-fixing-microphone-failures-in-steelseries-arctis-headsets/"><u>Solve the Silent Problem: Fixing Microphone Failures in SteelSeries Arctis Headsets</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-wireless-software-or-driver-on-windows-1110/"><u>Update Wireless Software or Driver on Windows 11/10</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

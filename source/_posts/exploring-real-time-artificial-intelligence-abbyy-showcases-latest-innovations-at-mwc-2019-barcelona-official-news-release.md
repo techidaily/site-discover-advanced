@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-09-15T21:56:52.967Z
-updated: 2024-09-18T18:53:04.267Z
+date: 2024-09-22T16:23:58.998Z
+updated: 2024-09-23T16:57:54.805Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -66,24 +66,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-updates.techidaily.com/free-download-official-msi-z370-a-pro-motherboard-drivers/"><u>Free Download: Official MSI Z370-A Pro Motherboard Drivers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-v27e-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo V27e Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-how-to-make-macbook-pro-video-tutorials-easy/"><u>In 2024, How to Make Macbook Pro Video Tutorials Easy</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-xs-max-to-ipad-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone XS Max to iPad? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/joke-fusion-best-meme-concepts-for-special-occasions/"><u>Joke Fusion Best Meme Concepts for Special Occasions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ts-of-sending-short-videos-to-youtube-tech-for-mobile-and-laptops/"><u>Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/seeking-access-to-all-mutually-shared-media-in-chats/"><u>Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-elevate-your-reel-game-on-insta-with-tiktoks-best-practices/"><u>[New] 2024 Approved Elevate Your Reel Game on Insta with TikTok's Best Practices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-screen-captures-in-firefox-land-for-2024/"><u>[New] Top Screen Captures in Firefox Land for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-empowering-videos-with-your-cellphones-camera-function/"><u>[Updated] 2024 Approved Empowering Videos with Your Cellphone's Camera Function</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-new-features-of-winx-hd-video-converter-updated-free-version-for-mac-users/"><u>Discover the New Features of WinX HD Video Converter 🚀 – Updated Free Version for Mac Users</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-xs-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone XS The Right Way</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-download-and-install-updated-drivers-for-your-amd-radeon-hd-7870-on-windows-11-systems/"><u>How to Download & Install Updated Drivers for Your AMD Radeon HD 7870 on Windows 11 Systems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-conquering-export-errors-for-srt-in-premiere-pro/"><u>In 2024, Conquering Export Errors for SRT in Premiere Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-downloading-pinterest-videos-made-easy-top-5-free-options/"><u>In 2024, Downloading Pinterest Videos Made Easy Top 5 FREE Options</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-lava-blaze-pro-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Lava Blaze Pro 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/tsts/"><u>TSファイルの効率的な変換技術：TS動画再エンコード手順解説</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-convert-videos-for-playstation-portable-psp-models-psp-20003000gops3/"><u>Ultimate Guide: Convert Videos for PlayStation Portable (PSP) Models - PSP 2000/3000/Go/PS3</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/ultimate-guide-finding-the-ideal-video-shrinker-app-for-your-pc-in-windows/"><u>Ultimate Guide: Finding the Ideal Video Shrinker App for Your PC in Windows</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-oppo-by-drfone-android/"><u>Universal Unlock Pattern for Oppo</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/yify-iphoneipadpsp/"><u>YIFY 映画ファイル iPhone・iPad・PSP用のダウンロードと効率的再生ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/youtube202youtube-ics/"><u>Youtubeで配信中止の202지YouTube 볼륨 다운로드 편ics를 구하는 コツ</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
 <li><a href="https://discover-advanced.techidaily.com/vlog6/"><u>ユーザーから愛されるVlog動画のための編集ツールトップ6ピック</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

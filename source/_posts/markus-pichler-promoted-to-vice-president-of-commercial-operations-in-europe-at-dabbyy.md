@@ -1,7 +1,7 @@
 ---
 title: Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy
-date: 2024-09-08T23:43:37.042Z
-updated: 2024-09-15T00:00:55.481Z
+date: 2024-09-16T17:58:27.281Z
+updated: 2024-09-23T17:53:09.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3b7699086866b0998ff7b7cb.jpg
@@ -62,23 +62,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-stream-control-tactics-10-ways-to-unwind-live-play-for-2024/"><u>[New] Stream Control Tactics 10 Ways to Unwind Live Play for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-a-beginners-guide-to-editing-digits-in-tiktoks/"><u>2024 Approved A Beginner’s Guide to Editing Digits in TikToks</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/deciphering-ai-spectrums-mass-vs-individual-use/"><u>Deciphering AI Spectrums: Mass Vs. Individual Use</u></a></li>
-<li><a href="https://driver-install.techidaily.com/download-and-activate-surface-pro-4-drivers-in-windows/"><u>Download and Activate Surface Pro 4 Drivers in Windows</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/macbook-airs-hidden-potential-expertise-in-screen-capturing/"><u>MacBook Air's Hidden Potential Expertise in Screen Capturing</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/making-the-right-vr-purchase-on-the-go-vs-tethered-tech/"><u>Making the Right VR Purchase On-the-Go Vs. Tethered Tech</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-the-power-of-gpt-3-on-openais-interactive-platform/"><u>Navigating the Power of GPT-3 on OpenAI's Interactive Platform</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features/"><u>[Updated] In 2024, From Reels to Filters A Closer Look at TikTok vs Snap's Features</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719160505091-4-premium-game-boy-advance-emulators-for-your-idevice/"><u>4 Premium Game Boy Advance Emulators for Your iDevice!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elite-applications-facilitating-video-discussions-for-2024/"><u>Elite Applications Facilitating Video Discussions for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/fastest-data-links-the-ultimate-wired-solutions-for-gamers/"><u>Fastest Data Links - The Ultimate Wired Solutions For Gamers</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-restore-clarity-a-comprehensive-guide-on-polishing-home-audio-speakers/"><u>How to Restore Clarity: A Comprehensive Guide on Polishing Home Audio Speakers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-12-proplus-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme 12 Pro+ 5G Phone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-shine-up-your-android-videos-with-these-tips/"><u>In 2024, Shine Up Your Android Videos with These Tips</u></a></li>
+<li><a href="https://games-able.techidaily.com/journey-through-the-steam-workshop-for-game-mastery/"><u>Journey Through The Steam Workshop for Game Mastery</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-writers-guide-to-responsible-technological-assistance/"><u>The Writer's Guide to Responsible Technological Assistance</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021
-date: 2024-09-16T16:41:30.732Z
-updated: 2024-09-18T19:26:45.803Z
+date: 2024-09-19T18:46:48.132Z
+updated: 2024-09-23T17:20:38.990Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -41,15 +41,42 @@ Den vollständigen Bericht über ISG Provider Lens™ Intelligent Automation - S
 
 Den vollständigen Bericht zur Quadrant Knowledge Solutions SPARK Matrix for IDP 2021 finden Sie unter: <https://www.abbyy.com/resources/report/intelligent-document-processing-quadrant-knowledge-solutions/>.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich[Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -74,33 +101,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-intrinsic-storytelling-principles/"><u>[New] In 2024, Intrinsic Storytelling Principles</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-10-cost-effective-virtual-communication-tools-for-2024/"><u>[Updated] Unveiling 10 Cost-Effective Virtual Communication Tools for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-guide-to-update-and-install-razer-graphics-and-audio-drivers-on-any-version-of-windows/"><u>Easy Guide to Update and Install Razer Graphics & Audio Drivers on Any Version of Windows</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-lava-blaze-2-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Lava Blaze 2 Devices</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/improve-graphics-and-stability-new-nvidia-geforce-210-drivers-released-for-windows-11/"><u>Improve Graphics and Stability: New NVIDIA GeForce 210 Drivers Released for Windows 11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations/"><u>In 2024, Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-virtual-reality-to-the-fullest-with-htc-vive-review/"><u>In 2024, Unleash Virtual Reality to the Fullest with HTC Vive Review</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
-<li><a href="https://some-skills.techidaily.com/versatile-tips-for-avoiding-vr-motion-sickness-for-2024/"><u>Versatile Tips for Avoiding VR Motion Sickness for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-your-video-production-with-kinemaster-and-leading-alternatives/"><u>[New] Streamlining Your Video Production with KineMaster & Leading Alternatives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-discover-the-best-6-apps-to-supercharge-your-instagram-reels/"><u>[Updated] Discover the Best 6 Apps to Supercharge Your Instagram Reels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-social-media-strategies-for-showcasing-your-video-content/"><u>[Updated] In 2024, Social Media Strategies for Showcasing Your Video Content</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/chromefirefox/"><u>【Chrome・Firefox】動画ダウンロードソフトワックスにおける代替アプリケーションとその使い方</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-critical-analysis-facebooks-top-10-video-plays/"><u>2024 Approved Critical Analysis Facebook's Top 10 Video Plays</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/aacwav5/"><u>AACからWAVへ自由で手軽な変換ツール：5人気のフリーソフト</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abema-pc6/"><u>ABEMA PC録画機能を活用した最高の6つのツール</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advocate-for-zero-cost-flash-video-editing-tool-the-perfect-gift-you-can-recommend/"><u>Advocate for Zero-Cost Flash Video Editing Tool: The Perfect Gift You Can Recommend!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-mp3-to-wav-converters-top-picks-for-windows-and-macos/"><u>Best MP3 to WAV Converters: Top Picks for Windows & macOS</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/combatting-copypaste-complications-in-windows-10/"><u>Combatting Copy/Paste Complications in Windows 10</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comparing-apple-itunes-with-microsofts-zune-which-media-player-wins-out/"><u>Comparing Apple iTunes with Microsoft's Zune: Which Media Player Wins Out?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/conversion-mts-avi-and-positive-adjectives-like-simple-swift-fast-and-effortless/"><u>Conversion, MTS, AVI, and Positive Adjectives Like Simple, Swift, Fast, and Effortless.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-mp4-audio-tracks-to-mp3-files-free-of-charge-in-windows-10/"><u>Convert MP4 Audio Tracks to MP3 Files Free of Charge in Windows 10</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-applied-resolving-stuttering-issues-in-assassins-creed-valhalla-for-pc-gaming/"><u>Fixes Applied: Resolving Stuttering Issues in Assassin's Creed Valhalla for PC Gaming</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-iphone-8-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From iPhone 8</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/squared-success-creating-compelling-video-posts-on-facebook-for-2024/"><u>Squared Success Creating Compelling Video Posts on Facebook for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-summer-edc-discover-these-7-unmissable-products/"><u>Ultimate Summer EDC: Discover These 7 Unmissable Products</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role"
-date: 2024-09-17T17:40:38.351Z
-updated: 2024-09-18T17:38:36.466Z
+date: 2024-09-16T16:56:30.769Z
+updated: 2024-09-23T16:31:24.702Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16477a8d9fa6304264e3f24e3.jpg
@@ -36,15 +36,36 @@ Before joining ABBYY, Mr. Shimizu spent more than 30 years at RICOH, being respo
 
 _1 IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622_
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY puts your information to work. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We enable more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 14 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) and [Facebook](https://www.facebook.com/ABBYYsoft).
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray
 
@@ -70,28 +91,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-engrossing-12-pc-clicker-games-that-keep-you-hooked/"><u>[New] Engrossing 12 PC Clicker Games That Keep You Hooked</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-efficient-network-livestream-techniques-using-vlc/"><u>[New] In 2024, Efficient Network Livestream Techniques Using VLC</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-reviving-a-dying-twitch-stream-in-seconds-for-2024/"><u>[Updated] Reviving a Dying Twitch Stream in Seconds for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-streamlined-playback-import-tunes-into-inshot/"><u>[Updated] Streamlined Playback Import Tunes Into InShot</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-chromatic-creativity-enhancing-your-craft/"><u>2024 Approved Chromatic Creativity Enhancing Your Craft</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mpeg-mp3/"><u>簡単な手順でMPEG-#からMP3への音声変換方法</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/amazon-luna-experience-a-deep-dive-into-its-seamless-gaming-streams/"><u>Amazon Luna Experience - A Deep Dive Into Its Seamless Gaming Streams</u></a></li>
-<li><a href="https://discover-able.techidaily.com/converti-file-ogv-a-mp4-gratuitamente-su-internet-con-movavi/"><u>Converti File OGV a MP4 Gratuitamente Su Internet Con Movavi</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/flacapple-losslesswindowsmac/"><u>FLACからApple Losslessへの変換手法：WindowsとMacで使える方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/h264-format-not-working-on-vlc-media-player-uncover-successful-troubleshooting-tips-here/"><u>H264 Format Not Working on VLC Media Player? Uncover Successful Troubleshooting Tips Here!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-rapid-pause-video-snapshot-manual/"><u>In 2024, Rapid Pause Video Snapshot Manual</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/makemkiand/"><u>MakeMKIの基本使い方&期限切れ公認コード後始末ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-converting-mp4-video-files-to-audio-in-mp3-quality-comprehensive-tutorials-and-tools/"><u>Master the Art of Converting MP4 Video Files to Audio in MP3 Quality: Comprehensive Tutorials and Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-trustworthy-ways-to-extract-audio-from-youtube-videos-for-2024/"><u>Three Trustworthy Ways to Extract Audio From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-8-online-learning-paths-for-newcomers-to-video/"><u>[New] 2024 Approved Top 8 Online Learning Paths for Newcomers to Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pushing-boundaries-nikons-d500-in-4k-landscape/"><u>[New] In 2024, Pushing Boundaries Nikon's D500 in 4K Landscape</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://video-capture.techidaily.com/chrome-browserfacebook/"><u>Chrome BrowserによるFacebookビデオのダウンロード手順集</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-hisense-40-40h5590f-led-smart-tv-evaluation-affordable-quality-on-display/"><u>Comprehensive Hisense 40 40H5590F LED Smart TV Evaluation - Affordable Quality on Display</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/essential-tips-for-using-switch-pro-controller-with-steam-for-2024/"><u>Essential Tips for Using Switch Pro Controller with Steam for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/improve-pet-portraits-remedies-for-imperfect-animal-eyes-captured-in-images/"><u>Improve Pet Portraits: Remedies for Imperfect Animal Eyes Captured in Images</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-obs-vs-shadowplay/"><u>In 2024, OBS vs ShadowPlay</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/leveling-up-tabletop-role-playing-strategies-to-amplify-dandd-with-chatgpt/"><u>Leveling Up Tabletop Role-Playing: Strategies to Amplify D&D with ChatGPT</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-transition-to-one-how-nvidia-is-combining-its-control-panel-and-geforce-experience-into-a-unified-interface/"><u>The Transition to One: How Nvidia Is Combining Its Control Panel and GeForce Experience Into a Unified Interface</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027295203-microsoft-teams/"><u>レコーディング機能に問題がある時、Microsoft Teamsでどうすれば良いか</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

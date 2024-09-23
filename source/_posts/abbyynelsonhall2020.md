@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-09-07T16:08:11.520Z
-updated: 2024-09-14T21:09:39.884Z
+date: 2024-09-16T18:54:23.432Z
+updated: 2024-09-23T17:39:43.604Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -69,33 +69,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-from-the-shooting-range-to-streaming-real-time-dslr-and-pcmac-connection-for-2024/"><u>[New] From the Shooting Range to Streaming Real-Time DSLR & PC/Mac Connection for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-effortless-techniques-to-edit-multisnapping-videos/"><u>[New] In 2024, Effortless Techniques to Edit Multisnapping Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-key-approaches-to-mute-motion-capture/"><u>[Updated] In 2024, Key Approaches to Mute Motion Capture</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-m1-demystified-apple-redefines-chipset-technology/"><u>[Updated] In 2024, M1 Demystified Apple Redefines Chipset Technology</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-top-11-economical-cameras-for-professional-vloggers/"><u>2024 Approved Top 11 Economical Cameras for Professional Vloggers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-digital-footprint-effortlessly-using-cookiebot-technology-for-superior-seo-results/"><u>Boost Your Digital Footprint Effortlessly Using Cookiebot Technology for Superior SEO Results</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-advertising-solutions-for-effective-digital-campaigns/"><u>Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Enabled: Boost Your Site's Visibility & Conversions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-personalized-data-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Personalized Data Tracking</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-here-is-how-asmr-helps-with-sleep-and-best-asmrtist-recommendation/"><u>In 2024, Here Is How ASMR Helps with Sleep & Best ASMRtist Recommendation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-install-updates-for-your-razer-naga-mouse-on-windows-operating-systems/"><u>Step-by-Step Guide: Install Updates for Your Razer Naga Mouse on Windows Operating Systems</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-dynamic-duels-ranking-the-top-street-fighter-titles/"><u>[New] 2024 Approved Dynamic Duels Ranking the Top Street Fighter Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-easy-change-overs-at-your-fingertips-the-best-10-websites/"><u>[New] 2024 Approved Easy Change-Overs at Your Fingertips The Best 10 Websites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-cost-effective-youtube-closure-elements/"><u>[Updated] 2024 Approved Creating Cost-Effective YouTube Closure Elements</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-superior-gopro-film-production-options/"><u>[Updated] 2024 Approved Superior GoPro Film Production Options</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-boosting-collaboration-mastery-of-zoom-capabilities-in-win10/"><u>[Updated] Boosting Collaboration Mastery of Zoom Capabilities in Win10</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029488666-mov/"><u>「ダビンチ解決策: ダヴィンチ・リゾルブにMOVファイルを正常読み取れない対処法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-diagnosing-and-repairing-openal32dll-errors/"><u>The Ultimate Guide to Diagnosing and Repairing openAL32.dll Errors</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

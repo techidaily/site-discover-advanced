@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations"
-date: 2024-09-12T17:04:01.107Z
-updated: 2024-09-14T17:08:35.743Z
+date: 2024-09-19T17:39:48.553Z
+updated: 2024-09-23T18:31:50.356Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/25f844691822ba4cb5e360ab99f911dddda24c96d9c140ba9ad85b4664a5d151.png
@@ -24,6 +24,13 @@ Transportation & Logistics | Food and Beverage | Forms Processing | Document Pro
 食品および飲料 | 各種帳票処理／データキャプチャ 
 
 ![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static4.abbyy.com/abbyycommedia/36081/15063-carlsberg-556x303.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### お客様の概要
 
@@ -79,15 +86,36 @@ ABBYYのIDPソリューションを納品書のスキャンプロセスに導入
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/36083/15063-carlsberg-360x162.png)](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") [PDF版](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [資料を読む](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -110,24 +138,21 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-x-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From Apple iPhone X</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/elevate-your-business-practices-using-chatgpt-8-insider-secrets-revealed/"><u>Elevate Your Business Practices Using ChatGPT – 8 Insider Secrets Revealed</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-poco-x6-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Poco X6 Pro Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/techniques-expertises-pour-une-prise-de-visionnage-optimale-sur-les-mac/"><u>Techniques Expertises Pour Une Prise De Visionnage Optimale Sur Les Mac</u></a></li>
-<li><a href="https://techtrends.techidaily.com/twitch-unavailability-is-it-a-widespread-server-problem-or-just-you/"><u>Twitch Unavailability – Is It a Widespread Server Problem or Just You?</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-data-from-huawei-p60-by-fonelab-android-recover-data/"><u>Undelete lost data from Huawei P60</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/whats-the-price-tag-for-1m-youtube-sights-for-2024/"><u>What's the Price Tag for 1M YouTube Sights for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-account-alert-regaining-lost-access-on-facebook/"><u>[Updated] In 2024, Account Alert! Regaining Lost Access on Facebook</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-offline-adventures-top-10-android-journeys-without-connectivity/"><u>[Updated] In 2024, Offline Adventures Top 10 Android Journeys Without Connectivity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-iphone-close-up-techniques-for-photo-excellence/"><u>[Updated] Innovative iPhone Close-Up Techniques for Photo Excellence</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-plus-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Plus Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-big-four-of-social-networking-facey-twittle-grammy-and-tubetv/"><u>Navigating the Big Four of Social Networking: Facey, Twittle, Grammy and TubeTV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-gaming-a-beginners-guide-to-simple-and-effective-pc-game-modding-techniques/"><u>Revolutionize Your Gaming: A Beginner's Guide to Simple and Effective PC Game Modding Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transform-your-computing-life-with-this-comprehensive-linux-os-a-game-changer-for-former-distro-switchers/"><u>Transform Your Computing Life with This Comprehensive Linux OS - A Game Changer for Former Distro Switchers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

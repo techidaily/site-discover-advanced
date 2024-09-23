@@ -1,7 +1,7 @@
 ---
 title: "U.S. Regulations Offer Positive Outlook: Insights From ABBYY"
-date: 2024-09-17T23:28:26.117Z
-updated: 2024-09-18T20:09:13.104Z
+date: 2024-09-22T16:35:19.014Z
+updated: 2024-09-23T18:45:50.111Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be75696460e14e09acd5a7ef9a37fabd.jpg
@@ -40,6 +40,19 @@ Digital transformation expert and AI Ethics Evangelist for ABBYY
 Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY](https://tools.techidaily.com/abbyy/products/). His expertise is in artificial intelligence (AI) technologies, application software, data privacy and AI ethics. He has written and presented several papers on the ethical use of AI and is currently co-authoring a book for the American Bar Association. He holds a Masters of Law degree with Distinction from Northwestern University Pritzker School of Law and is a Certified Information Privacy Professional (CIPP/C), (CIPP/E) and a Certified Information Professional (CIP/AIIM).
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -104,24 +117,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mastering-story-remix-windows-10-photos-for-video-editing/"><u>[New] 2024 Approved Mastering Story Remix Windows 10 Photos for Video Editing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-roadmap-to-fandom-10-secrets-for-rampant-fb-engagement/"><u>[New] 2024 Approved The Roadmap to Fandom 10 Secrets for Rampant FB Engagement</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-avoid-common-mistakes-mastering-youtube-tags-wisely/"><u>[Updated] 2024 Approved Avoid Common Mistakes - Mastering YouTube Tags Wisely</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-merge-worlds-easily-linking-instagram-and-facebook-accounts/"><u>In 2024, Merge Worlds Easily Linking Instagram & Facebook Accounts</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/keeping-out-invaders-effective-windows-access-blockers/"><u>Keeping Out Invaders: Effective Windows Access Blockers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-primeval-20-anime-series-opener-music/"><u>[New] Primeval 20 Anime Series Opener Music</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-much-money-do-youtubers-make-per-view/"><u>[Updated] How Much Money Do YouTubers Make Per View</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-alleviate-problem-buffering-tweets-in-chromebook/"><u>2024 Approved Alleviate Problem Buffering Tweets in Chromebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-masterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube/"><u>2024 Approved Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/audacitys-blueprint-for-high-fidelity-sound-recording/"><u>Audacity's Blueprint for High-Fidelity Sound Recording</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/hassle-free-methods-for-changing-dall-e-outputs-from-webp-to-widely-supported-images-formats/"><u>Hassle-Free Methods for Changing DALL-E √ Outputs From WebP to Widely-Supported Images Formats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfect-audio-preservation-with-dvd-to-wav-ripping-software-solutions/"><u>Perfect Audio Preservation with DVD to WAV Ripping Software Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-oneplus-nord-ce-3-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock OnePlus Nord CE 3 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

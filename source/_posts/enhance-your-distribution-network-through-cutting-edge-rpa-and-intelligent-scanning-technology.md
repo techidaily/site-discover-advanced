@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology
-date: 2024-09-13T21:33:53.976Z
-updated: 2024-09-14T16:54:43.548Z
+date: 2024-09-17T18:46:48.981Z
+updated: 2024-09-23T18:51:06.749Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcefc70e1397a53b37f683a84de.jpg
@@ -25,11 +25,25 @@ Yet the approaches to handling documents is antiquated, often relying on legacy 
 
 **[Overcome unstructured content as an obstacle to automation in logistics.](https://static3.abbyy.com/abbyycommedia/34326/checklist-transportation-documentskillsmarketplace-en.pdf?itm%5Fsource=corpblog-en)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start with understanding documents
 
 Documents are containers of vital information to any supply chain operation. Sourcing and onboarding suppliers, for example, requires the exchange of packets of documents ranging from Supplier Agreements, Letters of Credit, Proofs of Identity and ability to pay, Certifications, and more. Shipments require [Bills of Lading](https://tools.techidaily.com/abbyy/products/), [Sea](https://tools.techidaily.com/abbyy/products/) or [Air Waybills](https://tools.techidaily.com/abbyy/products/), Customs Declarations, Invoices including [Commercial Invoices](https://tools.techidaily.com/abbyy/products/), Tax, and [Dangerous Goods Declarations](https://tools.techidaily.com/abbyy/products/) in some cases. It is fair to say that documents are both the facilitators of supply chain actions and serve a vital vetting function throughout the process.
 
 ![supply chain workers using AI skills](https://static1.abbyy.com/abbyycommedia/34763/skills-for-transportation-2-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 All too often, technology providers and companies are quick to reduce documents to data problems for systems of record, and this set of assumptions creates its own vulnerabilities to disruption and competition. Instead, documents contain both valuable data and content—the latter requiring skilled reading and context-grounded interpretation to make quick decisions. Skilled workforces interact with documents and content for this express purpose, since data only provides part of the picture needed to make critical decisions that move shipments or source materials and services every day. Artificial intelligence (AI) can add the dimension of skilled reading to documents, filling in that missing link between experience and data, but supply chains have yet to realize its potential for transforming their operations.
 
@@ -42,10 +56,10 @@ Having the right tools with experienced, human-like skills built in with new-gen
 No longer do you need big capture platforms or frameworks to get the operational benefits of document skills. With the help of AI with pre-trained containerized document “skills” (pre-trained actions that understand the document, not just the data, but the actions needed to be taken on it), supply chains can finally remove common bottlenecks and gain control of the document-driven processes that all levels of business operations rely on—Transport & Logistics to Accounts Payable (AP) payment processing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Want to optimize your Transportation & Logistics operations for rapid change?
@@ -53,6 +67,13 @@ No longer do you need big capture platforms or frameworks to get the operational
 We have a skill for that.
 
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A marketplace approach
 
@@ -65,13 +86,6 @@ Learn more about how ABBYY is[helping Transportation and Logistics providers](ht
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") 
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Reginald J. Twigg
 
@@ -138,19 +152,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-top-tactics-for-captivating-audienes-in-instagram-reels/"><u>[New] 2024 Approved Top Tactics for Captivating Audienes in Instagram Reels</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-imovie-masterclass-drawing-viewers-into-your-content-quickly/"><u>[New] IMovie Masterclass Drawing Viewers Into Your Content Quickly</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-mirthful-media-youtubes-top-20-for-a-chuckle/"><u>[New] Mirthful Media YouTube's Top 20 for a Chuckle</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-viewsplit-diagnostics-for-2024/"><u>[Updated] ViewSplit Diagnostics for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-automation-through-advanced-cookiebot-solutions/"><u>Enhanced Marketing Automation Through Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-through-advanced-cookiebot-integration/"><u>Enhanced User Experience Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-customer-onboarding-with-mobile-ocr-technology/"><u>Enhancing Customer Onboarding with Mobile OCR Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-digital-marketing-strategies-the-efficiency-of-cookiebot-technology/"><u>Enhancing Digital Marketing Strategies: The Efficiency of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-rpa-efficiency-using-all-encompassing-enterprise-workflow-analysis-tools/"><u>Enhancing RPA Efficiency Using All-Encompassing Enterprise Workflow Analysis Tools</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/error-0x00000709-windows-printer-setup-successfully-fixed/"><u>Error 0X00000709: Windows Printer Setup Successfully Fixed</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-honor-80-pro-straight-screen-edition-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Honor 80 Pro Straight Screen Edition Devices</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcome-your-dll-cant-be-found-problem-with-python-quick-fixes-revealed/"><u>Overcome Your DLL Can't Be Found Problem with Python – Quick Fixes Revealed</u></a></li>
-<li><a href="https://techidaily.com/solved-bad-and-corrupt-videos-that-won-t-play-on-samsung-galaxy-xcover-6-pro-tactical-edition-by-stellar-video-repair-mobile-video-repair/"><u>Solved Bad and Corrupt Videos that won't Play on Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tag-your-way-to-the-top-youtubes-viral-power-players-for-2024/"><u>Tag Your Way to the Top YouTube's Viral Power Players for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ont-selection-wonders-enhancing-youtube-video-thumbnails-for-2024/"><u>[New] Font Selection Wonders Enhancing YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-pioneering-3-approaches-to-ipad-voice-capture/"><u>[New] In 2024, Pioneering 3 Approaches to iPad Voice Capture</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-lightrooms-10-lut-sensations-transforming-photos/"><u>[New] LightRoom's 10 LUT Sensations Transforming Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-hidden-guide-watching-highly-engaged-comments-with-ease-on-youtube/"><u>[Updated] 2024 Approved The Hidden Guide Watching Highly Engaged Comments with Ease on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/conversion-libre-entre-hevc-y-h264-manteniendo-la-integridad-visual/"><u>Conversión Libre Entre HEVC Y H.264 Manteniendo La Integridad Visual</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-6-budget-friendly-youtube-outro-makers/"><u>In 2024, Top 6 Budget-Friendly YouTube Outro Makers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/joymakerbox-sign-up-share-smiles-create/"><u>JoyMakerBox Sign Up, Share Smiles, Create</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/masterclass-acquiring-free-photo-frames-effortlessly-for-2024/"><u>Masterclass Acquiring Free Photo Frames Effortlessly for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-google-voice-a-thorough-evaluation-and-recommendations/"><u>Navigating Google Voice: A Thorough Evaluation and Recommendations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pcyoutubedvd/"><u>PCでYouTube映像をDVDに保存するためのガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-combining-multiple-mp4-clips-on-your-windows-11-pc/"><u>Step-by-Step: Combining Multiple MP4 Clips on Your Windows 11 PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
 </ul></div>
 

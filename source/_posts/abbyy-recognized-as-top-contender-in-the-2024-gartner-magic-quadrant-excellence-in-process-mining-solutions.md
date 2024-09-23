@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions
-date: 2024-09-10T18:49:04.235Z
-updated: 2024-09-14T20:43:29.533Z
+date: 2024-09-21T16:09:24.721Z
+updated: 2024-09-23T16:09:39.857Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ba823e70571284a0c45a2acec26bb9d28a4fab8bdde6a1d84cbac37f185e31d.jpg
@@ -13,9 +13,23 @@ Report
 
 ## ABBYY Named a Leader in the 2024 Gartner® Magic Quadrant™ for Process Mining Platforms
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY recognized for its Timeline process intelligence platform’s completeness of vision and ability to execute.
 
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Process mining platforms](https://tools.techidaily.com/abbyy/products/) help businesses to make smart, data-based decisions faster so they can achieve operational goals and gain competitive edge. The Gartner® Magic Quadrant™ for Process Mining Platforms examines current market forces and the leading vendors of process mining platforms.
 
@@ -38,6 +52,13 @@ The Gartner document is available upon request from ABBYY.
 GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER INSIGHTS are trademarks and service marks, of Gartner, Inc. and/or its affiliates in the U.S. and internationally and are used herein with permission. All rights reserved. Gartner does not endorse any vendor, product or service depicted in its research publications, and does not advise technology users to select only those vendors with the highest ratings or other designation. Gartner research publications consist of the opinions of Gartner’s research organization and should not be construed as statements of fact. Gartner disclaims all warranties, expressed or implied, with respect to this research, including any warranties of merchantability or fitness for a particular purpose.
 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
 
@@ -110,19 +131,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-clearsightcapture-straightforward-desktop-to-video-conversion-for-2024/"><u>[Updated] ClearSightCapture Straightforward Desktop to Video Conversion for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-harmonizing-visuals-and-soundtracks-with-youtubes-video-editor/"><u>[Updated] Harmonizing Visuals & Soundtracks with YouTube's Video Editor</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/6yer6j6n44k144o844ot44k544gr44gk44gr44kl6z2e5qel6ycg5yyw44kz44oz44og44oz44oe44gu5aplusplus5yem5pa55rov44ks6kej44gn5pio44gl44gz/"><u>金融サービスにおける非構造化コンテンツの対処方法を解き明かす</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbeyy-finescanner-80-abbeyy/"><u>ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-announces-chip-vonburgs-appointment-to-chief-of-strategic-customer-growth-initiatives/"><u>ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-macs-recognition-problems-with-an-outside-monitor-a-comprehensive-guide/"><u>Overcoming Mac's Recognition Problems with an Outside Monitor: A Comprehensive Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-infinix-smart-7-hd-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Infinix Smart 7 HD Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-spin-o-matic-method-transforming-your-images-on-instagram-with-ease/"><u>[New] 2024 Approved The Spin-O-Matic Method Transforming Your Images on Instagram with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-crafting-a-legacy-youtubers-playbook-for-success-for-2024/"><u>[Updated] Crafting a Legacy YouTuber’s Playbook for Success for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-top-5-mac-snipping-utilities-essential-choices/"><u>[Updated] In 2024, Top 5 Mac Snipping Utilities Essential Choices</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpeg-mp3/"><u>簡単な手順でMPEG-#からMP3への音声変換方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/battle-of-the-bots-is-gemini-advanced-or-microsofts-chatgpt-plus-more-effective/"><u>Battle of the Bots: Is Gemini Advanced or Microsoft's ChatGPT Plus More Effective?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-honor-magic-v2-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Honor Magic V2.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-honor-x50iplus-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Honor X50i+</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-oneplus-12-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock OnePlus 12 Pattern Lock Screen</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-top-10-free-dvd-player-software-for-windows-10/"><u>In 2024, Top 10 Free DVD Player Software for Windows 10</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/obsmkvmp4/"><u>OBSで録画したMKVビデオをMP4に直してください | 変換手順詳しく解説</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfect-audio-preservation-with-dvd-to-wav-ripping-software-solutions/"><u>Perfect Audio Preservation with DVD to WAV Ripping Software Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
