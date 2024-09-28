@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-09-18T18:52:22.150Z
-updated: 2024-09-23T17:29:23.827Z
+date: 2024-09-26T23:40:20.686Z
+updated: 2024-09-27T18:41:12.049Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -22,10 +22,10 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
 以下のリストでは、見逃したかもしれない2020年のプロセスインテリジェンス記事のトップピックを厳選しました。ビジネスをDXの成功に向けて推進したストーリー、業務プロセスへの新しいアプローチを奨励したストーリー、企業の回復力を高めるためのヒントなどです。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. ABBYY CMO Scott OpitzによるQ&Aセッション
@@ -36,25 +36,11 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. DXの成功はプロセスの真実を理解することから
 
 デジタルインテリジェンスは、企業にとって今最も重要と考えられている場所、つまり顧客体験、競争上の優位性、可視性、コンプライアンスに多大な影響を与えます。 ABBYYのデジタルマーケティングのディレクターでありプロセスのエキスパートであるRyan Raikerは、RTInsights.comの記事で、どのようにビジネスが組織のプロセスを深く理解する必要としているかを説明しています。
 
 [記事はこちら](https://www.rtinsights.com/successful-digital-transformation-understanding-processes/)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. 業務プロセスとリスク、失敗の理解
 
@@ -72,11 +58,25 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 [記事はこちら](https://workflowotg.com/a-new-approach-to-processes/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. 全てのリーダーが回復力のあるサプライチェーンのために問うべき3つの質問
 
 新型コロナウイルス（COVID-19）の流行は、事実上すべての業界を根本的に混乱させましたが、おそらくサプライチェーンで最も顕著でした。 米国企業の4社に3社は、この危機の結果としてサプライチェーンが混乱したと報告しています。 出荷の遅れや在庫不足がよく発生しました。
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 米国で非常事態宣言が発令されてからわずか数週間後の3月下旬、Amazonでさえ1か月もの配達遅延が発生したと報告されました。 ABBYYの製品マーケティング担当役員（Vice President）であるBruce Orcuttは、サプライチェーンが回復力を発揮するためには、迅速にピボット（軸を決めて旋回）できる必要があるとSupply & Demand Chain Executiveで語っています。
 
@@ -88,6 +88,13 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 [記事はこちら](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. 強烈な効果をもたらすRPAにタスクマイニングとプロセスマイニングで明確な道筋を
 
 テクノロジージャーナリストのAdrian Bridgwaterは、彼の最新のIDG Connectの記事の中で、デジタルビジネスが機能する方法を最も詳細なレベルで理解し、さまざまなワークフローを定義済みの個別要素に分類できるようにすることをおこなわない限り、人を効果的に管理しつつ、並行して人の代わりに最大限の力を発揮するようRPAボットを配置することはできないと言っています。 この記事には、「エンドツーエンド」で事業を展開している1つの企業としてABBYYが含まれています。
@@ -95,13 +102,6 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 [記事はこちら](https://www.idgconnect.com/article/3586638/task-and-process-mining-clear-pathway-for-dynamite-rpa.html)
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
 
@@ -170,5 +170,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastery-of-removal-eliminating-downloaded-youtube-clips/"><u>[New] 2024 Approved Mastery of Removal Eliminating Downloaded YouTube Clips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-the-lg-bp350-a-detailed-performance-and-design-study-for-2024/"><u>[New] Unveiling the LG BP350 A Detailed Performance & Design Study for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mastery-in-stardew-navigating-the-intricacies-of-ginger-isle/"><u>[Updated] 2024 Approved Mastery in Stardew Navigating the Intricacies of Ginger Isle</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/behind-the-lens-innovative-techniques-using-hero5-black-for-2024/"><u>Behind the Lens Innovative Techniques Using Hero5 Black for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-70-lite-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor 70 Lite 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/crafting-captivating-images-using-leading-lines-iphone-for-2024/"><u>Crafting Captivating Images Using Leading Lines (iPhone) for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cutting-your-videos-into-halves-across-all-platforms-pc-mac-iphone-and-android/"><u>Cutting Your Videos Into Halves Across All Platforms: PC, Mac, iPhone & Android</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/download-animated-shiva-artwork-without-cost-or-hassle-top-tips-and-tricks/"><u>Download Animated Shiva Artwork Without Cost or Hassle: Top Tips and Tricks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/download-top-hd-movies-and-tv-shows-for-free-quick-secure-streamable-video-downloader/"><u>Download Top HD Movies & TV Shows for Free – Quick, Secure, Streamable Video Downloader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-guide-how-to-download-and-watch-ted-talks/"><u>Easy Guide: How to Download and Watch TED Talks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-to-watch-vob-movies-on-an-ipad-the-ultimate-tutorial/"><u>Easy Methods to Watch VOB Movies on an iPad – The Ultimate Tutorial</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/effortless-techniques-to-share-igtv-in-stories/"><u>Effortless Techniques to Share IGTV in Stories</u></a></li>
+<li><a href="https://extra-information.techidaily.com/reveal-new-dimensions-of-communication-access-free-vocal-effects-here/"><u>Reveal New Dimensions of Communication - Access Free Vocal Effects Here</u></a></li>
+</ul></div>
 
