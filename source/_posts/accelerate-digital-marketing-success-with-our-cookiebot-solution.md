@@ -1,7 +1,7 @@
 ---
 title: Accelerate Digital Marketing Success with Our Cookiebot Solution!
-date: 2024-09-22T05:00:22.925Z
-updated: 2024-09-28T05:01:39.344Z
+date: 2024-09-28T16:20:32.770Z
+updated: 2024-10-02T18:03:56.779Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4eff5c9989165ba5b957b7575.jpg
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 [記事はこちら](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle  
@@ -58,16 +58,29 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 [記事はこちら](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing  
 (ソーシャルディスタンス時代におけるDigital Intelligenceの必要性)
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 新型コロナウィルスは、2020年の最も大きな出来事であり、それとともに、「ソーシャルディスタンス」が現代のビジネスの語彙に入り、対人関係やビジネスの相互作用を再構築しました。 現在、私たちの社会的意識の一部として、ソーシャルディスタンスは仮想化と技術的に仲介された繋がりを加速させています。 ソーシャルディスタンスの緊急性はすでに私たちがテクノロジーとプロセスの準備できているかをテストしていますが、それは人々、プロセス、そしてコンテンツがこの新常態（ニューノーマル）でどのように相互作用するかについての重要な問題を提起しています。 ソーシャルディスタンスは、人間から人間への相互作用をアプリ定義の相互作用に置き換えることにより、顧客体験を不可欠なものにし、DX（デジタルトランスフォーメーション）を推進しています。
 
@@ -77,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 (DXプロジェクトを復活させるための６つのステップ、英語記事)
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 新型コロナウィルス流行により、多くのITリソースがビジネス継続性の取り組みにシフトし、多くの労働者やリーダーは、DXプロジェクトの立ち上げや再開にチャレンジするようになりました。 組織は、エンドツーエンドのDXを拡大することから得られるメリットを利用しようとしましたが、より価値の高いイニシアチブを加速するための適切な戦略に関する方向づけが必要でした。 課題は、ビジネスプロセスの理解に欠けていることと、企業のデータを戦略的なビジネス意思決定を推進する実用的で価値のある情報に変換できないことに起因します。 ABBYYは、DXの実装を支援するための6つの基本的なステップを共有します。
 
@@ -89,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 
 ![デジタルインテリジェンス](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 新型コロナウイルスの大流行からわずか数か月で、この危機状況が、顧客エンゲージメント、ビジネスプロセス、およびテクノロジーのルールを書き換えたことが明らかになりました。 保険会社は、請求プロセス中に顧客体験が重要であることを理解していました。そうでないと、顧客が離れていくリスクがあります。 請求の解決までには多くの要因が関与しますが、顧客体験を向上させる最も重要な推進力の1つは、保険会社の運用プロセスです。 保険会社は、デジタル効率を高める方法、今までとは大きく異なるプロセスを接続することで顧客体験を向上させる方法、重要な顧客データをコア運用プロセスに直接効果的に取り込む方法の３つを評価することが重要です。
 
 保険会社のリーダーが、運用効率、コンプライアンス、および顧客体験に影響を与える方法において、プロセスを強化する機会が組織内にあるかどうかを評価するのに役立つ5つの質問をここに共有します。
@@ -105,13 +118,6 @@ thumbnail: https://thmb.techidaily.com/1e95a148d850ecdd275c10a51292b0ccb900f6b4e
 [記事はこちら](https://www.dig-in.com/opinion/covid-19-5-tips-for-insurers-to-thrive)
 
 [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -176,18 +182,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-from-stream-to-screen-how-to-download-youtube-on-iphoneipad-for-2024/"><u>[Updated] From Stream to Screen How to Download Youtube on iPhone/iPad for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-top-tales-youtubes-best-narrative-channels-this-year-for-2024/"><u>[Updated] The Top Tales YouTube’s Best Narrative Channels This Year for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-data-driven-insights-by-teaming-up-altogether-with-alteryx-and-abbyy-for-advanced-analytics/"><u>Enhance Data-Driven Insights by Teaming up Altogether with Alteryx & ABBYY for Advanced Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-visits-using-the-power-of-cookiebot-platforms/"><u>Enhance Your Site Visits Using the Power of Cookiebot Platforms</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-campaigns-with-cookiebot-technology/"><u>Enhanced Marketing Campaigns with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-precision-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Precision with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-breath-of-ice-the-winter-olympics-in-china-2022/"><u>In 2024, Breath of Ice The Winter Olympics in China 2022</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/perfecting-your-shots-top-tripods-for-content-creators-for-2024/"><u>Perfecting Your Shots Top Tripods for Content Creators for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unleashing-the-potential-of-ai-for-better-workflow-chatgpt-meets-onlyoffice-docspace/"><u>Unleashing the Potential of AI for Better Workflow: ChatGPT Meets ONLYOFFICE DocSpace</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726026632910-windows/"><u>Windowsマシン上で多種動画並列表示手順詳しく解説</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-route-to-rejuvenate-and-refine-your-vhs-collection-online/"><u>[New] The Ultimate Route to Rejuvenate and Refine Your VHS Collection Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-contrast-and-depth-in-hdr-portraits-for-2024/"><u>[Updated] Crafting Contrast and Depth in HDR Portraits for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-dynamic-photo-collage-hints-infuse-joy-into-life/"><u>[Updated] In 2024, Dynamic Photo Collage Hints Infuse Joy Into Life</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-obs-mobile-top-techniques-for-2024/"><u>[Updated] Mastering OBS Mobile Top Techniques for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/dispel-darkness-twitch-streaming-troubleshooting/"><u>Dispel Darkness: Twitch Streaming Troubleshooting</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-poco-m6-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Poco M6 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-the-pack-abbyy-secures-top-position-in-qkss-2022-spark-index-for-smart-document-processing-technologies/"><u>Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigate-the-future-of-insurance-with-our-digital-agility-advancement-ebook-your-guide-to-modernization-in-insurtech/"><u>Navigate the Future of Insurance with Our 'Digital Agility Advancement' EBook – Your Guide to Modernization in InsurTech</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-boosting-user-engagement-through-tailored-experiences/"><u>Optimize With Cookiebot: Boosting User Engagement Through Tailored Experiences</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-the-help-of-cookiebot-enhancing-your-websites-performance/"><u>Optimized with the Help of CookieBot: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamping-business-practices-for-enhanced-profitability-within-the-banking-sector/"><u>Revamping Business Practices for Enhanced Profitability Within the Banking Sector</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/speeding-up-tiktoks-simple-techniques-for-faster-videos-for-2024/"><u>Speeding Up TikToks Simple Techniques for Faster Videos for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-hub-expert-insights-and-in-depth-reviews/"><u>Tom's Tech Hub: Expert Insights & In-Depth Reviews</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-honor-magic-v2-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Honor Magic V2 Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

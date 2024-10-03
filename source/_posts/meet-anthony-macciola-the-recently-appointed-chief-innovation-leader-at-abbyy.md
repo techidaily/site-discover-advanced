@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-09-25T06:12:08.101Z
-updated: 2024-09-28T07:33:06.902Z
+date: 2024-09-28T08:14:07.496Z
+updated: 2024-10-02T21:34:48.337Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -61,27 +61,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unheard-vocal-verifiers-6-stealthy-smartphone-recordings/"><u>[New] 2024 Approved Unheard Vocal Verifiers 6 Stealthy Smartphone Recordings</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-elite-selection-7-superior-fps-games/"><u>[New] In 2024, Elite Selection 7 Superior FPS Games</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-transform-instagram-videos-into-mp4-with-top-free-online-tools-windowsosx/"><u>[New] In 2024, Transform Instagram Videos Into MP4 with Top Free Online Tools [Windows/OSX]</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-toggle-pip-mode-in-ios-a-step-by-step-approach/"><u>[Updated] How to Toggle PIP Mode in iOS A Step-by-Step Approach</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-professional-videographers-choice-for-screen-recordings/"><u>[Updated] In 2024, Professional Videographer's Choice for Screen Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-abbyy-textgrabber-new-feature-live-ocr-for-immediate-text-processing-and-task-automation/"><u>1. ABBYY TextGrabber: New Feature - Live OCR for Immediate Text Processing & Task Automation</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-trendsetting-tags-top-10-to-make-your-post-pop/"><u>2024 Approved Trendsetting Tags Top 10 To Make Your Post Pop</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-timeline-commercial-alliance-document-template-strengthen-your-corporate-relationships/"><u>ABBYY Timeline Commercial Alliance Document Template: Strengthen Your Corporate Relationships</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-von-soft-gmbh-and-co-kg-marktfuhrer-bei-der-intelligenten-textanalyse-und-datenextraktion-preisgekront-2021/"><u>ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-conversions-with-cookiebot-integration-optimized-user-experience-and-analytics-solutions/"><u>Boost Conversions with Cookiebot Integration – Optimized User Experience & Analytics Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-campaigns-using-cutting-edge-cookiebot-technology/"><u>Boost Your Campaigns Using Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-digital-marketing-with-cookiebot-technology/"><u>Boosting Digital Marketing with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-online-presence-through-effective-webpage-strategies-seo-techniques-for-success/"><u>Boosting Online Presence Through Effective Webpage Strategies: SEO Techniques for Success</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ios-16-home-screen-lacks-realism-correct-the-depth-feature-with-these-7-strategies/"><u>IOS 16 Home Screen Lacks Realism? Correct the Depth Feature with These 7 Strategies</u></a></li>
-<li><a href="https://common-error.techidaily.com/steam-file-error-resolved-complete-restoration-of-missing-game-content/"><u>Steam File Error Resolved: Complete Restoration of Missing Game Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-fast-windows-quick-skim-a-step-by-step-guide/"><u>[New] Fast Windows Quick Skim A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-navigating-the-maze-of-audio-capturing-a-complete-minecraft-guide-on-mac/"><u>[Updated] Navigating the Maze of Audio Capturing A Complete Minecraft Guide on Mac</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-commanding-attention-crafting-podcast-starters/"><u>In 2024, Commanding Attention Crafting Podcast Starters</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-iphone-13-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your iPhone 13 Pro Max and iPad</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/mastering-multimedia-integration-replicating-additions-onto-active-pages-with-flipbuilder-techniques/"><u>Mastering Multimedia Integration: Replicating Additions Onto Active Pages with FlipBuilder Techniques</u></a></li>
+<li><a href="https://fox-making.techidaily.com/optimized-browser-extension-for-dominating-holeio-best-for-windows-and-macs/"><u>Optimized Browser Extension for Dominating Hole.io - Best for Windows and Macs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/synthesizing-a-look-at-magix-creative-suite-for-2024/"><u>Synthesizing a Look at MAGIX Creative Suite for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-reno-11-pro-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo Reno 11 Pro 5G Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

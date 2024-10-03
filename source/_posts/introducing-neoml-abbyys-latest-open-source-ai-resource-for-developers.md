@@ -1,7 +1,7 @@
 ---
 title: Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers
-date: 2024-09-27T04:07:08.682Z
-updated: 2024-09-27T21:02:46.564Z
+date: 2024-09-26T06:30:03.598Z
+updated: 2024-10-03T03:29:41.138Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8cca3cd844fe92c1c213c87ec.jpg
@@ -70,28 +70,31 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-best-subtitle-converters-reviewed-the-top-8-win-osx-sbt-to-srts-software/"><u>[New] Best Subtitle Converters Reviewed The Top 8 Win-OSX SBT to SRTS Software</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-looms-lens-sharpen-your-recording-skills/"><u>[New] Loom's Lens Sharpen Your Recording Skills</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-charting-financial-success-the-tale-of-ajey-carryminati-and-youtube/"><u>[Updated] Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastery-guide-to-flawless-srt-file-construction/"><u>[Updated] In 2024, Mastery Guide to Flawless SRT File Construction</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/concealing-content-securing-video-data-ethics-for-2024/"><u>Concealing Content Securing Video Data Ethics for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/gratis-cr2-naar-png-converteren-kwalitatiefwegheleig-vrije-online-tool-door-movavi/"><u>Gratis CR2 Naar PNG Converteren - Kwalitatiefwegheleig Vrije Online Tool Door Movavi</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-motorola-moto-g34-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Motorola Moto G34 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/what-are-the-latest-advancements-in-macbook-technology/"><u>What Are the Latest Advancements in MacBook Technology?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/yify-iphoneipadpsp/"><u>YIFY 映画ファイル iPhone・iPad・PSP用のダウンロードと効率的再生ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/youtube202youtube-ics/"><u>Youtubeで配信中止の202지YouTube 볼륨 다운로드 편ics를 구하는 コツ</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/vlog6/"><u>ユーザーから愛されるVlog動画のための編集ツールトップ6ピック</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-obs-vs-shadowplay-the-ultimate-showdown-for-gamers/"><u>[New] 2024 Approved OBS vs ShadowPlay The Ultimate Showdown for Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reaking-into-livestrances-a-gamers-guide-to-youtube-success-for-2024/"><u>[New] Breaking Into Livestrances A Gamers' Guide to YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-virtual-marketing-realms/"><u>2024 Approved Navigating Virtual Marketing Realms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-essentials-of-uploading-and-broadcasting-old-footage-on-fb/"><u>2024 Approved The Essentials of Uploading and Broadcasting Old Footage on FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-secrets-of-watching-public-instagram-profiles-as-a-guest-user/"><u>Discover the Secrets of Watching Public Instagram Profiles as a Guest User</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-latest-surface-docking-station-driver-fast-and-simple/"><u>Download the Latest Surface Docking Station Driver - Fast and Simple</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-optimization-with-cookiebot-technology/"><u>Enhanced Traffic Optimization with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-website-performance-through-advanced-analytics-and-cookiebot-technology/"><u>Enhancing Website Performance Through Advanced Analytics and Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-enhanced-conversion-rates-through-cutting-edge-cookiebot-based-technology-solutions/"><u>Experience Enhanced Conversion Rates Through Cutting-Edge, Cookiebot-Based Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-improved-behavioral-analytics-through-cookiebot-solutions/"><u>Experience Improved Behavioral Analytics Through Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/expert-subcontracting-solutions-for-enhancing-abbyy-software-offerings/"><u>Expert Subcontracting Solutions for Enhancing ABBYY Software Offerings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-shutdown-how-to-pause-windows-11/"><u>Quick Shutdown: How to Pause Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/vidextracter-facebook-streams-for-2024/"><u>VidExtracter Facebook Streams for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

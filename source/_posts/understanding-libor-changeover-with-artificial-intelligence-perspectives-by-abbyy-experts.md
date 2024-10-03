@@ -1,7 +1,7 @@
 ---
 title: "Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts"
-date: 2024-09-18T18:57:28.627Z
-updated: 2024-09-23T17:40:58.904Z
+date: 2024-10-01T20:27:53.206Z
+updated: 2024-10-03T10:44:38.218Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9e54865f3f57ec57dc69d69631538169245afb52f02b58f105955b7146a11c16.jpg
@@ -36,10 +36,10 @@ So let’s talk a minute about contract language and how it is holding the banki
 AI with ML has been much hyped in recent years, but it often sounds like a solution looking for a problem. AI, in simple terms, is building computer programs (also called ‘computer vision’) to help them find, interpret, make decisions, and take action on complex language embedded in a corpus of data or documents as expert or highly-trained users would. Far from being a replacement for high-paid skilled labor, such as attorneys, paralegals, analysts and consultants, AI with ML helps them scale to global challenges such as LIBOR phase out.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Named entity recognition & extraction has advanced
@@ -51,10 +51,10 @@ LIBOR rates, clauses, and affected parties are all entities in contracts that ar
 ![Why AI Matters in LIBOR Transition](https://static1.abbyy.com/abbyycommedia/28998/11986_picture_848x444.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 With recent advancements in named entity recognition and extraction techniques, such as the ability of data scientists and legal experts to train the software with comprehensive taxonomies and variations (thesaurus, legal codes, aliases), modern AI solutions can be in production in a matter of days or weeks at a fraction of the cost of hiring an army of consultants and legal teams to do the work. LIBOR remediation experts can now help train their ‘virtual legal team’ of AI/ML software and supporting RPA bots to be their army of expert assistants to find, remediate, or flag for additional review all the impacted contracts and legal business entities.
@@ -72,25 +72,25 @@ i _Sinead Cruise, Lawrence White, ‘The End of LIBOR: The Biggest Banking Chall
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -154,5 +154,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-top-10-pc-vr-headsets-2023-update/"><u>[New] Top 10 PC VR Headsets -2023 Update</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-rewind-on-request-swift-iphone-video-flip/"><u>[Updated] In 2024, Rewind on Request Swift iPhone Video Flip</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>2024 Approved Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/discover-4k-action-in-the-wild-with-akaso-ek7000/"><u>Discover 4K Action in the Wild with AKASO EK7000</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-realme-v30t-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Realme V30T Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-technology-boost-online-engagement-and-insights-today/"><u>Optimized With Cookiebot Technology - Boost Online Engagement & Insights Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-sites-structure-key-techniques-for-enhanced-page-ranking/"><u>Optimizing Your Site's Structure: Key Techniques for Enhanced Page Ranking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-better-search-engine-ranking/"><u>Optimizing Your Website's Pages for Better Search Engine Ranking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/rechnungsautomation-durch-abbyy-software-in-deurag-ags-prozessen/"><u>Rechnungsautomation Durch ABBYY Software in DEURAG AG's Prozessen</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/specialized-support-vendors-powering-abbyys-comprehensive-service-portfolio/"><u>Specialized Support Vendors Powering ABBYY's Comprehensive Service Portfolio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-evolution-of-smartphone-scanners-iphone-x-versus-xs-insights-from-abbyys-latest-updates/"><u>The Evolution of Smartphone Scanners: IPhone X versus Xs - Insights From ABBYY's Latest Updates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unauthorized-recording-of-google-meet-a-comprehensive-guide/"><u>Unauthorized Recording of Google Meet: A Comprehensive Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY
-date: 2024-09-16T17:01:02.629Z
-updated: 2024-09-23T16:39:02.875Z
+date: 2024-10-01T16:58:28.864Z
+updated: 2024-10-02T20:02:37.426Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
@@ -48,16 +48,10 @@ We hope our partners and customers see why we are excited about this investment.
 [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -121,5 +115,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-eco-film-frameworks-unlimited-free-template-access-for-pros-and-amateurs/"><u>[New] Eco-Film Frameworks Unlimited Free Template Access for Pros & Amateurs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-maximizing-movie-file-saving-6-methods-for-win-11-for-2024/"><u>[New] Maximizing Movie File Saving 6 Methods for Win 11 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-steps-to-add-custom-imagery-in-youtube-videos-for-2024/"><u>[Updated] Essential Steps to Add Custom Imagery in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-journey-to-discovering-your-personal-youtube-musical-realm/"><u>[Updated] Journey to Discovering Your Personal Youtube Musical Realm</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-pathway-to-pinnacle-chromatic-precision/"><u>[Updated] The Pathway to Pinnacle Chromatic Precision</u></a></li>
+<li><a href="https://media-tips.techidaily.com/comparing-mp3-vs-mp4-audio-formats-detailed-analysis-of-sound-clarity-and-storage-space/"><u>Comparing MP3 vs MP4 Audio Formats: Detailed Analysis of Sound Clarity & Storage Space</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/from-standstill-to-success-hard-drive-restoration-by-stellar/"><u>From Standstill to Success: Hard Drive Restoration by Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-magic-6-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor Magic 6 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-mastering-color-consistency-a-powerdirector-tutorial-for-video-editors/"><u>New 2024 Approved Mastering Color Consistency A PowerDirector Tutorial for Video Editors</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-redmi-k70e-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi Redmi K70E Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-09-23T20:35:29.319Z
-updated: 2024-09-28T04:23:00.568Z
+date: 2024-09-29T18:40:12.557Z
+updated: 2024-10-03T09:39:02.526Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -24,10 +24,10 @@ Throughout his career, Ulf has been involved as an investor and board member in 
 Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School of Economics and the Swedish Defense Language Institute.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -49,20 +49,24 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-navigating-google-meet-enrollment/"><u>2024 Approved Navigating Google Meet Enrollment</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-tips-for-downloading-and-setting-up-toshiba-printer-software-on-windows/"><u>Easy Tips for Downloading and Setting Up Toshiba Printer Software on Windows</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-drivercorruptedexpool-error-in-windows-11-a-comprehensive-guide/"><u>Fixing DRIVER_CORRUPTED_EXPOOL Error in Windows 11 – A Comprehensive Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-vivo-y27-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Vivo Y27 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oppo-a2-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Oppo A2 FRP Bypass</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mastering-dvd-viewing-on-hp-computers-options-for-models-with-and-without-internal-drives/"><u>Mastering DVD Viewing on HP Computers: Options for Models With and Without Internal Drives</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/perfect-audio-preservation-with-dvd-to-wav-ripping-software-solutions/"><u>Perfect Audio Preservation with DVD to WAV Ripping Software Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-xiaomi-redmi-note-13-proplus-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Xiaomi Redmi Note 13 Pro+ 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/two-effective-methods-converting-swf-files-into-html-format-both-online-and-offline/"><u>Two Effective Methods: Converting SWF Files Into HTML Format, Both Online & Offline</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-elevate-your-tiktok-videos-with-compelling-captions/"><u>[New] 2024 Approved Elevate Your TikTok Videos with Compelling Captions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-iphone-photo-watermarks-apps/"><u>[Updated] 2024 Approved The Ultimate Guide to iPhone Photo Watermarks Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-full-screen-recovered-from-obs-errors/"><u>[Updated] Full Screen Recovered From OBS Errors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-android-vocal-mixer-app-for-2024/"><u>[Updated] Premier Android Vocal Mixer App for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-transformative-instagram-edits-professional-strategies-for-2024/"><u>[Updated] Transformative Instagram Edits Professional Strategies for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-xs-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone XS? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-the-craft-of-macro-video-production-techniques/"><u>In 2024, Mastering the Craft of Macro Video Production Techniques</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-neon-effects-online-8-simple-and-free-tools-to-get-you-started/"><u>New Create Neon Effects Online 8 Simple and Free Tools to Get You Started</u></a></li>
+<li><a href="https://win-forum.techidaily.com/online-free-mp4-a-aac-convertidor-pelo-site-movavi-sem-custo/"><u>Online Free MP4 a AAC Convertidor Pelo Site Movavi - Sem Custo!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-lenovo-lack-of-volume-solutions/"><u>Troubleshooting and Repairing Lenovo Lack of Volume Solutions</u></a></li>
 </ul></div>
 

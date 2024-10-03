@@ -1,7 +1,7 @@
 ---
 title: Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board
-date: 2024-09-22T18:53:11.259Z
-updated: 2024-09-23T17:21:06.899Z
+date: 2024-09-27T04:55:02.522Z
+updated: 2024-10-03T05:17:10.177Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ca1823a541bb8f1b1b4e3f36dc533291122ea53e71344224f2ca3a62defe8ec.jpg
@@ -22,10 +22,10 @@ Robert has over 40 years of experience as an executive in the technology industr
 Robert holds a Master’s degree with honors in Physics and Philosophy from Oxford University.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -45,5 +45,17 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-analyzing-whether-youtube-premium-is-right-for-you/"><u>[New] 2024 Approved Analyzing Whether YouTube Premium Is Right for You</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-poco-f5-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Poco F5 5G? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/budget-saving-stratospheric-storage-for-heavy-dumps-for-2024/"><u>Budget-Saving Stratospheric Storage for Heavy Dumps for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-overcome-anthems-continuous-boot-loop-dilemma-a-complete-guide/"><u>How to Overcome Anthem’s Continuous Boot Loop Dilemma - A Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/phishing-proof-your-social-life-on-facebook/"><u>Phishing-Proof Your Social Life on Facebook</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-iphone-14-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On iPhone 14 Making It Possible</u></a></li>
+</ul></div>
 

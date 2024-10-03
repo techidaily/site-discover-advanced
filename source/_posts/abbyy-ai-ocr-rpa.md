@@ -1,7 +1,7 @@
 ---
 title: 伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減
-date: 2024-09-26T07:16:24.303Z
-updated: 2024-09-27T19:34:25.892Z
+date: 2024-09-29T23:59:19.500Z
+updated: 2024-10-03T03:02:09.827Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c010ac8c095463e82a02d0121c6ae49a6934a26c38ee953e2dee2be944508d80.jpg
@@ -35,10 +35,10 @@ ABBYYジャパン代表取締役社長 前田まりこのコメント
 多くのお客様に採用されているABBYYのソリューションで日本のお客様の業務自動化と効率化を促進し、生産性とビジネス拡大に大きく貢献できるよう、今後もプロダクト改善と機能拡充に努めます」
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -54,10 +54,10 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -83,18 +83,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-the-most-effective-9-microphone-capture-tools-online-2e/"><u>[Updated] The Most Effective 9 Microphone Capture Tools Online (2E)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-analytics-driven-by-the-latest-web-pixel-innovation/"><u>Advanced Analytics Driven by the Latest Web Pixel Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automate-with-cookiebot-enhance-your-sites-user-experience/"><u>Automate with Cookiebot: Enhance Your Site's User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-traffic-generation-with-cookiebot-technology/"><u>Automated Traffic Generation with Cookiebot Technology</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/awesome-free-webcam-games-for-computer-for-2024/"><u>Awesome Free Webcam Games for Computer for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/carlsberg-utilise-abpyy-pour-raccourcir-le-processus-de-commercialisation-de-ses-offres/"><u>Carlsberg Utilise ABPyy Pour Raccourcir Le Processus De Commercialisation De Ses Offres</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/convertendo-arquivos-mmf-de-graca-o-solucao-mais-simplificada-do-movavi/"><u>Convertendo Arquivos MMF De Graça: O Solução Mais Simplificada Do Movavi</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-marketing-solutions-enhance-your-seo-strategies/"><u>Cookiebot-Driven Marketing Solutions: Enhance Your SEO Strategies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevate-chatgpt-today-with-these-top-9-tools/"><u>Elevate ChatGPT Today! With These Top 9 Tools</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-safari-page-loading-problems-simple-steps-for-success/"><u>Fixing Safari Page Loading Problems - Simple Steps for Success</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-xiaomi-redmi-12-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Xiaomi Redmi 12 5G Phone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-guide-to-selecting-6-premium-live-audio-devices/"><u>Ultimate Guide to Selecting 6 Premium Live Audio Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/content-creators-dilemrante-podcasts-vs-youtube-as-a-platform-for-2024/"><u>Content Creators' Dilemrante Podcasts Vs. YouTube as a Platform for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-itel-p55-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Itel P55 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-the-ios-and-android-debate-selecting-the-perfect-phone/"><u>Navigating the iOS and Android Debate: Selecting the Perfect Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-law-enforcement-body-cameras-find-your-perfect-match/"><u>Top Rated Law Enforcement Body Cameras : Find Your Perfect Match!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-non-functional-usb-ports-on-windows-11-solutions-and-fixes/"><u>Troubleshooting Non-Functional USB Ports on Windows 11: Solutions and Fixes</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ttamp3/"><u>TTAをMP3に変換する -高解像度オーディオ維持方法 : 入門編</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-transferring-and-converting-your-itunes-music-library-onto-a-compact-disc-using-windows/"><u>Ultimate Guide: Transferring and Converting Your iTunes Music Library Onto a Compact Disc Using Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-streaming-mkv-videos-flawlessly-with-windows-media-player/"><u>Ultimate Tutorial: Streaming MKV Videos Flawlessly with Windows Media Player</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-occasional-glitches-why-does-my-apps-update-feature-fail-at-times/"><u>Understanding Occasional Glitches: Why Does My App's Update Feature Fail at Times?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-premiere-rush-too-expensive-4-affordable-alternatives/"><u>Updated In 2024, Premiere Rush Too Expensive? 4 Affordable Alternatives</u></a></li>
 </ul></div>
 

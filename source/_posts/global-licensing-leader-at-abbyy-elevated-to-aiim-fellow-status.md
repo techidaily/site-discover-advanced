@@ -1,7 +1,7 @@
 ---
 title: Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status
-date: 2024-09-24T21:09:25.322Z
-updated: 2024-09-28T04:38:52.815Z
+date: 2024-09-27T17:35:39.563Z
+updated: 2024-10-03T07:06:18.174Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ff66889aaf2236739a2923efe4cfc57f9cd9ea7ad49a91b99fcb2a46f695a7e.jpg
@@ -62,29 +62,37 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-premium-choices-the-very-best-tripods-for-high-definition-shooting/"><u>[New] Premium Choices The Very Best Tripods for High Definition Shooting</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlimited-verbal-input-processing-for-free/"><u>[New] Unlimited Verbal Input Processing for Free</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-finereader-14/"><u>ABBYY FineReader 14: オフィス環境下で文書管理を革命的に変えるツール</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-anleitung-zur-elektronischen-rechnungsstellungsmethode-im-kontext-von-rechnungsabrechnungen-ein-praktischer-leitfaden/"><u>ABBYY-Anleitung Zur Elektronischen Rechnungsstellungsmethode Im Kontext Von Rechnungsabrechnungen: Ein Praktischer Leitfaden</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyyalteryx/"><u>ABBYYとのパートナーシップにより、Alteryxは高度なデータ分析能力を向上させる</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/accelerating-carlsberg-breweries-product-launch-time-to-market-strategies/"><u>Accelerating Carlsberg Breweries' Product Launch: Time-to-Market Strategies</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-fixing-windows-system-entrypointnotfoundexception/"><u>Guide: Fixing Windows System 'EntryPointNotFoundException'</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-apple-iphone-13-mini-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On Apple iPhone 13 mini? Find the Best Solution Here</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-google-pixel-fold-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Google Pixel Fold? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-m34-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy M34 5G</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/triumph-over-installation-troubles-how-to-successfully-upgrade-with-windows-10-despite-error-code-80240020/"><u>Triumph Over Installation Troubles: How to Successfully Upgrade with Windows 10, Despite Error Code 80240020</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-play-8t-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Honor Play 8T Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-latest-innovations-at-apples-wwdc-2021-conference/"><u>Unveiling the Latest Innovations at Apple's WWDC 2021 Conference</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/wma-to-m4v-file-conversion-for-free-seamless-editing-using-movavis-web-service/"><u>WMA to M4V File Conversion for Free - Seamless Editing Using Movavi's Web Service</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-video-pace-youtube-via-desktops-and-phones/"><u>[New] In 2024, Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-recorders-eye-a-snapshot-of-best-tools-for-2024/"><u>[New] The Recorder's Eye A Snapshot of Best Tools for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-tips-for-perfect-control-how-to-use-your-switch-pro-on-steam/"><u>[Updated] 2024 Approved Tips for Perfect Control How to Use Your Switch Pro on Steam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-shorter-optimizing-youtube-videos-for-less-time/"><u>[Updated] Streamline Shorter Optimizing YouTube Videos for Less Time</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-using-sticker-queries-on-instagram-for-2024/"><u>[Updated] The Ultimate Guide to Using Sticker Queries on Instagram for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-motorola-moto-g14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discovering-visitors-unveiling-the-reader-list-of-your-google-documents/"><u>Discovering Visitors: Unveiling the Reader List of Your Google Documents</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/easily-cut-large-videos-faster-on-mac/"><u>Easily Cut Large Videos Faster on Mac</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exploring-the-basics-of-video-transcoding-with-wonderfoxs-detailed-tutorial/"><u>Exploring the Basics of Video Transcoding with WonderFox's Detailed Tutorial</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-end-of-chatgpt-bypass-methods-a-look-at-7-reasons-why-they-fail/"><u>Exploring the End of ChatGPT Bypass Methods: A Look at 7 Reasons Why They Fail</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/get-your-factory-pro-for-ipod-videos-securely-guaranteed-safe-purchase-today/"><u>Get Your Factory Pro for iPod Videos Securely – Guaranteed Safe Purchase Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guide-creating-videos-from-audio-clips-perfectly-tailored-for-your-youtube-channel/"><u>Guide: Creating Videos From Audio Clips Perfectly Tailored for Your YouTube Channel</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-tecno-phantom-v-flip-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Tecno Phantom V Flip Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pcyoutubedvd/"><u>PCでYouTube映像をDVDに保存するためのガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin"
-date: 2024-09-17T16:53:10.590Z
-updated: 2024-09-23T17:07:07.099Z
+date: 2024-09-26T01:58:42.440Z
+updated: 2024-10-02T22:37:35.055Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/289536a26b86dc5c26586097f9ebf58e81d35aa537c61d20d15b54d1edc660b4.jpg
@@ -74,12 +74,26 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-effective-ways-how-to-block-facebook-video-ads/"><u>[New] 2024 Approved Effective Ways | How to Block Facebook Video Ads?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-harmonizing-visuals-and-sound-in-instagram-videos-for-2024/"><u>[New] Harmonizing Visuals & Sound in Instagram Videos for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/complete-motion-survey-2023/"><u>Complete Motion Survey 2023</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
+<li><a href="https://driver-download.techidaily.com/direct-link-download-trustworthy-epson-perfection-v500-drivers-now/"><u>Direct Link: Download Trustworthy Epson Perfection V500 Drivers Now</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-accessibility-learn-how-to-insert-subtitles-into-your-vimeo-content-easily/"><u>Enhancing Accessibility: Learn How to Insert Subtitles Into Your Vimeo Content Easily</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/expert-tips-for-stable-server-connections-in-rainbow-six-siege/"><u>Expert Tips for Stable Server Connections in Rainbow Six Siege</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-13-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 13 without Backup | Stellar</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-12-mini-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock iPhone 12 mini Passcode without Computer? | Dr.fone</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

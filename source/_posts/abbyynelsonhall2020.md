@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-09-22T02:56:06.305Z
-updated: 2024-09-27T17:11:46.808Z
+date: 2024-09-27T03:18:44.332Z
+updated: 2024-10-03T00:32:24.470Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -69,29 +69,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-integration-into-google-meet-participants/"><u>[Updated] In 2024, Integration Into Google Meet Participants</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726228283182-tswav-movavi/"><u>网上免费将TS格式转化成WAV音频 - 利用Movavi导航器功能</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/aplatir-avi-sans-deterioration-de-la-qualite-sous-windows-10-solutions-pratiques/"><u>Aplatir AVI Sans Détérioration De La Qualité Sous Windows 10 : Solutions Pratiques</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/delving-into-gopro-cameras-burst-capabilities/"><u>Delving Into GoPro Camera's Burst Capabilities</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oppo-f23-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Oppo F23 5G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-strategic-approaches-to-maximize-impact-with-spotify-ads/"><u>In 2024, Strategic Approaches to Maximize Impact with Spotify Ads</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/speedy-setup-for-rapid-prints/"><u>Speedy Setup for Rapid Prints</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-future-of-virtuality-top-tier-oculus-rift-reviews/"><u>The Future of Virtuality Top-Tier Oculus Rift Reviews</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
-<li><a href="https://win-able.techidaily.com/1726026532307-mp3/"><u>ビデオ録画音声抽出MP3変換法と、お得なフリーサイト</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-webcam-users-guide-for-quality-recordings-for-2024/"><u>[Updated] The Ultimate WebCam User's Guide for Quality Recordings for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleashing-vibrance-grading-secrets-in-ps/"><u>[Updated] Unleashing Vibrance Grading Secrets in PS</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-optimal-tag-selection-elevate-your-videos-online-presence/"><u>2024 Approved Optimal Tag Selection Elevate Your Video's Online Presence</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/enhanced-interaction-through-effective-zoom-screenshares/"><u>Enhanced Interaction Through Effective Zoom Screenshares</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://common-error.techidaily.com/huion-pen-malfunction-discover-these-five-speedy-troubleshooting-steps-to-get-it-working-again/"><u>Huion Pen Malfunction? Discover These Five Speedy Troubleshooting Steps to Get It Working Again</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-s17t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo S17t to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-brisk-windows-content-reconnaissance/"><u>In 2024, Brisk Windows Content Reconnaissance</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-huawei-p60-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Huawei P60 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-secrets-of-grok-artificial-intelligence-with-elon-musk/"><u>Unveiling the Secrets of Grok Artificial Intelligence with Elon Musk</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer"
-date: 2024-09-27T04:19:36.048Z
-updated: 2024-09-28T03:29:04.738Z
+date: 2024-09-30T08:20:20.819Z
+updated: 2024-10-03T00:47:21.547Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5599db5b0351dfe7fe4d3ef01a51b823176684e86c63c43fb2d60eaab80af0aa.jpg
@@ -84,31 +84,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-football-vids-premier-insights-into-youtube-tracks/"><u>[New] 2024 Approved Football Vids Premier Insights Into YouTube Tracks</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-find-your-perfect-match-top-8-mirrorless-cameras-for-live-streams/"><u>[New] In 2024, Find Your Perfect Match Top 8 Mirrorless Cameras For Live Streams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-top-10-secure-business-data-sphere/"><u>[Updated] TOP 10 Secure Business Data Sphere</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-with-the-tp-link-archer-a9-router-reviewed/"><u>Affordable Excellence with the TP-Link Archer A9 Router Reviewed</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-tailored-seo-and-marketing-strategies/"><u>Cookiebot-Driven Solutions | Tailored SEO & Marketing Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-technology-boosting-website-efficiency-and-tracking-success/"><u>Cookiebot-Driven Technology: Boosting Website Efficiency and Tracking Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimizing-your-website-with-advanced-tracking-and-analytics/"><u>Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-obscurity-to-opportunity-instagrams-remake/"><u>From Obscurity to Opportunity: Instagram's Remake</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-6-plus-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 6 Plus In Different Conditionsin | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-sony-xperia-10-v-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Sony Xperia 10 V to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-a78-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo A78 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722880354924-iphone-text-spam-discover-how-you-can-stop-it-now/"><u>IPhone Text Spam? Discover How You Can Stop It Now!</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-the-power-of-ai-thumbnail-generators/"><u>New In 2024, The Power of AI Thumbnail Generators</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-filmmaker-tips-youtube-trailers-using-filmora/"><u>[Updated] Filmmaker Tips YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-memes-galore-download-and-share-joy/"><u>[Updated] Memes Galore Download & Share Joy</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-streamlined-processes-from-camera-roll-to-snapchat-posting-for-2024/"><u>[Updated] Streamlined Processes From Camera Roll to Snapchat Posting for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-top-7-budget-friendly-laptop-dvd-software-list-for-2024/"><u>[Updated] Top 7 Budget-Friendly Laptop DVD Software List for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-exploring-the-lost-stories-of-facebook-tech-savvy-approach/"><u>2024 Approved Exploring the Lost Stories of Facebook Tech-Savvy Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726029386322-gif/"><u>GIFを作る方法 - 簡単なステップガイド</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-y100-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y100 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH
-date: 2024-09-21T16:29:21.035Z
-updated: 2024-09-27T19:25:26.816Z
+date: 2024-09-28T21:58:02.951Z
+updated: 2024-10-03T09:22:11.975Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a055c6f3927bcc9e40cc66cb.jpg
@@ -19,6 +19,13 @@ Insurance | Accounts Payable Automation
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## So ist’s Recht! ABBYY FlexiCapture ermöglicht die automatisierte Erfassung von Rechnungen der DEURAG
 
 Versicherungen | Kreditorenbuchhaltung 
@@ -26,22 +33,15 @@ Versicherungen | Kreditorenbuchhaltung
 ![](https://static1.abbyy.com/abbyycommedia/15532/malaysia-insurarnce1-pic1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
 
 ![Deutsche Rechtsschutz-Versicherung AG](https://static2.abbyy.com/abbyycommedia/5314/deurag-logo_155.gif) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name        | Deutsche Rechtsschutz-Versicherung AG |
 | ----------- | ------------------------------------- |
@@ -101,10 +101,10 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -112,10 +112,10 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Versicherungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -153,22 +153,22 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-pro-photography-on-iphone-essential-apps-compilation/"><u>[Updated] Pro Photography on iPhone Essential Apps Compilation</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-present-state-of-drones-and-their-future-expansion/"><u>2024 Approved The Present State of Drones and Their Future Expansion</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-6s-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 6s Plus How to Bypass?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/common-issues-solving-print-problems-on-an-ipad-cant-find-or-print/"><u>Common Issues: Solving Print Problems on an iPad - Can't Find or Print</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-tecno-spark-go-2023-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Tecno Spark Go (2023) Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-mastery-transform-images-to-searchable-text-via-scan-ocr-and-pdf-creation/"><u>IPhone App Mastery: Transform Images to Searchable Text via Scan, OCR, and PDF Creation</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/leading-vr-accessories-the-top-10-countdown-for-2024/"><u>Leading VR Accessories The Top 10 Countdown for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-cookiebot-technology-for-superior-web-analytics-and-conversion-optimization/"><u>Leverage Cookiebot Technology for Superior Web Analytics and Conversion Optimization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/markus-pichler-promoted-to-vice-president-of-commercial-operations-in-europe-at-dabbyy/"><u>Markus Pichler Promoted to Vice President of Commercial Operations in Europe at D'Abbyy</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-a-picture-in-picture-effect-is-a-very-popular-effect-in-that-it-allows-us-to-see-two-images-at-once-this-tutorial-shows-you-how-to-create-this-in-fcp-fo/"><u>New A Picture-in-Picture Effect Is a Very Popular Effect in that It Allows Us to See Two Images at Once. This Tutorial Shows You How to Create This in FCP for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-technology-boost-online-engagement-and-insights-today/"><u>Optimized With Cookiebot Technology - Boost Online Engagement & Insights Today!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-sites-structure-key-techniques-for-enhanced-page-ranking/"><u>Optimizing Your Site's Structure: Key Techniques for Enhanced Page Ranking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-better-search-engine-ranking/"><u>Optimizing Your Website's Pages for Better Search Engine Ranking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/rechnungsautomation-durch-abbyy-software-in-deurag-ags-prozessen/"><u>Rechnungsautomation Durch ABBYY Software in DEURAG AG's Prozessen</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/specialized-support-vendors-powering-abbyys-comprehensive-service-portfolio/"><u>Specialized Support Vendors Powering ABBYY's Comprehensive Service Portfolio</u></a></li>
-<li><a href="https://driver-error.techidaily.com/unwanted-windows-11-screensaver-bsod-irql-fixed/"><u>Unwanted Windows 11 Screensaver: [BSOD] IRQL Fixed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-symphony-of-screenshots-incorinas-music-into-social-media/"><u>[New] In 2024, Symphony of Screenshots Incorinas Music Into Social Media</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-youtube-to-igtv-top-methods-unveiled/"><u>[Updated] 2024 Approved From YouTube to IGTV Top Methods Unveiled</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-glamour-unleashed-comprehensive-youtube-guide-to-elegance-for-2024/"><u>[Updated] Glamour Unleashed Comprehensive YouTube Guide to Elegance for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-swift-shutter-speed-iphone-tricks-for-blur-magic/"><u>2024 Approved Swift Shutter Speed IPhone Tricks for Blur Magic</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/beat-the-standard-a-complete-tutorial-for-adding-ringtones-and-sounds-to-android-for-2024/"><u>Beat the Standard A Complete Tutorial for Adding Ringtones & Sounds to Android for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-fix-unresponsive-letters-in-microsofts-new-os-windows-11-keyboard-issues/"><u>Guide to Fix Unresponsive Letters in Microsoft's New OS, Windows 11 Keyboard Issues</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-honor-90-gt-frp-by-drfone-android/"><u>How Can We Bypass Honor 90 GT FRP?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-boost-your-channels-subscribers-on-a-shoestring-budget/"><u>In 2024, Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports"
-date: 2024-09-23T16:42:29.643Z
-updated: 2024-09-27T21:17:55.388Z
+date: 2024-09-26T18:04:28.629Z
+updated: 2024-10-03T05:32:28.742Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5adbaedbc32c515398682e6a33ec3c2c1afff467021d3f18604d423ee17ce346.jpg
@@ -20,10 +20,10 @@ In diesem ersten Bericht von IDC werden KI-Technologien wie optische Zeichenerke
 Das IDC-MarketScape-Analysemodell wurde entwickelt, um einen Überblick über die Wettbewerbsfähigkeit von ICT-Anbietern auf einem bestimmten Markt zu geben. Die Bewertung erfolgt nach einem stringenten Punktesystem, das sowohl qualitative als auch quantitative Kriterien berücksichtigt und in einer grafischen Darstellung der Position jedes Anbieters innerhalb eines bestimmten Marktes resultiert. Die Punktzahl in der Kategorie Capabilities bewertet das Produkt, die Markteinführung und die kurzfristige Geschäftsabwicklung des Anbieters. Die Strategiebewertung misst die Ausrichtung der Anbieterstrategien an den Kundenanforderungen in einem Zeitrahmen von drei bis fünf Jahren. Der Marktanteil der Anbieter wird durch die Größe der Icons dargestellt. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
@@ -107,16 +107,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-leveraging-hashtags-and-collaborations-for-1k-insta-following-for-2024/"><u>[New] Leveraging Hashtags & Collaborations for 1K Insta Following for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-leveraging-lut-technology-in-adobe-premiere/"><u>[New] Leveraging LUT Technology in Adobe Premiere</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/alexa-and-ultra-hd-on-a-budget-insignia-ns-43df710na19-fire-tv-stick-review/"><u>Alexa & Ultra HD on a Budget - Insignia NS-43DF710NA19 Fire TV Stick Review</u></a></li>
-<li><a href="https://win-forum.techidaily.com/diy-tech-solution-expanding-your-pcs-recognition-capabilities-in-windows-11-bios/"><u>DIY Tech Solution: Expanding Your PC's Recognition Capabilities in Windows 11 BIOS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-nokia-105-classic-by-fonelab-android-recover-data/"><u>How to recover lost data from Nokia 105 Classic?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/idc-worldwide-market-review-top-intelligent-document-management-software-providers-assessed-2-2024-cycle/"><u>IDC Worldwide Market Review: Top Intelligent Document Management Software Providers Assessed –2# - 2024 Cycle</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-vivo-v30-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ki-gesteuerte-rechnungsverwaltung-die-zukunft-der-buchhaltung-mit-intelligenter-technologie/"><u>KI-Gesteuerte Rechnungsverwaltung - Die Zukunft Der Buchhaltung Mit Intelligenter Technologie</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-microphone-problems-in-the-steelseries-arctis-series-a-step-by-step-guide/"><u>Resolving Microphone Problems in the SteelSeries Arctis Series: A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-inside-screen-recorder-reviews-top10plus/"><u>[New] 2024 Approved Inside Screen Recorder Reviews #Top10+</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-colorful-compositions-in-a-click-photoshops-guide/"><u>[New] Colorful Compositions in a Click Photoshop's Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/critical-alternatives-to-twitter-the-best-5/"><u>Critical Alternatives to Twitter The Best 5</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-conversion-tracking-discover-how-our-cookiebot-powered-solutions-boost-your-site/"><u>Drive Traffic with Automated Conversion Tracking: Discover How Our Cookiebot-Powered Solutions Boost Your Site</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-website-engagement-through-cookiebots-advanced-visitor-insights-and-analytics-tools/"><u>Enhancing Website Engagement Through Cookiebot's Advanced Visitor Insights and Analytics Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-seamless-data-collection-with-cookiebot-integrated-services/"><u>Experience Seamless Data Collection with Cookiebot-Integrated Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exploring-the-world-of-smart-business-a-tour-with-ceo-ulf-persson/"><u>Exploring the World of Smart Business: A Tour with CEO Ulf Persson</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/globale-allianz-abbyy-bildet-mit-synpulse-eine-umfassende-europapartnerschaft/"><u>Globale Allianz: ABBYY Bildet Mit Synpulse Eine Umfassende Europapartnerschaft</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-moto-g23-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola Moto G23 Is Unlocked</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/impressive-25-increase-in-abbyys-revenue-for-the-year-201n7-key-insights-and-trends/"><u>Impressive 25% Increase in ABBYY's Revenue for the Year 201N7: Key Insights and Trends</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-bridging-worlds-unveiling-the-best-6-in-nft-art/"><u>In 2024, Bridging Worlds Unveiling the Best 6 in NFT Art</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-world-of-vocal-manipulators-an-overview-testimonials-and-substitutes/"><u>New In 2024, The World of Vocal Manipulators An Overview, Testimonials, and Substitutes</u></a></li>
+<li><a href="https://location-social.techidaily.com/taking-on-the-challenge-an-in-depth-look-at-the-dji-robomaster-s1-battlecoding-drone/"><u>Taking on the Challenge: An In-Depth Look at the DJI RoboMaster S1 Battlecoding Drone</u></a></li>
 </ul></div>
 
