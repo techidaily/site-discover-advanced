@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization with the AI-Driven Technology of Cookiebot
-date: 2024-10-02T03:53:41.031Z
-updated: 2024-10-03T06:50:20.112Z
+date: 2024-10-01T18:34:19.162Z
+updated: 2024-10-08T19:21:17.736Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
@@ -19,41 +19,21 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## East Midlands Railway Improves Email Processing Time By Over Five Hours Per Day with ABBYY and Engeneum
 
 Transportation & Logistics | Accounts Payable Automation 
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static5.abbyy.com/abbyycommedia/37724/east-midlands-railway-case-study-intelligent-automation-en_tn_556x303.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![East Midlands Railway](https://static2.abbyy.com/abbyycommedia/31982/03c-emr-logo-182x50.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | East Midlands Railway                                                                    |
@@ -65,6 +45,13 @@ Transportation & Logistics | Accounts Payable Automation
 #### Partner Overview
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
@@ -112,20 +99,27 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37728/east-midlands-railway-case-study-intelligent-automation-en_tn_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Read the document](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
@@ -154,21 +148,20 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-mastering-kinemasters-gs-complete-guide/"><u>[New] Mastering KineMaster's GS Complete Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tailor-your-text-to-voice-top-5-cloud-services-for-chrome-os-sound-transformation/"><u>[Updated] Tailor Your Text to Voice Top 5 Cloud Services for Chrome OS Sound Transformation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-honor-90-lite-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of Honor 90 Lite</u></a></li>
-<li><a href="https://program-issues.techidaily.com/compatibility-issues/"><u>Compatibility Issues</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/download-the-ultimate-no-cost-dvd-maker-for-windows-winx-author-edition/"><u>Download the Ultimate No-Cost DVD Maker for Windows, WinX Author Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-website-performance-through-advanced-analytics-and-cookiebot-technology/"><u>Enhancing Website Performance Through Advanced Analytics and Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-enhanced-conversion-rates-through-cutting-edge-cookiebot-based-technology-solutions/"><u>Experience Enhanced Conversion Rates Through Cutting-Edge, Cookiebot-Based Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-improved-behavioral-analytics-through-cookiebot-solutions/"><u>Experience Improved Behavioral Analytics Through Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-subcontracting-solutions-for-enhancing-abbyy-software-offerings/"><u>Expert Subcontracting Solutions for Enhancing ABBYY Software Offerings</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-connectivity-problems-with-aoc-displays-under-windows-11-environments/"><u>Fixing Connectivity Problems with AOC Displays Under Windows 11 Environments</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-google-pixel-7a-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Google Pixel 7a to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-xiaomi-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Xiaomi</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-step-by-step-maximizing-fb-video-area/"><u>In 2024, Step by Step Maximizing Fb Video Area</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-a-guide-to-mastering-steams-switch-pro-controller/"><u>[New] In 2024, A Guide to Mastering Steam's Switch Pro Controller</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ranking-10-best-iphoneandroid-apps-for-video-enthusiasts/"><u>[Updated] Ranking 10 Best iPhone/Android Apps for Video Enthusiasts</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/elevating-photojournalism-gopro-time-lapse-basics/"><u>Elevating Photojournalism GoPro Time-Lapse Basics</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-toshiba-printerscanner-driver-updates-for-pcs-with-windows-installed/"><u>Get the Newest Toshiba Printer/Scanner Driver Updates for PCs with Windows Installed</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/hollenhorst-plaques-and-drusen-are-deposits-found-within-the-eye-but-while-the-former-is-related-to-cholesterol-emboli-from-vascular-issues-like-carotid-art160/"><u>Hollenhorst Plaques and Drusen Are Deposits Found Within the Eye, but While the Former Is Related to Cholesterol Emboli From Vascular Issues Like Carotid Artery Stenosis, Drusen Do Not Have a Direct Systemic Association and Can Be Age-Related Changes.</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-samsung-galaxy-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mending-disconnected-remotes-in-windows-operating-system/"><u>Mending Disconnected Remotes in Windows Operating System</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-snowrunners-crash-problem-effective-solutions-for-a-smooth-gameplay-on-pc/"><u>Overcoming SnowRunner's Crash Problem: Effective Solutions for a Smooth Gameplay on PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/troubleshooting-win11s-blue-screen-effective-strategies/"><u>Troubleshooting Win11's Blue Screen - Effective Strategies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-09-28T08:14:07.496Z
-updated: 2024-10-02T21:34:48.337Z
+date: 2024-10-06T16:05:54.669Z
+updated: 2024-10-08T19:13:29.857Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -61,26 +61,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-fast-windows-quick-skim-a-step-by-step-guide/"><u>[New] Fast Windows Quick Skim A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-navigating-the-maze-of-audio-capturing-a-complete-minecraft-guide-on-mac/"><u>[Updated] Navigating the Maze of Audio Capturing A Complete Minecraft Guide on Mac</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-commanding-attention-crafting-podcast-starters/"><u>In 2024, Commanding Attention Crafting Podcast Starters</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-iphone-13-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your iPhone 13 Pro Max and iPad</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/mastering-multimedia-integration-replicating-additions-onto-active-pages-with-flipbuilder-techniques/"><u>Mastering Multimedia Integration: Replicating Additions Onto Active Pages with FlipBuilder Techniques</u></a></li>
-<li><a href="https://fox-making.techidaily.com/optimized-browser-extension-for-dominating-holeio-best-for-windows-and-macs/"><u>Optimized Browser Extension for Dominating Hole.io - Best for Windows and Macs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/synthesizing-a-look-at-magix-creative-suite-for-2024/"><u>Synthesizing a Look at MAGIX Creative Suite for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-reno-11-pro-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo Reno 11 Pro 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-using-siri-in-tiktok-videos-enhance-your-filming-experience/"><u>[Updated] In 2024, The Ultimate Guide to Using Siri in TikTok Videos - Enhance Your Filming Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44cm44ow44op44km44k244ky44o844og44gu44oq44ki44or44k44kk44og5ypluso6yyy44gm5yplusv6io944gq5pya5paw44k944ov44oi44go44gd44gu5l244ge5pa544cn/"><u>「ブラウザゲームのリアルタイム収録が可能な最新ソフトとその使い方」</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-economical-pc-screen-grab-utilities/"><u>2024 Approved Economical PC Screen Grab Utilities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-taking-twitters-short-form-stories-and-making-them-come-alive-as-gifs/"><u>2024 Approved Taking Twitter's Short Form Stories and Making Them Come Alive as GIFS</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/55s76z2i5pku5b2x5pmc44gr44kq44o844oh44kj44kq44oi44op44od44kv6lplus95yqg44gu57ch5y2y44ks44kk44oj/"><u>画面撮影時にオーディオトラック追加の簡単ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/artful-animation-of-adventures-exploring-the-top-8-narrative-universities-top-8/"><u>Artful Animation of Adventures Exploring the Top 8 Narrative Universities (Top 8)</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-xs-sim-lock-by-drfone-ios/"><u>How to Remove Apple iPhone XS SIM Lock?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-oppo-a59-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo A59 5G Unlock Without Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-apple-iphone-7-plus-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From Apple iPhone 7 Plus? 5 Tips You Must Know</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-a-non-functional-usb-port-on-your-dell-device-solutions-revealed/"><u>Troubleshooting a Non-Functional USB Port on Your Dell Device - Solutions Revealed!</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

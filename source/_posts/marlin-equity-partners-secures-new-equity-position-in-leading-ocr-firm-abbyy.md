@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY
-date: 2024-10-01T16:58:28.864Z
-updated: 2024-10-02T20:02:37.426Z
+date: 2024-10-02T16:51:09.056Z
+updated: 2024-10-08T16:40:00.911Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/414457a7bef8541a22e0759e005db32e7bc53d10e956cf3519881385b0e0955c.jpg
@@ -48,10 +48,10 @@ We hope our partners and customers see why we are excited about this investment.
 [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -117,24 +117,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-eco-film-frameworks-unlimited-free-template-access-for-pros-and-amateurs/"><u>[New] Eco-Film Frameworks Unlimited Free Template Access for Pros & Amateurs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-maximizing-movie-file-saving-6-methods-for-win-11-for-2024/"><u>[New] Maximizing Movie File Saving 6 Methods for Win 11 for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-steps-to-add-custom-imagery-in-youtube-videos-for-2024/"><u>[Updated] Essential Steps to Add Custom Imagery in YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-journey-to-discovering-your-personal-youtube-musical-realm/"><u>[Updated] Journey to Discovering Your Personal Youtube Musical Realm</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-pathway-to-pinnacle-chromatic-precision/"><u>[Updated] The Pathway to Pinnacle Chromatic Precision</u></a></li>
-<li><a href="https://media-tips.techidaily.com/comparing-mp3-vs-mp4-audio-formats-detailed-analysis-of-sound-clarity-and-storage-space/"><u>Comparing MP3 vs MP4 Audio Formats: Detailed Analysis of Sound Clarity & Storage Space</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/from-standstill-to-success-hard-drive-restoration-by-stellar/"><u>From Standstill to Success: Hard Drive Restoration by Stellar</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-magic-6-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor Magic 6 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-mastering-color-consistency-a-powerdirector-tutorial-for-video-editors/"><u>New 2024 Approved Mastering Color Consistency A PowerDirector Tutorial for Video Editors</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-redmi-k70e-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi Redmi K70E Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-most-reliable-no-cost-chrome-os-recorder-tools/"><u>[New] 2024 Approved Most Reliable No-Cost Chrome OS Recorder Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-buy-youtube-views-everything-you-need-to-know-for-2024/"><u>[New] How to Buy YouTube Views - Everything You Need To Know for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-tweeted-treasures-your-path-to-preserving-pics-and-vids-for-2024/"><u>[New] Tweeted Treasures Your Path to Preserving Pics & Vids for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-top-picks-essential-tools-to-play-ps1-games-on-your-computer/"><u>[Updated] In 2024, Top Picks - Essential Tools to Play PS1 Games on Your Computer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/canon-rebel-t7-kit-next-level-photography-experience/"><u>Canon Rebel T7 Kit: Next-Level Photography Experience</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nokia-g310-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nokia G310 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-top-5-honor-v-purse-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Honor V Purse Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://games-able.techidaily.com/multiplayer-mastery-the-shift-in-online-game-designs/"><u>Multiplayer Mastery: The Shift in Online Game Designs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfect-audio-preservation-with-dvd-to-wav-ripping-software-solutions/"><u>Perfect Audio Preservation with DVD to WAV Ripping Software Solutions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/resolving-common-troubleshooting-issues-in-windows-11-and-10-a-step-by-step-guide/"><u>Resolving Common Troubleshooting Issues in Windows 11 & 10: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-to-a-well-prepared-summer-everyday-carry-kit-top-7-insider-tips/"><u>Unlocking the Secrets to a Well-Prepared Summer Everyday Carry Kit: Top 7 Insider Tips</u></a></li>
 </ul></div>
 

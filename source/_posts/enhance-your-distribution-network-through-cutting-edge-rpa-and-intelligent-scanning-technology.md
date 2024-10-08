@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology
-date: 2024-09-30T07:27:31.343Z
-updated: 2024-10-03T04:50:24.765Z
+date: 2024-10-03T16:11:40.773Z
+updated: 2024-10-08T16:40:55.792Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aa15e346f7d15551b7e87cd1f2e88212dee28fcefc70e1397a53b37f683a84de.jpg
@@ -26,10 +26,16 @@ Yet the approaches to handling documents is antiquated, often relying on legacy 
 **[Overcome unstructured content as an obstacle to automation in logistics.](https://static3.abbyy.com/abbyycommedia/34326/checklist-transportation-documentskillsmarketplace-en.pdf?itm%5Fsource=corpblog-en)**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Start with understanding documents
@@ -41,10 +47,10 @@ Documents are containers of vital information to any supply chain operation. Sou
 All too often, technology providers and companies are quick to reduce documents to data problems for systems of record, and this set of assumptions creates its own vulnerabilities to disruption and competition. Instead, documents contain both valuable data and content—the latter requiring skilled reading and context-grounded interpretation to make quick decisions. Skilled workforces interact with documents and content for this express purpose, since data only provides part of the picture needed to make critical decisions that move shipments or source materials and services every day. Artificial intelligence (AI) can add the dimension of skilled reading to documents, filling in that missing link between experience and data, but supply chains have yet to realize its potential for transforming their operations.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Add document ‘skills’ to your operations
@@ -54,6 +60,13 @@ If a skilled, trained, and experienced workforce were not required, the “docum
 Having the right tools with experienced, human-like skills built in with new-generation AI and machine learning (ML) is the way to achieve higher processing accuracy and the exception handling and decision-making needed in normal activity and disruption. Containerized pre-trained “document skills” offer the right approach to handle both the volume and complexity of supply chain documents.
 
 No longer do you need big capture platforms or frameworks to get the operational benefits of document skills. With the help of AI with pre-trained containerized document “skills” (pre-trained actions that understand the document, not just the data, but the actions needed to be taken on it), supply chains can finally remove common bottlenecks and gain control of the document-driven processes that all levels of business operations rely on—Transport & Logistics to Accounts Payable (AP) payment processing.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Want to optimize your Transportation & Logistics operations for rapid change?
 
@@ -74,20 +87,19 @@ Learn more about how ABBYY is[helping Transportation and Logistics providers](ht
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Reginald J. Twigg
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -152,22 +164,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-interactive-engagement-adding-emojis-to-youtubes-comments/"><u>[Updated] 2024 Approved Interactive Engagement Adding Emojis to Youtubes' Comments</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-perfect-blur-techniques-for-smoother-photo-edits/"><u>[Updated] The Perfect Blur Techniques for Smoother Photo Edits</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-efficiency-in-kreditorenbuchhaltung-via-shared-services-and-automation-by-madsack-sap-dank-abbyy-and-beck-it/"><u>Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-insights-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Driven Insights: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/explore-the-most-exciting-features-of-bard-ai-launched-at-google-io-2023-top-seven-highlights/"><u>Explore the Most Exciting Features of Bard AI, Launched at Google I/O 2023: Top Seven Highlights</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Tecno Spark 20C? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-tecno-camon-30-pro-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Tecno Camon 30 Pro 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-regulations-on-capturing-youtube-playbacks/"><u>In 2024, Regulations on Capturing YouTube Playbacks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/master-the-conversion-of-dvd-to-mp4-on-pc-and-mac-systems-with-these-10-strategies/"><u>Master the Conversion of DVD to MP4 on PC and Mac Systems with These 10 Strategies</u></a></li>
-<li><a href="https://games-able.techidaily.com/overcoming-the-challenge-error-code-262-on-roblox/"><u>Overcoming the Challenge: Error Code 262 on Roblox</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/perfecting-your-snap-zoom-levels-unveiled-in-insta-stories/"><u>Perfecting Your Snap Zoom Levels Unveiled in Insta Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-steady-and-true-keeping-it-all-together-in-your-youtube-shoots/"><u>[New] 2024 Approved Steady and True Keeping It All Together in Your YouTube Shoots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-streamline-your-images-in-canva-without-clutter/"><u>[New] In 2024, Streamline Your Images in Canva Without Clutter</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-professional-video-quality-at-your-fingertips-ois-powered-choices/"><u>[Updated] Professional Video Quality at Your Fingertips OIS-Powered Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-free-photo-enhancer-online-and-app-for-mobile-phone/"><u>2024 Approved Free Photo Enhancer Online and App for Mobile Phone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-smart-strategies-for-itunes-video-logging/"><u>2024 Approved The Smart Strategies for iTunes Video Logging</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1725290079746-video-downloadhelper/"><u>無料配布版 Video Downloadhelperの使い方：全機能利用へ</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-video-potential-dslr-vs-mirrorless-innovation-for-2024/"><u>Decoding Video Potential DSLR vs Mirrorless Innovation for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-reimagined-a-critical-review-of-microsofts-trailblazing-xbox-series-x-console/"><u>Experience Reimagined: A Critical Review of Microsoft's Trailblazing Xbox Series X Console</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-oppo-find-x7-ultra-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Oppo Find X7 Ultra? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/reigning-titans-unveiling-reddits-ultimate-10-threads-for-2024/"><u>Reigning Titans Unveiling Reddit's Ultimate 10 Threads for 2024</u></a></li>
 </ul></div>
 

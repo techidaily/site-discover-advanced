@@ -1,7 +1,7 @@
 ---
 title: "Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights"
-date: 2024-09-29T00:41:29.376Z
-updated: 2024-10-03T02:41:46.402Z
+date: 2024-10-07T18:32:22.969Z
+updated: 2024-10-08T19:09:42.415Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/445acff3cb96c7fdb86bf94a45c03c504df7c348a8d93fea013a39cba2a1ab43.jpg
@@ -32,6 +32,13 @@ Also, employee productivity has increased (48 percent), and work-life balance ha
 
 These are all important factors that impact employee loyalty, retention, productivity, and growth in the enterprise…and furthermore, an important aspect in times when phenomena such as "quiet quitting" after challenging pandemic years demonstrate that satisfaction and appreciation at work are becoming increasingly important for the enterprise’s future growth and team success.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Impact of the Economy on AI Priorities
 
 STATE OF INTELLIGENT AUTOMATION REPORT
@@ -39,10 +46,10 @@ STATE OF INTELLIGENT AUTOMATION REPORT
 [Download report](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Establishing artificial intelligence as a team player in the enterprise
@@ -59,13 +66,6 @@ You can download the full ABBYY State of Intelligent Automation Report [here](ht
 
 ![Gabrielle Lukianchuk 110X110 (1)](https://static1.abbyy.com/abbyycommedia/37002/gabrielle-lukianchuk_110x110-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Gabrielle Lukianchuk
 
 Chief Marketing Officer at ABBYY
@@ -75,16 +75,16 @@ Gabrielle Lukianchuk is the Chief Marketing Officer at ABBYY where she oversees 
 Connect with Gabrielle on [LinkedIn](https://www.linkedin.com/in/gabriellelukianchuk/).
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -94,10 +94,10 @@ Connect with Gabrielle on [LinkedIn](https://www.linkedin.com/in/gabriellelukian
 [![Making the Business Case for Investing in AI and Intelligent Automation](https://static2.abbyy.com/abbyycommedia/38051/ds-191_making-the-business-case_848x444.jpg) **Making the Business Case for Investing in AI and Intelligent Automation** Read more](https://www.abbyy.com/intelligent-enterprise/making-the-business-case-for-investing-in-ai-and-intelligent-automation/) [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg) **Customer Point of View: Highs and Lows of the Intelligent Automation Journey** Read more](https://tools.techidaily.com/abbyy/products/) [![Intelligent Automation in Your Game-Changing Arsenal](https://static3.abbyy.com/abbyycommedia/38056/ds-191_intelligent-automation_848x444.jpg) **Intelligent Automation in Your Game-Changing Arsenal** Read more](https://www.abbyy.com/intelligent-enterprise/intelligent-automation-in-your-game-changing-arsenal/) [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Subscribe for updates
@@ -157,20 +157,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-becoming-a-savvy-vr-tour-connoisseur/"><u>[Updated] In 2024, Becoming a Savvy VR Tour Connoisseur</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-elite-gameplay-in-simulated-fluids-and-flows/"><u>[Updated] In 2024, Elite Gameplay in Simulated Fluids & Flows</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fun-on-a-budget-meme-creators-handbook/"><u>2024 Approved Fun on a Budget – Meme Creator’s Handbook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-strategies-for-penning-persuasive-vlogger-content/"><u>2024 Approved Strategies for Penning Persuasive Vlogger Content</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-lava-yuva-3-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Lava Yuva 3</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722187622078-discover-7-exceptional-alternatives-to-chatgpt-enhance-your-mobile-experience/"><u>Discover 7 Exceptional Alternatives to ChatGPT: Enhance Your Mobile Experience</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-pioneering-playgrounds-of-action-adventure-classics-top-10/"><u>In 2024, Pioneering Playgrounds of Action-Adventure Classics (Top 10)</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-infinix-note-30-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Infinix Note 30 5G Phone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/unleashing-the-power-of-cross-platform-video-playback-software-for-2024/"><u>Unleashing the Power of Cross-Platform Video Playback Software for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-best-ps1-game-emulation-software-on-your-pc/"><u>[New] Best PS1 Game Emulation Software on Your PC</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-a-new-era-advanced-webcam-techniques/"><u>[Updated] In 2024, A New Era Advanced Webcam Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-elite-screenscape-high-quality-4k-panels-for-editors/"><u>[Updated] In 2024, Elite Screenscape High-Quality 4K Panels for Editors</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-your-google-queries-with-perplexity-ai-the-ai-tool-you-havent-tried-yet/"><u>Elevate Your Google Queries with Perplexity AI, the AI Tool You Haven't Tried Yet</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elevate-your-presentations-with-professional-screencasts-for-2024/"><u>Elevate Your Presentations with Professional Screencasts for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lava-yuva-3-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lava Yuva 3 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-apple-iphone-xs-max-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone XS Max Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/industry-titans-or-inevitable-oligopoly-in-gaming-expert-panel-discussion/"><u>Industry Titans or Inevitable Oligopoly in Gaming? [Expert Panel Discussion]</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-pro-max-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 Pro Max</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 </ul></div>
 

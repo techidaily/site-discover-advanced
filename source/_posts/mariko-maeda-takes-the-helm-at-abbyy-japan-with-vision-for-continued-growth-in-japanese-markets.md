@@ -1,7 +1,7 @@
 ---
 title: Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets
-date: 2024-09-27T07:05:19.526Z
-updated: 2024-10-02T19:02:48.188Z
+date: 2024-10-03T16:51:11.256Z
+updated: 2024-10-08T17:55:26.944Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4ccd50e41e8a2b78b87f09590.jpg
@@ -30,10 +30,10 @@ ABBYYジャパン代表取締役社長に就任した前田まりこは、次の
 前田まりこは、ABBYY入社以前は米国に拠点を置く自動化ロボットのリーディング・カンパニーであるGreyOrangeで日本及び韓国チームを統括してきました。また営業、ソリューション・コンサルティング、オペレーション、カスタマー・エクスペリエンスに焦点を当てたセールス戦略と収益拡大をリードするなど、豊富な経験を誇ります。（早稲田大学大学院修士課程修了）
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -49,10 +49,10 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -78,20 +78,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-your-digital-footprint-facebook-lives-made-easy/"><u>[New] In 2024, Mastering Your Digital Footprint Facebook Lives Made Easy</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-jumpstarting-your-marketing-the-essentials-of-telegram-advertising/"><u>[Updated] Jumpstarting Your Marketing The Essentials of Telegram Advertising</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-maxitouch-all-in-one-4k-screen-plus-desk-for-2024/"><u>[Updated] MaxiTouch All-in-One 4K, Screen Plus Desk for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/2022-spark-matrix-by-quadrant-smart-document-management/"><u>2022 Spark Matrix by Quadrant: Smart Document Management</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/6yer6j6n44k144o844ot44k544gr44gk44gr44kl6z2e5qel6ycg5yyw44kz44oz44og44oz44oe44gu5aplusplus5yem5pa55rov44ks6kej44gn5pio44gl44gz/"><u>金融サービスにおける非構造化コンテンツの対処方法を解き明かす</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbeyy-finescanner-80-abbeyy/"><u>ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-announces-chip-vonburgs-appointment-to-chief-of-strategic-customer-growth-initiatives/"><u>ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-groups-leadership-addresses-covid-1eb-concerns-with-a-formal-declaration-by-ulf-persson-ceo/"><u>ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-top-contender-in-the-2024-gartner-magic-quadrant-excellence-in-process-mining-solutions/"><u>ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-performance-hiccups-optimizing-your-play-of-outriders-on-windows-pcs/"><u>Fixing Performance Hiccups: Optimizing Your Play of Outriders on Windows PCs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-nubia-red-magic-9-pro-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Nubia Red Magic 9 Pro Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Motorola Defy 2? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-y78plus-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Y78+.</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-unlocking-the-secrets-of-turning-online-videos-into-desktop-music-files-for-2024/"><u>[New] Unlocking the Secrets of Turning Online Videos Into Desktop Music Files for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-facebook-financial-gains-a-step-by-step-guide-for-2024/"><u>[Updated] Unlocking Facebook Financial Gains A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>2024 Approved Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/amazing-results-how-clearing-my-over-ten-years-youtube-history-made-me-feel/"><u>Amazing Results: How Clearing My Over Ten Years YouTube History Made Me Feel</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/crafting-videos-youtube-tools-and-more-for-2024/"><u>Crafting Videos YouTube Tools and More for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-s17e-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo S17e Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-samsung-galaxy-s23-fe-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Samsung Galaxy S23 FE Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-eliminating-crashes-in-diablo-ii-reimagined-edition/"><u>Troubleshooting Guide: Eliminating Crashes in Diablo II Reimagined Edition</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-13t-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi 13T Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

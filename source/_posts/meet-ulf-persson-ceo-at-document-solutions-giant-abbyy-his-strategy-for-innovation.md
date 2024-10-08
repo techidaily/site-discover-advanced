@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-09-29T18:40:12.557Z
-updated: 2024-10-03T09:39:02.526Z
+date: 2024-10-04T17:32:47.032Z
+updated: 2024-10-08T17:46:57.673Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -24,10 +24,10 @@ Throughout his career, Ulf has been involved as an investor and board member in 
 Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School of Economics and the Swedish Defense Language Institute.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -49,24 +49,22 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-elevate-your-tiktok-videos-with-compelling-captions/"><u>[New] 2024 Approved Elevate Your TikTok Videos with Compelling Captions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-iphone-photo-watermarks-apps/"><u>[Updated] 2024 Approved The Ultimate Guide to iPhone Photo Watermarks Apps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-full-screen-recovered-from-obs-errors/"><u>[Updated] Full Screen Recovered From OBS Errors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-premier-android-vocal-mixer-app-for-2024/"><u>[Updated] Premier Android Vocal Mixer App for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-transformative-instagram-edits-professional-strategies-for-2024/"><u>[Updated] Transformative Instagram Edits Professional Strategies for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-xs-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone XS? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-mastering-the-craft-of-macro-video-production-techniques/"><u>In 2024, Mastering the Craft of Macro Video Production Techniques</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-create-neon-effects-online-8-simple-and-free-tools-to-get-you-started/"><u>New Create Neon Effects Online 8 Simple and Free Tools to Get You Started</u></a></li>
-<li><a href="https://win-forum.techidaily.com/online-free-mp4-a-aac-convertidor-pelo-site-movavi-sem-custo/"><u>Online Free MP4 a AAC Convertidor Pelo Site Movavi - Sem Custo!</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repairing-lenovo-lack-of-volume-solutions/"><u>Troubleshooting and Repairing Lenovo Lack of Volume Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-best-8-platforms-for-professional-linux-editing/"><u>[New] In 2024, Best 8 Platforms for Professional Linux Editing</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/2-decouvrez-les-principes-fondamentaux-de-la-politique-de-confidentialite-de-movavi-pour-assurer-la-vie-privee-en-ligne/"><u>2. Découvrez Les Principes Fondamentaux De La Politique De Confidentialité De Movavi Pour Assurer La Vie Privée en Ligne</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-seamless-and-efficient-web-tracking/"><u>Automated with CookieBot: Seamless and Efficient Web Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-streamlining-your-websites-user-experience/"><u>Automated with Cookiebot: Streamlining Your Website's User Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automatische-erfassung-von-rechnungen-mit-abbyy-bei-der-deurag-hotel-holding-gmbh/"><u>Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-digital-footprint-effortlessly-using-cookiebot-technology-for-superior-seo-results/"><u>Boost Your Digital Footprint Effortlessly Using Cookiebot Technology for Superior SEO Results</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-advertising-solutions-for-effective-digital-campaigns/"><u>Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-graphics-card-drivers-on-windows-11-fast-and-simple-download/"><u>Get the Latest NVIDIA Graphics Card Drivers on Windows 11: Fast and Simple Download</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-big-thing-on-facebook-enhanced-story-panel-features/"><u>Next Big Thing on Facebook? Enhanced Story Panel Features</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/shutting-down-defender-firewall-in-windows-11-easily/"><u>Shutting Down Defender Firewall in Windows 11 Easily</u></a></li>
+<li><a href="https://win11.techidaily.com/techniques-to-fix-inaudible-microphone-during-screen-recordings/"><u>Techniques to Fix Inaudible Microphone During Screen Recordings</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-free-and-easy-3gp-video-rotation-top-picks-for-this-year-for-2024/"><u>Updated Free and Easy 3GP Video Rotation Top Picks for This Year for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role"
-date: 2024-09-30T21:49:33.759Z
-updated: 2024-10-03T06:33:30.489Z
+date: 2024-10-01T19:23:13.296Z
+updated: 2024-10-08T16:56:29.981Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16477a8d9fa6304264e3f24e3.jpg
@@ -37,16 +37,10 @@ Before joining ABBYY, Mr. Shimizu spent more than 30 years at RICOH, being respo
 _1 IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622_
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -56,10 +50,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -67,10 +61,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -97,18 +91,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-dissection-of-fb-video-dimensions/"><u>[Updated] In 2024, Dissection of FB Video Dimensions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/chromefirefox/"><u>【Chrome・Firefox】動画ダウンロードソフトワックスにおける代替アプリケーションとその使い方</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/best-mp3-to-wav-converters-top-picks-for-windows-and-macos/"><u>Best MP3 to WAV Converters: Top Picks for Windows & macOS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comparing-apple-itunes-with-microsofts-zune-which-media-player-wins-out/"><u>Comparing Apple iTunes with Microsoft's Zune: Which Media Player Wins Out?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/conversion-mts-avi-and-positive-adjectives-like-simple-swift-fast-and-effortless/"><u>Conversion, MTS, AVI, and Positive Adjectives Like Simple, Swift, Fast, and Effortless.</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/convert-mp4-audio-tracks-to-mp3-files-free-of-charge-in-windows-10/"><u>Convert MP4 Audio Tracks to MP3 Files Free of Charge in Windows 10</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-an-animated-gif-with-integrated-audio-a-step-by-step-guide/"><u>Creating an Animated GIF With Integrated Audio: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/dealing-with-failures-after-a-windows-upgrade/"><u>Dealing with Failures After a Windows Upgrade</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/freelance-breakthroughs-unleash-potential-using-chatgpts-top-6-strategies/"><u>Freelance Breakthroughs: Unleash Potential Using ChatGPT's Top 6 Strategies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-geforce-rtx-3090-driver-download-for-windows-os-versions-10-8-and-7/"><u>Latest GeForce RTX 3090 Driver Download for Windows OS Versions (10, 8, & 7)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/understanding-and-fixing-webpages-500-internal-server-glitches/"><u>Understanding and Fixing Webpage's 500 Internal Server Glitches</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/why-embracing-ai-is-essential-8-compelling-reasons-teachers-need-to-adapt/"><u>Why Embracing AI Is Essential: 8 Compelling Reasons Teachers Need to Adapt</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-action-capturing-software-guide-for-2024/"><u>[Updated] Top Action-Capturing Software Guide for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/challenge-yourself-with-chatgpts-hottest-gaming-delights/"><u>Challenge Yourself with ChatGPT’s Hottest Gaming Delights</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-headlines-with-effective-slug-lines/"><u>In 2024, Optimizing Headlines with Effective Slug Lines</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-twitch-broadcasting-the-quintessential-top-5-tools-you-need-to-succeed/"><u>Mastering Twitch Broadcasting: The Quintessential Top 5 Tools You Need to Succeed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-tier-voice-to-text-applications-for-2024/"><u>Top Tier Voice to Text Applications for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/vantage-point-critique-for-2024/"><u>Vantage Point Critique for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/view-count-rewards-on-youtube-per-million-in-2024/"><u>View Count Rewards on YouTube – Per Million, In 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027295203-microsoft-teams/"><u>レコーディング機能に問題がある時、Microsoft Teamsでどうすれば良いか</u></a></li>
 </ul></div>
 

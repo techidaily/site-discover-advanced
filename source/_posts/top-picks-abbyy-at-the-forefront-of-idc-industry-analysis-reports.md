@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports"
-date: 2024-09-26T18:04:28.629Z
-updated: 2024-10-03T05:32:28.742Z
+date: 2024-10-06T19:09:31.845Z
+updated: 2024-10-08T16:15:53.715Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5adbaedbc32c515398682e6a33ec3c2c1afff467021d3f18604d423ee17ce346.jpg
@@ -20,10 +20,10 @@ In diesem ersten Bericht von IDC werden KI-Technologien wie optische Zeichenerke
 Das IDC-MarketScape-Analysemodell wurde entwickelt, um einen Überblick über die Wettbewerbsfähigkeit von ICT-Anbietern auf einem bestimmten Markt zu geben. Die Bewertung erfolgt nach einem stringenten Punktesystem, das sowohl qualitative als auch quantitative Kriterien berücksichtigt und in einer grafischen Darstellung der Position jedes Anbieters innerhalb eines bestimmten Marktes resultiert. Die Punktzahl in der Kategorie Capabilities bewertet das Produkt, die Markteinführung und die kurzfristige Geschäftsabwicklung des Anbieters. Die Strategiebewertung misst die Ausrichtung der Anbieterstrategien an den Kundenanforderungen in einem Zeitrahmen von drei bis fünf Jahren. Der Marktanteil der Anbieter wird durch die Größe der Icons dargestellt. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
@@ -107,18 +107,15 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-inside-screen-recorder-reviews-top10plus/"><u>[New] 2024 Approved Inside Screen Recorder Reviews #Top10+</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-colorful-compositions-in-a-click-photoshops-guide/"><u>[New] Colorful Compositions in a Click Photoshop's Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/critical-alternatives-to-twitter-the-best-5/"><u>Critical Alternatives to Twitter The Best 5</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-conversion-tracking-discover-how-our-cookiebot-powered-solutions-boost-your-site/"><u>Drive Traffic with Automated Conversion Tracking: Discover How Our Cookiebot-Powered Solutions Boost Your Site</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-website-engagement-through-cookiebots-advanced-visitor-insights-and-analytics-tools/"><u>Enhancing Website Engagement Through Cookiebot's Advanced Visitor Insights and Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-seamless-data-collection-with-cookiebot-integrated-services/"><u>Experience Seamless Data Collection with Cookiebot-Integrated Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-the-world-of-smart-business-a-tour-with-ceo-ulf-persson/"><u>Exploring the World of Smart Business: A Tour with CEO Ulf Persson</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/globale-allianz-abbyy-bildet-mit-synpulse-eine-umfassende-europapartnerschaft/"><u>Globale Allianz: ABBYY Bildet Mit Synpulse Eine Umfassende Europapartnerschaft</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-moto-g23-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola Moto G23 Is Unlocked</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/impressive-25-increase-in-abbyys-revenue-for-the-year-201n7-key-insights-and-trends/"><u>Impressive 25% Increase in ABBYY's Revenue for the Year 201N7: Key Insights and Trends</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-bridging-worlds-unveiling-the-best-6-in-nft-art/"><u>In 2024, Bridging Worlds Unveiling the Best 6 in NFT Art</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-world-of-vocal-manipulators-an-overview-testimonials-and-substitutes/"><u>New In 2024, The World of Vocal Manipulators An Overview, Testimonials, and Substitutes</u></a></li>
-<li><a href="https://location-social.techidaily.com/taking-on-the-challenge-an-in-depth-look-at-the-dji-robomaster-s1-battlecoding-drone/"><u>Taking on the Challenge: An In-Depth Look at the DJI RoboMaster S1 Battlecoding Drone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-comprehensive-screen-capture-manual-by-zd-software/"><u>[Updated] Comprehensive Screen Capture Manual by ZD Software</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-polishing-zoom-picture-quality-simple-solutions/"><u>2024 Approved Polishing Zoom Picture Quality Simple Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boosting-your-job-hunt-with-these-6-smart-tactics-using-chatgpt/"><u>Boosting Your Job Hunt with These 6 Smart Tactics Using ChatGPT</u></a></li>
+<li><a href="https://windows11.techidaily.com/elevating-virtual-battles-why-windows-reigns-supreme/"><u>Elevating Virtual Battles: Why Windows Reigns Supreme</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-buzzing-beats-leading-music-distortion-apps/"><u>In 2024, Buzzing Beats Leading Music Distortion Apps</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-free-online-video-smoothers-our-top-picks-for-2024/"><u>Updated Free Online Video Smoothers Our Top Picks for 2024</u></a></li>
 </ul></div>
 

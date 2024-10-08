@@ -1,7 +1,7 @@
 ---
 title: "Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer"
-date: 2024-09-30T08:20:20.819Z
-updated: 2024-10-03T00:47:21.547Z
+date: 2024-10-02T19:09:13.189Z
+updated: 2024-10-08T19:21:22.528Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5599db5b0351dfe7fe4d3ef01a51b823176684e86c63c43fb2d60eaab80af0aa.jpg
@@ -84,31 +84,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-filmmaker-tips-youtube-trailers-using-filmora/"><u>[Updated] Filmmaker Tips YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-memes-galore-download-and-share-joy/"><u>[Updated] Memes Galore Download & Share Joy</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-streamlined-processes-from-camera-roll-to-snapchat-posting-for-2024/"><u>[Updated] Streamlined Processes From Camera Roll to Snapchat Posting for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-top-7-budget-friendly-laptop-dvd-software-list-for-2024/"><u>[Updated] Top 7 Budget-Friendly Laptop DVD Software List for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029310826-png/"><u>「PNG」形式から「動画」への完全な変換方法 - ステップバイステップマニュアル</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-exploring-the-lost-stories-of-facebook-tech-savvy-approach/"><u>2024 Approved Exploring the Lost Stories of Facebook Tech-Savvy Approach</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/abschiedsbittelemente-fur-deutschsprachige-beziehrangelegenheiten/"><u>Abschiedsbittelemente Für Deutschsprachige Beziehrangelegenheiten</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1726029386322-gif/"><u>GIFを作る方法 - 簡単なステップガイド</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-vivo-y100-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y100 Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028122880-ismvmp4/"><u>ファイル拡張子.ismvの動画MP4への変換テクニック</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-lightening-your-day-with-humor-comical-facebook-detention-memes/"><u>[New] In 2024, Lightening Your Day with Humor Comical Facebook Detention Memes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-premier-pro-essentials-accessible-for-all-editors/"><u>[New] The Premier Pro Essentials - Accessible for All Editors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-are-there-restrictions-in-saving-youtube-videos-in-2024/"><u>[Updated] Are There Restrictions in Saving YouTube Videos, In 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029488666-mov/"><u>「ダビンチ解決策: ダヴィンチ・リゾルブにMOVファイルを正常読み取れない対処法」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/2024flacandcue/"><u>2024年度に選ばれたベストのFLAC&CUEパーツ転送ソフトウェア紹介</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/aacwav5/"><u>AACからWAVへ自由で手軽な変換ツール：5人気のフリーソフト</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abema-pc6/"><u>ABEMA PC録画機能を活用した最高の6つのツール</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-samsung-galaxy-a15-4g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Samsung Galaxy A15 4G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-game-interruptions-stability-solutions-for-war-thunders-latest-version/"><u>Overcoming Game Interruptions: Stability Solutions for War Thunder's Latest Version</u></a></li>
+<li><a href="https://games-able.techidaily.com/reverse-digital-gaming-purchases-on-console-xsx/"><u>Reverse Digital Gaming Purchases on Console XS/X</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44kz44oz44ou44ol44o844k44o844gr44ki44kl5psplus6ycb5asn5a2m44gu44op44k444kq55wq57we6yyy6zplusz44ks44kk44oj/"><u>コンピューターによる放送大学のラジオ番組録音ガイド</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

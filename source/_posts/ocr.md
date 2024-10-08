@@ -1,7 +1,7 @@
 ---
 title: スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ
-date: 2024-09-29T20:17:02.589Z
-updated: 2024-10-02T17:31:11.670Z
+date: 2024-10-07T18:59:42.545Z
+updated: 2024-10-08T18:40:25.784Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e81f992123e17db59f89c6842ca48bb426d509215d95604071818ec4e7dc281.jpg
@@ -23,13 +23,6 @@ ABBYYでは、利用シーン・ビジネスケースに応じて、以下の様
 
 ![FlexiCapture_77x77](https://static4.abbyy.com/abbyycommedia/15606/flexicapture_77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### FlexiCapture
 
 OCR
@@ -41,6 +34,13 @@ OCR
 
 ![Timeline 77X77](https://static2.abbyy.com/abbyycommedia/23652/timeline-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Timeline
 
 フロセスマイニング
@@ -50,20 +50,6 @@ OCR
 * 業務改善、見える化
 
 ![Finereader 80X77](https://static1.abbyy.com/abbyycommedia/22921/finereader-80x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### FineReader 
 
@@ -78,10 +64,10 @@ OCR
 ![MWC 77X77](https://static1.abbyy.com/abbyycommedia/22267/mwc-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mobile 
@@ -108,6 +94,13 @@ SDK
 * #### 顧客オンボーディング（口座開設、等）
 
 保険申込の際の契約書作成
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 一方、モバイルソリューションには、以下のような課題が存在します。
 
@@ -146,10 +139,17 @@ ABBYY Mobile Web Captureで撮ったDocument画像を[ABBYY FlexiCapture](https:
 ![ABBYY AI OCR](https://static1.abbyy.com/abbyycommedia/35068/image-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 最後に、[事例紹介](https://tools.techidaily.com/abbyy/products/)からいくつか抜粋し、ABBYY Mobile Web Captureの事例を紹介します。
@@ -257,16 +257,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-speedy-fortnite-cover-art-creation/"><u>[New] In 2024, Speedy Fortnite Cover Art Creation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-implementing-visual-learning-strategies-in-classrooms/"><u>2024 Approved Implementing Visual Learning Strategies in Classrooms</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/executive-strategies-overcoming-obstacles-in-artificial-intelligence/"><u>Executive Strategies: Overcoming Obstacles in Artificial Intelligence</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-nokia-c210-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Nokia C210 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/precision-marketing-via-innovative-cookie-based-analytics-tools/"><u>Precision Marketing via Innovative Cookie-Based Analytics Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/sparkling-vibrancy-the-android-video-brightening-guide/"><u>Sparkling Vibrancy The Android Video Brightening Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1722994511222-ultimate-guide-how-to-stop-your-game-from-freezing-on-cod-vanguard-free/"><u>Ultimate Guide: How to Stop Your Game From Freezing on COD: Vanguard - FREE!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhance-watchability-with-full-screen-on-fb-videos/"><u>[New] Enhance Watchability with Full-Screen on FB Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-enhancing-dji-flights-20-free-color-adjustments-dji-mini-and-air/"><u>[New] In 2024, Enhancing DJI Flights 20 Free Color Adjustments (DJI Mini & Air)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastery-over-light-and-shadow-with-hdr-software/"><u>[New] In 2024, Mastery Over Light and Shadow with HDR Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-evaluating-the-significance-of-insta-selfies-verification/"><u>[Updated] 2024 Approved Evaluating the Significance of Insta-Selfies Verification</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-brief-stardom-flash-review-for-2024/"><u>[Updated] Brief Stardom Flash Review for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-revolutionizing-cinematography-with-advanced-3d-luts/"><u>[Updated] Revolutionizing Cinematography with Advanced 3D LUTs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boosting-efficiency-in-kreditorenbuchhaltung-via-shared-services-and-automation-by-madsack-sap-dank-abbyy-and-beck-it/"><u>Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-insights-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Driven Insights: Optimize Your Website with Smart Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-site-performance-boosting-engagement-with-smart-tracking/"><u>Cookiebot-Enhanced Site Performance: Boosting Engagement with Smart Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://win-data.techidaily.com/top-30plus-unbeatable-amazon-primeshop-lighted-wall-mount-tv-monitors-on-sale-get-them-before-theyre-gone/"><u>Top 30+ Unbeatable Amazon Primeshop Lighted Wall Mount TV Monitors on Sale – Get Them Before They're Gone!</u></a></li>
 </ul></div>
 

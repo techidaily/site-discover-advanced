@@ -1,7 +1,7 @@
 ---
 title: "Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology"
-date: 2024-10-01T07:28:10.864Z
-updated: 2024-10-03T08:10:37.924Z
+date: 2024-10-05T17:12:59.347Z
+updated: 2024-10-08T16:22:04.096Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03036a5859c384dd9ace3b529.jpg
@@ -20,10 +20,10 @@ July 27, 2017
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tolstoy: famous and rare
@@ -35,10 +35,10 @@ Apart from the finished works of fiction - prose, poetry, drama - these volumes 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Tolstoy fans used technologies
@@ -56,10 +56,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -75,10 +75,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -106,16 +106,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-8-tips-on-how-to-vlog-confidently-like-popular-youtubers/"><u>[New] 2024 Approved 8 Tips on How to Vlog Confidently Like Popular YouTubers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-spice-up-content-kapwings-meme-builder/"><u>[New] Spice Up Content Kapwing's Meme Builder</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-tech-marvels-top-picks-for-everyone/"><u>2024 Approved Ultimate Tech Marvels Top Picks for Everyone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-microsoft-ergonomic-keyboard-4000-driverseasily-and-quickly/"><u>Download Microsoft Ergonomic Keyboard 4000 Drivers|Easily & Quickly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Fixing Foneazy MockGo Not Working On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/simplify-your-daily-routine-activating-fast-user-switching-and-auto-login-in-windows-systems/"><u>Simplify Your Daily Routine: Activating Fast User Switching & Auto Login in Windows Systems</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-cam-cover-selection-made-simple-with-our-10-picks/"><u>[Updated] Cam Cover Selection Made Simple with Our 10 Picks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/g9xii-review-the-perfect-companion-for-the-budding-vintage-style-travel-photographer/"><u>G9XII Review – The Perfect Companion for the Budding Vintage-Style Travel Photographer</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-word-2023-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for Word 2023 document</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-14-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi 14 Pro?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-poco-x6-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Poco X6 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/master-your-windows-with-chatgpt/"><u>Master Your Windows with ChatGPT</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-instructions-for-downloading-inshot-editing-software-on-pc/"><u>Step-by-Step Instructions for Downloading InShot Editing Software on PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-tutorial-converting-movies-tofrom-wmv-with-simple-techniques/"><u>Step-by-Step Tutorial: Converting Movies To/From WMV with Simple Techniques</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-shake-it-off-8-excellent-free-video-stabilizers-to-try-this-year/"><u>Updated Shake It Off 8 Excellent Free Video Stabilizers to Try This Year</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

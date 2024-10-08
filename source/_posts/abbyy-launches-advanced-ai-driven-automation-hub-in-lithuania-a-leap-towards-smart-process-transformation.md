@@ -1,7 +1,7 @@
 ---
 title: "Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation"
-date: 2024-09-27T18:51:21.559Z
-updated: 2024-10-03T01:00:59.776Z
+date: 2024-10-06T18:08:28.049Z
+updated: 2024-10-08T18:52:07.280Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec122694d578843a25c7f44c71.jpg
@@ -26,10 +26,10 @@ Intelligent automation company, ABBYY, has opened a new office in Vilnius, the c
 ABBYY’s new engineering resource center in Lithuania is the company’s 15th global office.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -39,10 +39,10 @@ ABBYY powers intelligent automation. We reimagine the way people work and how co
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -50,10 +50,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -80,16 +80,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-onestream-integration-tips-for-seamless-livestreaming/"><u>[New] 2024 Approved OneStream Integration Tips for Seamless Livestreaming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-optimizing-your-music-library-transitioning-from-spotify-to-youtube-music/"><u>[New] Optimizing Your Music Library Transitioning From Spotify To YouTube Music</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlock-the-power-of-speech-recognition-for-effective-office-documentation-in-microsoft-word/"><u>[Updated] Unlock the Power of Speech Recognition for Effective Office Documentation in Microsoft Word</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-nvidia-quadro-drivers-for-windows-10-direct-from-the-source/"><u>Download NVIDIA Quadro Drivers for Windows 10 - Direct From the Source</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Tecno Spark Go (2024) | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/inserting-technical-codes-efficiently-tips-for-microsoft-word-users/"><u>Inserting Technical Codes Efficiently: Tips for Microsoft Word Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-live-recording-analyzer/"><u>[New] 2024 Approved Live Recording Analyzer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimal-10-image-storage-solutions-guarantee-photographic-safety/"><u>[New] Optimal 10 Image Storage Solutions, Guarantee Photographic Safety</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-strategies-for-chronicling-lol-showdowns-for-2024/"><u>[New] Top Strategies for Chronicling LOL Showdowns for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-a23-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy A23 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-sustainable-traffic-growth-ethical-video-marketing-tips/"><u>In 2024, Sustainable Traffic Growth Ethical Video Marketing Tips</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-xs-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone XS Properly | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/um-10-audio-enhancers-for-multiple-systems/"><u>Premium 10 Audio Enhancers for Multiple Systems</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-capturing-a-screenshot-on-your-acer-device/"><u>Step-by-Step Guide: Capturing a Screenshot on Your Acer Device</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oppo-reno-8t-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Oppo Reno 8T 5G ? Fix It Easily | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-09-27T03:18:44.332Z
-updated: 2024-10-03T00:32:24.470Z
+date: 2024-10-01T17:51:32.438Z
+updated: 2024-10-08T19:14:18.415Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -69,29 +69,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-webcam-users-guide-for-quality-recordings-for-2024/"><u>[Updated] The Ultimate WebCam User's Guide for Quality Recordings for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unleashing-vibrance-grading-secrets-in-ps/"><u>[Updated] Unleashing Vibrance Grading Secrets in PS</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-optimal-tag-selection-elevate-your-videos-online-presence/"><u>2024 Approved Optimal Tag Selection Elevate Your Video's Online Presence</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/enhanced-interaction-through-effective-zoom-screenshares/"><u>Enhanced Interaction Through Effective Zoom Screenshares</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
-<li><a href="https://common-error.techidaily.com/huion-pen-malfunction-discover-these-five-speedy-troubleshooting-steps-to-get-it-working-again/"><u>Huion Pen Malfunction? Discover These Five Speedy Troubleshooting Steps to Get It Working Again</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-s17t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo S17t to iPhone | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-brisk-windows-content-reconnaissance/"><u>In 2024, Brisk Windows Content Reconnaissance</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-huawei-p60-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Huawei P60 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-the-secrets-of-grok-artificial-intelligence-with-elon-musk/"><u>Unveiling the Secrets of Grok Artificial Intelligence with Elon Musk</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-essential-tips-for-capturing-high-quality-audio-in-filmmaking/"><u>[Updated] Essential Tips for Capturing High-Quality Audio in Filmmaking</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-videos-to-gifs/"><u>[Updated] How to Convert YouTube Videos to GIFs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-13-ultra-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Xiaomi 13 Ultra to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oneplus-ace-3-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from OnePlus Ace 3 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-pop-8frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Pop 8FRP Lock</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-reach-without-money-youtube-video-advancement-strategies-for-2024/"><u>Mastering Reach Without Money YouTube Video Advancement Strategies for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ess-conversion-of-video-content-to-dynamic-gif-formats-for-2024/"><u>Seamless Conversion of Video Content to Dynamic GIF Formats for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-combining-multiple-mp4-clips-on-your-windows-11-pc/"><u>Step-by-Step: Combining Multiple MP4 Clips on Your Windows 11 PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-finest-5k-monitors-our-choice-8-edition/"><u>The Finest 5K Monitors Our Choice, #8 Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-recommended-settings-when-sharing-videos-on-twitter-what-you-need-to-know-for-successful-engagement/"><u>Top Recommended Settings When Sharing Videos on Twitter: What You Need To Know For Successful Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://os-tips.techidaily.com/usb-type-c-port-on-iphone-15-features-enhanced-connectivity/"><u>USB Type-C Port on iPhone 15 Features Enhanced Connectivity</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

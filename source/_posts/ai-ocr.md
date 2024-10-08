@@ -1,7 +1,7 @@
 ---
 title: "AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋"
-date: 2024-09-26T12:26:55.986Z
-updated: 2024-10-03T07:48:56.965Z
+date: 2024-10-07T16:11:18.361Z
+updated: 2024-10-08T18:27:44.501Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg
@@ -23,6 +23,13 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 
 OCRの検討段階では気づきにくい、OCRによる働き方改革や業務自動化を実現する上で注意すべきポイントについてご紹介いたします。
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## OCR導入に失敗する要因その１：文書レイアウトに起因する問題
 
 OCR導入の失敗には、3つの系統的な要因が見られます。その一つとして挙げられるのは、文書レイアウトに起因する問題です。
@@ -36,13 +43,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 一つ目は、「AI自動学習では正確に領域を特定できない」ということです。昨今のOCRはAIによる自動学習にて抽出項目を構成する機能があります。AI自動学習は読み取りたい帳票を準備するだけで良く、人の手による細かな設定が不要のため人気ですが、少し複雑になるととたんに抽出できなくなります。例えば下表はデリバリコードが5つリストされており、概要では、それぞれのコードごとに数量、生産国などの属性値が表記される表です。デリバリコード数は帳票により増減しますが、属性値の数もアイテムにより増減するような表です。このような表はAI自動学習で項目を構成するのは難しく、確実に抽出できるような他の方法が必要になります。
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35675/1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2つ目は、「ノイズのある文書が読めない」というものです。請求書などの会社発行の書類では、自社情報の付近に押印されているケースがあります。このような押印が会社情報に被ると会社情報を抽出するのが難しくなります。画像処理により押印部分を除去することで改善、解決することができますが、OCR製品によっては画像処理を行えないものがあります。
 
@@ -64,19 +64,6 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35676/2.png)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 また秘匿性という観点では、OCR処理内容を他の部署に見せたくないなど、部門ごとのセキュリティが求められるケースもあります。この場合はテナント機能により部門ごとに作業領域を区分けできることが重要です。
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35677/3.png)
@@ -86,10 +73,10 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 また、社内の認証手続きに合致しない、社内ネットワーク基準に干渉するためアクセスできない、といったことが無いように、シングルサインオンや多段階認証への対応であるとか様々なシステムとの接続性にも事前に目を向ける必要があります。
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## OCR導入に失敗する要因その3：ワークフローに起因する問題
@@ -112,6 +99,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35678/4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AI OCRの自動化で失敗しないためには
 
 今まで見てきたように、OCR導入とその自動化は、「識字率、AI自動学習、簡単さ」といったOCRそのものの性能・特徴だけではなく、「文書レイアウトへ柔軟に対応できるのか、業務での利用に耐えうる製品か、望むフローを構成できるのか」といった領域についても考慮することが重要です。
@@ -125,16 +119,10 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 [AI OCR](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -200,24 +188,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-heroic-duel-noir-knights-vs-aurora-guardians/"><u>[New] Heroic Duel Noir Knights Vs Aurora Guardians</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-photographic-journey-with-toolwiz-detailed-analysis-and-more/"><u>[Updated] Photographic Journey with Toolwiz Detailed Analysis and More</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-worlds-richest-social-media-influencer/"><u>[Updated] World's Richest Social Media Influencer</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-revised-interview-scripts-for-captivating-audiences/"><u>2024 Approved Revised Interview Scripts for Captivating Audiences</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
-<li><a href="https://video-capture.techidaily.com/exploring-the-depths-of-fraps-recorders-for-2024/"><u>Exploring the Depths of Fraps Recorders for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-google-pixel-8-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Google Pixel 8 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-meizu-21-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Meizu 21 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/lost-in-light-heres-how-to-switch-your-facebook-back-to-dark-theme/"><u>Lost in Light? Here's How to Switch Your Facebook Back to Dark Theme</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
-<li><a href="https://windows11.techidaily.com/personalizing-the-windows-11-task-manager-homepage/"><u>Personalizing the Windows 11 Task Manager Homepage</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/your-key-to-individualized-ai-openais-custom-gpt-solutions/"><u>Your Key to Individualized AI: OpenAI's Custom GPT Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unlocking-the-seo-puzzle-strategies-that-elevate-your-podcasts/"><u>[Updated] In 2024, Unlocking the SEO Puzzle Strategies That Elevate Your Podcasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-prime-psd-visual-enhancements/"><u>[Updated] Prime PSD Visual Enhancements</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-sprint-towards-subscriber-goal-reach-1000/"><u>2024 Approved Sprint Towards Subscriber Goal Reach 1,000</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-14-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 14 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/best-hd-action-recorders-under-100-for-2024/"><u>Best HD Action Recorders Under $100 for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-personalization-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated Personalization: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>In 2024, Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/maximize-your-pcs-potential-with-the-latest-nvidia-geforce-210-driver-upgrade-on-windows-10/"><u>Maximize Your PC's Potential with the Latest NVIDIA GeForce 210 Driver Upgrade on Windows 10</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-updating-asus-vg24qe-display-driver-on-windows-pcs-what-you-need-to-know/"><u>Quick & Easy Guide to Updating Asus VG24#qe Display Driver on Windows PCs - What You Need to Know!</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshoot-missing-camera-in-device-manager/"><u>Troubleshoot Missing Camera In Device Manager</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-the-spike-in-gpt-hacks/"><u>Understanding the Spike in GPT Hacks</u></a></li>
 </ul></div>
 

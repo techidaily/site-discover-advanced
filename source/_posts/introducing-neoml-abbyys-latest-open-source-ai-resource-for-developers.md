@@ -1,7 +1,7 @@
 ---
 title: Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers
-date: 2024-09-26T06:30:03.598Z
-updated: 2024-10-03T03:29:41.138Z
+date: 2024-10-01T18:31:54.282Z
+updated: 2024-10-08T17:49:07.091Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8cca3cd844fe92c1c213c87ec.jpg
@@ -70,31 +70,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-obs-vs-shadowplay-the-ultimate-showdown-for-gamers/"><u>[New] 2024 Approved OBS vs ShadowPlay The Ultimate Showdown for Gamers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/reaking-into-livestrances-a-gamers-guide-to-youtube-success-for-2024/"><u>[New] Breaking Into Livestrances A Gamers' Guide to YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-virtual-marketing-realms/"><u>2024 Approved Navigating Virtual Marketing Realms</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-essentials-of-uploading-and-broadcasting-old-footage-on-fb/"><u>2024 Approved The Essentials of Uploading and Broadcasting Old Footage on FB</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-secrets-of-watching-public-instagram-profiles-as-a-guest-user/"><u>Discover the Secrets of Watching Public Instagram Profiles as a Guest User</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-latest-surface-docking-station-driver-fast-and-simple/"><u>Download the Latest Surface Docking Station Driver - Fast and Simple</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-optimization-with-cookiebot-technology/"><u>Enhanced Traffic Optimization with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-website-performance-through-advanced-analytics-and-cookiebot-technology/"><u>Enhancing Website Performance Through Advanced Analytics and Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-enhanced-conversion-rates-through-cutting-edge-cookiebot-based-technology-solutions/"><u>Experience Enhanced Conversion Rates Through Cutting-Edge, Cookiebot-Based Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-improved-behavioral-analytics-through-cookiebot-solutions/"><u>Experience Improved Behavioral Analytics Through Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-subcontracting-solutions-for-enhancing-abbyy-software-offerings/"><u>Expert Subcontracting Solutions for Enhancing ABBYY Software Offerings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-shutdown-how-to-pause-windows-11/"><u>Quick Shutdown: How to Pause Windows 11</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/vidextracter-facebook-streams-for-2024/"><u>VidExtracter Facebook Streams for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-regaining-exclusive-snap-privacy/"><u>[Updated] In 2024, Regaining Exclusive Snap Privacy</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-10-best-screen-recorders-for-pc-and-mac/"><u>[Updated] In 2024, Top 10 Best Screen Recorders for PC and Mac</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723017055257-black-ops-cold-war-sound-glitch-on-pc-heres-how-to-solve-it/"><u>Black Ops: Cold War Sound Glitch on PC? Here's How to Solve It</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-xbox-wireless-controller-drivers-simple-and-swift-setup/"><u>Download Xbox Wireless Controller Drivers: Simple and Swift Setup</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/get-the-latest-from-abc7-free-downloads-of-top-stories-in-mp4-wmv-and-avi-formats/"><u>Get the Latest From ABC7 - Free Downloads of Top Stories in MP4, WMV & AVI Formats</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-lava-blaze-2-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Lava Blaze 2 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-6-plus-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://network-issues.techidaily.com/win11-resume-post-creators-patching/"><u>Win11 Resume Post-Creators Patching</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

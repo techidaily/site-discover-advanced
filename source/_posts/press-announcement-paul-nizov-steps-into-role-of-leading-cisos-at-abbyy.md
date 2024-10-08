@@ -1,7 +1,7 @@
 ---
 title: "Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY"
-date: 2024-10-01T23:20:56.619Z
-updated: 2024-10-03T03:57:55.556Z
+date: 2024-10-05T16:01:01.585Z
+updated: 2024-10-08T18:52:40.965Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ed59cfb64274f1c3cef31ec193da51a46dc4b1758c31b372bba92f57a24379da.jpg
@@ -36,10 +36,16 @@ Paul has built and managed information and cyber security programs in sectors su
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -49,10 +55,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -60,10 +66,10 @@ ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -90,16 +96,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-comprehensive-look-at-youtuber-snippets/"><u>[New] 2024 Approved A Comprehensive Look at Youtuber Snippets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-tips-for-utilizing-snapchat-highlights-effectively/"><u>2024 Approved Expert Tips for Utilizing Snapchat Highlights Effectively</u></a></li>
-<li><a href="https://fox-http.techidaily.com/deciphering-facebook-activity-understanding-your-digital-footprint/"><u>Deciphering Facebook Activity Understanding Your Digital Footprint</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-elevate-your-video-entrance-with-these-tools/"><u>In 2024, Elevate Your Video Entrance with These Tools</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-iphoneandroids-top-sticker-adding-apps-the-essential-10-collection/"><u>In 2024, IPhone/Android's Top Sticker-Adding Apps The Essential 10 Collection</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-fixes-for-x887a0006-dxgi-error-in-windows-11/"><u>Quick Fixes for X887A0006: DXGI Error in Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-live-tv-is-vmix-or-wirecast-your-go-to-tool/"><u>2024 Approved Mastering LIVE TV Is VMix or Wirecast Your Go-To Tool?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-capturequality-assessor-network/"><u>In 2024, CaptureQuality Assessor Network</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 12</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-ios-a-comprehensive-guide-to-sending-voicemails-with-your-iphone/"><u>Mastering iOS: A Comprehensive Guide to Sending Voicemails with Your iPhone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-places-to-find-background-music-for-videos/"><u>Top Places to Find Background Music for Videos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-pc-lag-in-halo-infinite-discover-7-effective-ways-to-ensure-smooth-gameplay/"><u>Troubleshoot PC Lag in Halo Infinite: Discover 7 Effective Ways to Ensure Smooth Gameplay</u></a></li>
 </ul></div>
 

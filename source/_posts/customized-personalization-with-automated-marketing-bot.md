@@ -1,7 +1,7 @@
 ---
 title: Customized Personalization with Automated Marketing Bot
-date: 2024-10-01T08:25:33.146Z
-updated: 2024-10-03T08:22:24.347Z
+date: 2024-10-03T18:25:26.421Z
+updated: 2024-10-08T19:30:55.916Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659cd0b84f4316b6b432fb112c.jpg
@@ -42,10 +42,16 @@ Upon completion of necessary approvals, Alex Beregovsky will join ABBYY's Board 
 Marlin Equity Partners is a global investment firm with over $7.5 billion of capital under management. The firm focuses on providing corporate parents, shareholders and other stakeholders with tailored solutions that meet their business and liquidity needs. Marlin invests in businesses across multiple industries where its capital base, industry relationships and an extensive network of operational resources significantly strengthen a company’s outlook and enhance value. Since its inception, Marlin, through its group of funds and related companies, has made over 180 investments. The firm is headquartered in Los Angeles, California with an additional office in London. For more information, please visit [www.marlinequity.com](http://www.marlinequity.com/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,10 +61,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -66,10 +72,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -96,20 +102,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-lut-techniques-for-professional-color-grading-and-correction/"><u>[New] LUT Techniques for Professional Color Grading and Correction</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-transcoding-approaches-to-boost-zoom-videos/"><u>[New] Top Transcoding Approaches to Boost Zoom Videos</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oneplus-11r-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/executive-strategies-overcoming-obstacles-in-artificial-intelligence/"><u>Executive Strategies: Overcoming Obstacles in Artificial Intelligence</u></a></li>
-<li><a href="https://win-webster.techidaily.com/great-updates-from-southwest-airlines-whats-not-so-great-for-mr-gates-an-in-depth-analysis/"><u>Great Updates From Southwest Airlines: What's Not So Great for Mr. Gates? - An In-Depth Analysis</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-poco-m6-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Poco M6 5G Without PUK Codes</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-the-ultimate-toolkit-for-editors-magix-video-pro-x-review/"><u>In 2024, The Ultimate Toolkit for Editors Magix Video Pro X Review</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/precision-marketing-via-innovative-cookie-based-analytics-tools/"><u>Precision Marketing via Innovative Cookie-Based Analytics Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/swift-shots-on-iphone-time-lapse-recording-guide-for-2024/"><u>Swift Shots on iPhone Time-Lapse Recording Guide for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mastery-of-photo-date-annotation-methods/"><u>[New] Mastery of Photo Date Annotation Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-apple-writes-a-new-chapter-m1-pro-vs-m1-max-analysis/"><u>2024 Approved Apple' Writes a New Chapter M1 Pro Vs. M1 Max Analysis</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-p55t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel P55T Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-12-pro-max-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 12 Pro Max How to Bypass?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beijings-frost-touched-games-highlights-from-2022/"><u>Beijing's Frost-Touched Games, Highlights From 2022</u></a></li>
+<li><a href="https://apple-account.techidaily.com/everything-to-know-about-apple-id-password-requirements-for-iphone-15-pro-by-drfone-ios/"><u>Everything To Know About Apple ID Password Requirements For iPhone 15 Pro</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-online-wmv-to-avi-converter-how-to-transform-videos-without-cost-moveavi/"><u>Free Online WMV to AVI Converter: How to Transform Videos Without Cost - MoveAVi</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-windows-10-essentials-top-free-video-compressors/"><u>New 2024 Approved Windows 10 Essentials Top Free Video Compressors</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/preserving-literary-heritage-digitizing-tolstoys-works-with-abbyy-technology/"><u>Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-samsung-galaxy-xcover-6-pro-tactical-edition-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Samsung Galaxy XCover 6 Pro Tactical Edition Location By Mobile Number | Dr.fone</u></a></li>
 </ul></div>
 

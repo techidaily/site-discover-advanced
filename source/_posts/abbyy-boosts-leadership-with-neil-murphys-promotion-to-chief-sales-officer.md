@@ -1,7 +1,7 @@
 ---
 title: ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer
-date: 2024-09-29T04:48:14.340Z
-updated: 2024-10-03T08:28:47.501Z
+date: 2024-10-01T19:24:25.052Z
+updated: 2024-10-08T19:14:08.992Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg
@@ -38,10 +38,10 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -55,10 +55,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -66,10 +66,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,18 +95,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-how-asmrists-can-help-your-evening-routine/"><u>[New] 2024 Approved How ASMRists Can Help Your Evening Routine</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mastering-earnings-via-sponsored-youtube-videos/"><u>[Updated] Mastering Earnings via Sponsored YouTube Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ai-curated-list-the-most-advanced-and-highly-rated-power-inverters-for-this-year/"><u>AI-Curated List: The Most Advanced and Highly Rated Power Inverters for This Year</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-xiaomi-redmi-13c-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-itel-p55-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Itel P55 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-xiaomi-14-pro-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Xiaomi 14 Pro Phone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-industrys-choice-our-miniature-dvd-players-guide/"><u>In 2024, Industry's Choice Our Miniature DVD Players Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ki-gesteuerte-rechnungsverwaltung-die-zukunft-der-buchhaltung-mit-intelligenter-technologie/"><u>KI-Gesteuerte Rechnungsverwaltung - Die Zukunft Der Buchhaltung Mit Intelligenter Technologie</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-for-superior-website-analytics/"><u>Leverage the Power of Cookiebot for Superior Website Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-your-sites-potential-with-the-advanced-tracking-of-cookiebot-solutions/"><u>Leverage Your Site's Potential with the Advanced Tracking of Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mariko-maeda-takes-the-helm-at-abbyy-japan-with-vision-for-continued-growth-in-japanese-markets/"><u>Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/revitalize-your-laptops-charging-issues-with-these-straightforward-tips/"><u>Revitalize Your Laptop's Charging Issues with These Straightforward Tips</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/tips-to-increase-frame-rate-quickly-in-tainted-grail-conquest-for-a-better-gaming-experience/"><u>Tips to Increase Frame Rate Quickly in Tainted Grail: Conquest for a Better Gaming Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-essential-resources-for-crafting-eye-catching-youtube-ends/"><u>[New] 2024 Approved Essential Resources for Crafting Eye-Catching YouTube Ends</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-audio-interface-innovations-for-optimal-podcasting/"><u>[New] Audio Interface Innovations for Optimal Podcasting</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-selecting-the-prime-sky-vault-for-firms-for-2024/"><u>[Updated] Selecting the Prime Sky Vault for Firms for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y78t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y78t Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-fueled-solutions-enhancing-your-digital-experience/"><u>Cookiebot-Fueled Solutions: Enhancing Your Digital Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/customized-personalization-with-automated-marketing-bot/"><u>Customized Personalization with Automated Marketing Bot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-engagement-and-sales-using-smart-visitor-tracking-technology/"><u>Drive Engagement and Sales Using Smart Visitor Tracking Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-samsung-galaxy-a15-4g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Samsung Galaxy A15 4G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-savespace-pros-review-summary/"><u>In 2024, SaveSpace Pros Review Summary</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oneplus-nord-ce-3-lite-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any OnePlus Nord CE 3 Lite 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/pro-sniping-on-a-budget-try-these-affordable-pc-tools/"><u>Pro Sniping on a Budget? Try These Affordable PC Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-and-simple-discover-the-best-dav-to-avi-video-converter-apps-ranked-1-to-5/"><u>Quick and Simple: Discover the Best DAV-to-AVI Video Converter Apps Ranked #1 to #5</u></a></li>
 </ul></div>
 

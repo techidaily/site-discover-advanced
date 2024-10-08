@@ -1,7 +1,7 @@
 ---
 title: Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community
-date: 2024-10-02T05:30:39.248Z
-updated: 2024-10-03T04:48:09.026Z
+date: 2024-10-03T18:42:09.827Z
+updated: 2024-10-08T17:49:38.764Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb81dcbc464d7190885cdca32.jpg
@@ -105,26 +105,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-shoppers-ultimate-list-of-top-rated-webcams/"><u>[New] 2024 Approved Shopper’s Ultimate List of Top-Rated Webcams</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-muting-problem-solutions-for-obs-sound-capture-for-2024/"><u>[New] Muting Problem Solutions for OBS Sound Capture for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-obs-masterclass-for-successful-instagram-broadcasts/"><u>[Updated] In 2024, OBS Masterclass for Successful Instagram Broadcasts</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-depth-training-on-googles-advanced-speech-to-text-feature-for-2024/"><u>[Updated] In-Depth Training on Google's Advanced Speech to Text Feature for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-navigating-through-your-new-laptops-m1-max-clips/"><u>[Updated] Navigating Through Your New Laptop's M1 Max Clips</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-prime-strategies-for-high-quality-youtube-mp3mpeg/"><u>[Updated] Prime Strategies for High-Quality YouTube MP3/MPEG</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unboxing-essentials-selecting-audio-that-complements-videos/"><u>2024 Approved Unboxing Essentials Selecting Audio that Complements Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebooks-most-noteworthy-tweaks-for-todays-users/"><u>Facebook's Most Noteworthy Tweaks for Today’s Users</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-samsung-galaxy-xcover-7-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Samsung Galaxy XCover 7 Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-infusing-personality-with-custom-fonts-in-ae-workflows/"><u>[New] Infusing Personality with Custom Fonts in AE Workflows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-tools-simplifying-the-task-of-feedback-erasure-for-2024/"><u>[Updated] Efficient Tools Simplifying the Task of Feedback Erasure for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-nokia-g310-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Nokia G310 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebook-video-extravaganza-the-most-advanced-fire-browser-tools-updated-for-2024/"><u>Facebook Video Extravaganza The Most Advanced Fire-Browser Tools, Updated for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/from-windows-to-mac-your-ultimate-guide-for-taking-perfect-screenshots/"><u>From Windows to Mac: Your Ultimate Guide for Taking Perfect Screenshots</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratitude-archive-complete-collection-freepaid-for-2024/"><u>Gratitude Archive Complete Collection (Free/Paid) for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-dissecting-youtube-revenue-how-much-do-you-earning-from-adsense-per-kv/"><u>In 2024, Dissecting YouTube Revenue How Much Do You Earning From AdSense per KV?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-reno-8t-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Reno 8T 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO
-date: 2024-09-26T08:35:52.166Z
-updated: 2024-10-03T11:46:28.922Z
+date: 2024-10-03T18:51:08.207Z
+updated: 2024-10-08T17:34:21.079Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -49,27 +49,29 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/0-strategies-for-boosting-your-youtube-visibility/"><u>[New] 10 Strategies for Boosting Your YouTube Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-integration-customizing-web-interactions-for-you/"><u>Cookiebot Integration: Customizing Web Interactions for You!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-personalized-experience-optimize-your-sites-engagement/"><u>Cookiebot-Enabled Personalized Experience: Optimize Your Site's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Enabled Solutions: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-most-advanced-and-user-friendly-smart-speakers-of-2024/"><u>Exploring The Most Advanced and User-Friendly Smart Speakers of 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/how-to-capitalize-on-your-youtube-shorts-for-cash-flow/"><u>How to Capitalize on Your YouTube Shorts for Cash Flow</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/persistent-issues-with-age-of-empires-iv-stability-on-personal-computers-how-to-resolve/"><u>Persistent Issues With Age of Empires IV Stability on Personal Computers - How To Resolve</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-average-podcast-income-whats-the-payoff/"><u>[New] 2024 Approved Average Podcast Income What's the Payoff?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-step-by-step-screenshot-procedures-for-hp-devices/"><u>[Updated] 2024 Approved Step-by-Step Screenshot Procedures for HP Devices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-srt-shift-magic-subtitles-subc-conversion-guide/"><u>[Updated] SRT Shift Magic Subtitles (SUBC) Conversion Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-video-aspects-online/"><u>2024 Approved Mastering Video Aspects Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-samsung-galaxy-a23-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Samsung Galaxy A23 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/breaking-down-steam-user-id-location/"><u>Breaking Down Steam User ID Location</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-gps-and-cellular-a-comprehensive-guide-for-apple-watch-users/"><u>Choosing Between GPS and Cellular – A Comprehensive Guide for Apple Watch Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/leveraging-windows-11-and-intel-unison-for-smooth-phone-integration/"><u>Leveraging Windows 11 & Intel Unison for Smooth Phone Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-potential-virus-clues-in-windows-task-scheduling/"><u>Understanding Potential Virus Clues in Window's Task Scheduling</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

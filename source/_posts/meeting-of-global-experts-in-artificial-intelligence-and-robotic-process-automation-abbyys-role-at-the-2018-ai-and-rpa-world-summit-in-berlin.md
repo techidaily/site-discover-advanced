@@ -1,7 +1,7 @@
 ---
 title: "Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin"
-date: 2024-09-26T01:58:42.440Z
-updated: 2024-10-02T22:37:35.055Z
+date: 2024-10-05T18:58:20.956Z
+updated: 2024-10-08T17:44:18.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/289536a26b86dc5c26586097f9ebf58e81d35aa537c61d20d15b54d1edc660b4.jpg
@@ -76,24 +76,32 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-effective-ways-how-to-block-facebook-video-ads/"><u>[New] 2024 Approved Effective Ways | How to Block Facebook Video Ads?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-harmonizing-visuals-and-sound-in-instagram-videos-for-2024/"><u>[New] Harmonizing Visuals & Sound in Instagram Videos for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/complete-motion-survey-2023/"><u>Complete Motion Survey 2023</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
-<li><a href="https://driver-download.techidaily.com/direct-link-download-trustworthy-epson-perfection-v500-drivers-now/"><u>Direct Link: Download Trustworthy Epson Perfection V500 Drivers Now</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-accessibility-learn-how-to-insert-subtitles-into-your-vimeo-content-easily/"><u>Enhancing Accessibility: Learn How to Insert Subtitles Into Your Vimeo Content Easily</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/expert-tips-for-stable-server-connections-in-rainbow-six-siege/"><u>Expert Tips for Stable Server Connections in Rainbow Six Siege</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-13-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 13 without Backup | Stellar</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-12-mini-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock iPhone 12 mini Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photo-perfection-best-practices-for-integrating-frames-online/"><u>[New] Photo Perfection Best Practices for Integrating Frames Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-chart-your-course-to-youtube-riches-the-essential-500-threshold-for-2024/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-discover-the-premier-4k-cameras-of-today/"><u>[Updated] Discover the Premier 4K Cameras of Today</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-to-soundtrack-the-complete-conversion-manual/"><u>[Updated] Instagram to Soundtrack The Complete Conversion Manual</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-virtual-venue-verdict-which-streamer-prevails/"><u>2024 Approved Virtual Venue Verdict Which Streamer Prevails?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-conversion-tracking-with-the-help-of-cookiebot-your-ultimate-solution/"><u>Automated Conversion Tracking with the Help of Cookiebot - Your Ultimate Solution</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-websites-success-with-the-advanced-technology-of-cookiebot/"><u>Boost Your Website's Success with the Advanced Technology of Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-user-engagement/"><u>Cookiebot Driven Solutions: Enhance Your Site's User Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-performance-enhancing-your-sites-visibility-and-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Site's Visibility and User Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Site's Performance</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oneplus-ace-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-10-youtube-tips-for-teachers/"><u>In 2024, 10 YouTube Tips for Teachers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-inter-service-playlist-shuffling-with-ease/"><u>In 2024, Navigating Inter-Service Playlist Shuffling with Ease</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

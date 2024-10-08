@@ -1,7 +1,7 @@
 ---
 title: "The Evolution of Smartphone Scanners: IPhone X versus Xs - Insights From ABBYY's Latest Updates"
-date: 2024-09-26T21:06:14.643Z
-updated: 2024-10-02T18:27:26.263Z
+date: 2024-10-05T16:21:02.306Z
+updated: 2024-10-08T17:41:49.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f6c324fafe071963e5716ae7.jpg
@@ -83,6 +83,13 @@ The iPhone XS has an [IP Code](https://en.wikipedia.org/wiki/IP%5FCode) of IP68,
 
 The iPhone XS has a smaller battery capacity than the iPhone X, but it will last 30 minutes longer thanks to the new energy-efficient A12 Bionic chip.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tips: Galaxy S10 Rumours**
 
 The Samsung Galaxy S10, to be launched in the first quarter of 2019, is poised to be the main rival of the iPhone XS. Here’s what we may expect.
@@ -93,19 +100,6 @@ The Pro device may have a fingerprint reader integrated in its display, triple c
 
 ![galaxy s10 camera](https://static1.abbyy.com/abbyycommedia/26571/galaxy-10-camera.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Design-wise, we’re likely to get another Galaxy S9\. The screen is likely to be completely bezel-free. It remains to be seen whether Samsung will get rid of the notch, but this step seems quite logical, given the recent trends in smartphone design. Samsung may also start offering its flagship product in more colours than before.
 
 According to some reports, the new smartphone will have 6 or 8 GB RAM and 128 GB internal memory.
@@ -115,6 +109,13 @@ It is unlikely that the Korean manufacturer will ditch the support of memory car
 The S10 will launch with Android Pie on board. We must say that this latest Android version from Google is stable, fast, and very easy on the eye. By the same token, Samsung is known for its ability to make the best of Android on its devices.
 
 Of course, its all rumours at the moment, but one thing we can be certain of: after the controversial Galaxy S9, Samsung will make every effort not to disappoint. All we can do now is wait a couple of months until the official launch, when the specs and reviews will be available all over the Internet.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner Gets a Makeover**
 
@@ -130,16 +131,16 @@ Here’s how [FineScanner](http://qrs.ly/mg4z2wm) looks now:
 
 ![abbyy finescanner new design](https://static1.abbyy.com/abbyycommedia/26141/image-from-ios-2.jpg) ![abbyy finescanner recognize](https://static1.abbyy.com/abbyycommedia/26140/image-from-ios-4.jpg) ![abbyy finescanner scan and ocr](https://static1.abbyy.com/abbyycommedia/26572/image-from-ios-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Isn’t it beautiful?
 
 [Download or update](http://qrs.ly/mg4z2wm) your copy of FineScanner and tell us what you think about the new design in AppStore.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **App of the Week: Happy Glass**
 
@@ -151,35 +152,22 @@ Your job is to fill the glass with water, which isn’t easy because there are v
 
 ![games for iphone happy glass](https://static1.abbyy.com/abbyycommedia/26573/img_3689.jpg) ![play on iphone](https://static1.abbyy.com/abbyycommedia/26574/img_3688.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This game will give a jolt to your imagination, stimulate lateral thinking, and put your reactions to the test. Thumbs up from us!
 
 ![IMG_3687](https://static1.abbyy.com/abbyycommedia/26575/img_3687.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Available on [iOS](https://itunes.apple.com/app/id1425793208) and [Android](https://play.google.com/store/apps/details?id=com.game5mobile.lineandwater&hl).
 
 That’s all from us for today. Until next Monday! P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -245,18 +233,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-harmonic-highlights-the-right-song-for-your-ig-video/"><u>[Updated] 2024 Approved Harmonic Highlights The Right Song for Your IG Video</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-jokefactory-enjoy-and-create-online/"><u>[Updated] In 2024, JokeFactory Enjoy & Create Online</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-is-product-review-vlog-paid/"><u>[Updated] Is Product Review Vlog Paid</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-voice-changes-without-financial-investment/"><u>[Updated] The Ultimate Guide to Voice Changes Without Financial Investment</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/capture-your-inspiration-top-5-pinterest-videos-without-cost-for-2024/"><u>Capture Your Inspiration! Top 5 Pinterest Videos Without Cost for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-virtualdub-lookalikes-discover-similar-video-editing-software/"><u>New VirtualDub Lookalikes Discover Similar Video Editing Software</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-instructions-for-downloading-inshot-editing-software-on-pc/"><u>Step-by-Step Instructions for Downloading InShot Editing Software on PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-tutorial-converting-movies-tofrom-wmv-with-simple-techniques/"><u>Step-by-Step Tutorial: Converting Movies To/From WMV with Simple Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/success-story-overcoming-plex-avi-playback-challenges-with-easy-steps/"><u>Success Story: Overcoming Plex AVI Playback Challenges with Easy Steps!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/transforming-images-with-the-best-color-adjustment-guides/"><u>Transforming Images with the Best Color Adjustment Guides</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-snapshots-of-success-recording-your-switch-gaming/"><u>[New] In 2024, Snapshots of Success Recording Your Switch Gaming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pushing-boundaries-of-video-production-in-youtube-studio/"><u>[Updated] In 2024, Pushing Boundaries of Video Production in YouTube Studio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-decoding-instagrams-best-timing-practices/"><u>2024 Approved Decoding Instagram's Best Timing Practices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevate-your-chat-game-whatsapps-best-kept-secrets/"><u>2024 Approved Elevate Your Chat Game WhatsApp's Best-Kept Secrets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-tips-and-tricks-to-avoid-photo-crashes-on-windows-11/"><u>2024 Approved Tips & Tricks to Avoid Photo Crashes on Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-iphone-1n-plus-and-pro-max-find-out-the-key-differences/"><u>Choosing Between iPhone 1N Plus & Pro Max? Find Out the Key Differences!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-7-superior-ai-applications-for-effortless-presentations/"><u>Discover the 7 Superior AI Applications for Effortless Presentations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harmony-creations-synopsis-studio-25-examination-2-habits-for-2024/"><u>Harmony Creations Synopsis Studio 25 Examination, 2 Habits for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/mastering-quick-fixes-for-pcl-xl-errors/"><u>Mastering Quick Fixes for PCL XL Errors</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-transferring-and-converting-your-itunes-music-library-onto-a-compact-disc-using-windows/"><u>Ultimate Guide: Transferring and Converting Your iTunes Music Library Onto a Compact Disc Using Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-streaming-mkv-videos-flawlessly-with-windows-media-player/"><u>Ultimate Tutorial: Streaming MKV Videos Flawlessly with Windows Media Player</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-occasional-glitches-why-does-my-apps-update-feature-fail-at-times/"><u>Understanding Occasional Glitches: Why Does My App's Update Feature Fail at Times?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/web-windows-10-voice-recorder/"><u>Webミーティングの録音手引: Windows 10 Voice Recorder使用法</u></a></li>
 </ul></div>
 

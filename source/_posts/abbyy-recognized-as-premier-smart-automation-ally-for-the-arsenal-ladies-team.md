@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team
-date: 2024-09-27T07:16:49.299Z
-updated: 2024-10-02T16:09:29.835Z
+date: 2024-10-06T19:14:19.783Z
+updated: 2024-10-08T19:34:34.032Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9b9110ec4a61375e331a8801ee2c3323c1b29e5d640a76c9d9df4c625ff11a27.jpg
@@ -24,10 +24,10 @@ In the world of sports and innovation, certain partnerships exceed traditional b
 Since its inception in 1987, [Arsenal Women](https://www.arsenal.com/women)'s journey has been nothing short of extraordinary. With an impressive collection of 60 trophies, they are the [most successful women's team in the UK](https://www.arsenal.com/women/honours). Notably, they are the sole football club in the United Kingdom (UK) to secure a Champion's League victory. The team's achievements are an inspiration to aspiring athletes worldwide. Arsenal Women's current squad is a remarkable blend of talent, diversity, and experience, featuring players from eight different nationalities. Among them are renowned figures like Euro 2022-winning [captain Leah Williamson and Golden Boot winner Beth Mead](https://www.arsenal.com/women/players). Let's delve into the essence of this exciting partnership and what it means for both organizations.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Championing excellence on the pitch and in the office
@@ -37,10 +37,10 @@ The partnership between ABBYY and Arsenal Women holds significant promise for bo
 ![Juliet Slot and Ulf Persson](https://static1.abbyy.com/abbyycommedia/37795/ulf-x-juliet_654x700.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Ulf Persson, CEO of ABBYY (left) and Juliet Slot, Arsenal’s Chief Commercial Officer (right) announce ABBYY as the Official Intelligent Automation Partner of Arsenal Women F.C._
@@ -52,6 +52,13 @@ Similarly, Arsenal Women have redefined football with their innovative team-orie
 The ABBYY and Arsenal Women partnership is more than a strategic alliance; it's a connection built on shared values. Both organizations value progress, teamwork, and uphold a standard of excellence. This common ground has solidified the cultural fit between the two, enabling a strong foundation for collaboration.
 
 ![Arsenal Womens F.C.](https://static1.abbyy.com/abbyycommedia/37791/arsenal-womens_848x618.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 As we look ahead to this exciting partnership, the potential for positive change is immense. The ABBYY and Arsenal Women partnership is a platform to reach a rapidly growing women’s football fan base – according to the Financial Times two billion viewers tuned in to the FIFA Women’s World Cup 2023 - with messages of innovation, leadership, and empowerment. With a near four-fold increase in viewing hours of the Barclays FA Women’s Super League in 2021 and 2022, as well as two-thirds of football enthusiasts showing more interest in UK women’s football following the Euros, the potential for meaningful investment in the sport is undeniable.
 
@@ -65,25 +72,11 @@ Investment in women’s sports leagues, teams, and athletes — from organizatio
 
 The partnership with ABBYY and Arsenal Women highlights our commitment to supporting gender equity and equality, diversity, and inclusion – a powerful mission rooted in ABBYY’s history. ABBYY has been supporting female athletes for years through our sponsorship of PFU BlueCats volleyball team in Japan. Challenging the gender gap in the tech industry, we are proud of our above-industry-average representation of women in the workplace. Women at ABBYY represent over 35 percent of our workforce (compared to the tech industry average of 28 percent), and more than a third of our team leaders.![Arsenal Womens](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/let-get-real-abbyy-x-arsenal-women/Arsenal-Women-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **From the solutions we provide to how we lead our organization, ABBYY believes that everything we do should reflect positively on the world; now we are partnering with Arsenal Women to bring positive change both in the local communities and on a global level.** Not only do companies leading in diversity and inclusion initiatives see higher employee retention, productivity, and profitability, but diversity also fosters better ideas and increased innovation. As ABBYY and Arsenal Women join forces, the stage is set for an exciting journey that will undoubtedly leave a mark on both industries, inspiring individual, and organizations alike to aim higher and achieve more.
 
 Be a game changer with [ABBYY and Arsenal Women](https://tools.techidaily.com/abbyy/products/). To speak to an ABBYY representative, [contact us](https://tools.techidaily.com/abbyy/products/).
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Be a Game Changer with ABBYY
 
@@ -94,6 +87,13 @@ To get guidance on intelligent automation and learn more about how ABBYY can hel
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Customer Experience](https://tools.techidaily.com/abbyy/products/) [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
 ![Catherine Johnson](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/Autors-Headshots/catherinejohnson-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Catherine Johnson
 
@@ -164,16 +164,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-easy-recording-setups-for-lol-enthusiasts-3-ways/"><u>[New] In 2024, Easy Recording Setups for LOL Enthusiasts (3 Ways)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-youtube-potential-with-easy-techniques/"><u>[Updated] Unleash Your YouTube Potential with Easy Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-showcase-innovative-solutions-for-smart-data-entry-and-boosting-productivity-with-digitized-documents-march-14th-march-18th/"><u>ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-on-apple-iphone-12-mini-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons On Apple iPhone 12 mini? Find the Best Solution Here</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discover-top-10plus-platforms-for-remote-church-experience/"><u>Discover Top 10+ Platforms for Remote Church Experience</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-advice-resolving-unexpected-stoppage-issues-in-cod-mw3-mobile-application/"><u>Expert Advice: Resolving 'Unexpected Stoppage' Issues in COD MW3 Mobile Application</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-12-pro-max-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 12 Pro Max Apple ID and Apple Pay</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-crafting-soundscapes-with-online-echoes-integrating-digital-reverb-s-audio-mixing/"><u>New 2024 Approved Crafting Soundscapes with Online Echoes Integrating Digital Reverb S Audio Mixing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-walkthrough-the-process-of-deleting-content-from-your-youtube-channel/"><u>Ultimate Walkthrough: The Process of Deleting Content From Your YouTube Channel</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wonderfox-hd-video-converter-pro-factory-edition/"><u>WonderFox HD Video Converter Pro Factory Editionが正常にインストールされました。よろしくお願い致します!</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-hp-deskjet-d1360-printer-drivers-wont-install-in-windows-7-8-8110/"><u>[Resolved] HP Deskjet D1360 Printer Drivers Won’t Install in Windows 7, 8, 8.1,10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-virtual-decoration-google-vs-alternative-ar-tools-for-2024/"><u>[Updated] Virtual Decoration Google Vs. Alternative AR Tools for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-masterpieces-without-barriers-publicly-available-artwork/"><u>2024 Approved Masterpieces Without Barriers Publicly Available Artwork</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beyond-auto-smart-strategies-for-flawless-hue-harmonization-for-2024/"><u>Beyond Auto Smart Strategies for Flawless Hue Harmonization for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-through-advanced-cookiebot-integration/"><u>Enhanced User Experience Through Advanced Cookiebot Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-customer-onboarding-with-mobile-ocr-technology/"><u>Enhancing Customer Onboarding with Mobile OCR Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-digital-marketing-strategies-the-efficiency-of-cookiebot-technology/"><u>Enhancing Digital Marketing Strategies: The Efficiency of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-rpa-efficiency-using-all-encompassing-enterprise-workflow-analysis-tools/"><u>Enhancing RPA Efficiency Using All-Encompassing Enterprise Workflow Analysis Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-infinix-smart-7-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Infinix Smart 7 Is Unlocked</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-v27-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo V27</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-voice-changers-essentials-for-video-makers-for-2024/"><u>Prime Voice Changers Essentials for Video Makers for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revive-faded-images-effortlessly-using-premier-photo-enhancement-tools/"><u>Revive Faded Images Effortlessly Using Premier Photo Enhancement Tools</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-modern-shoppers-guide-to-360-degree-imaging-tech-for-2024/"><u>The Modern Shopper's Guide to 360-Degree Imaging Tech for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-playbook-to-youtube-hub-mastery/"><u>The Ultimate Playbook to YouTube Hub Mastery</u></a></li>
 </ul></div>
 

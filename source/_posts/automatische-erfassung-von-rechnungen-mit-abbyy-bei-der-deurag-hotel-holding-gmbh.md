@@ -1,7 +1,7 @@
 ---
 title: Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH
-date: 2024-09-28T21:58:02.951Z
-updated: 2024-10-03T09:22:11.975Z
+date: 2024-10-01T18:26:06.165Z
+updated: 2024-10-08T18:26:09.091Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a055c6f3927bcc9e40cc66cb.jpg
@@ -19,13 +19,6 @@ Insurance | Accounts Payable Automation
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## So ist’s Recht! ABBYY FlexiCapture ermöglicht die automatisierte Erfassung von Rechnungen der DEURAG
 
 Versicherungen | Kreditorenbuchhaltung 
@@ -33,15 +26,22 @@ Versicherungen | Kreditorenbuchhaltung
 ![](https://static1.abbyy.com/abbyycommedia/15532/malaysia-insurarnce1-pic1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
 
 ![Deutsche Rechtsschutz-Versicherung AG](https://static2.abbyy.com/abbyycommedia/5314/deurag-logo_155.gif) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name        | Deutsche Rechtsschutz-Versicherung AG |
 | ----------- | ------------------------------------- |
@@ -101,10 +101,10 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -112,10 +112,10 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Versicherungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -153,22 +153,17 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-symphony-of-screenshots-incorinas-music-into-social-media/"><u>[New] In 2024, Symphony of Screenshots Incorinas Music Into Social Media</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-youtube-to-igtv-top-methods-unveiled/"><u>[Updated] 2024 Approved From YouTube to IGTV Top Methods Unveiled</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-glamour-unleashed-comprehensive-youtube-guide-to-elegance-for-2024/"><u>[Updated] Glamour Unleashed Comprehensive YouTube Guide to Elegance for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-swift-shutter-speed-iphone-tricks-for-blur-magic/"><u>2024 Approved Swift Shutter Speed IPhone Tricks for Blur Magic</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/beat-the-standard-a-complete-tutorial-for-adding-ringtones-and-sounds-to-android-for-2024/"><u>Beat the Standard A Complete Tutorial for Adding Ringtones & Sounds to Android for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-to-fix-unresponsive-letters-in-microsofts-new-os-windows-11-keyboard-issues/"><u>Guide to Fix Unresponsive Letters in Microsoft's New OS, Windows 11 Keyboard Issues</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-honor-90-gt-frp-by-drfone-android/"><u>How Can We Bypass Honor 90 GT FRP?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Agni 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-boost-your-channels-subscribers-on-a-shoestring-budget/"><u>In 2024, Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enhancing-youtube-content-with-free-music-sources-for-2024/"><u>[New] Enhancing YouTube Content with Free Music Sources for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>[New] In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweet-trailblazers-the-trending-threads-showdown-for-2024/"><u>[New] Tweet Trailblazers The Trending Threads Showdown for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-premier-music-broadcasts-online/"><u>2024 Approved Premier Music Broadcasts Online</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-cyberpunk-2077-dark-display-issue-a-comprehensive-guide/"><u>Fixing the Cyberpunk 2077 Dark Display Issue: A Comprehensive Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-wsreset-troubleshooting-in-windows-environments/"><u>Mastering WSReset Troubleshooting in Windows Environments</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-best-voice-changer-apps-for-iphone-and-android/"><u>Updated In 2024, Best Voice Changer Apps for iPhone and Android</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

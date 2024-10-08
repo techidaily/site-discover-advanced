@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-09-26T02:28:17.305Z
-updated: 2024-10-03T03:35:15.124Z
+date: 2024-10-07T16:49:22.443Z
+updated: 2024-10-08T18:42:09.357Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -66,25 +66,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-leap-from-youtube-to-dailymotion-with-ease/"><u>[New] 2024 Approved Leap From YouTube to Dailymotion with Ease</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-step-by-step-techniques-for-crafting-breathtakingly-long-lasting-time-movies-using-photo-apps-and-online-services/"><u>[New] 2024 Approved Step by Step Techniques for Crafting Breathtakingly Long Lasting Time Movies Using Photo Apps & Online Services</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-conquering-chrome-the-complete-tiktok-video-upload-for-2024/"><u>[Updated] Conquering Chrome The Complete TikTok Video Upload for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-innovative-approaches-to-customizing-your-tiktok-videos-for-2024/"><u>[Updated] Innovative Approaches to Customizing Your TikTok Videos for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/diagnosing-and-restoring-function-to-a-samsung-blu-ray-disc-player/"><u>Diagnosing and Restoring Function to a Samsung Blu-Ray Disc Player</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/enhance-your-online-presence-with-manycams-virtual-webcam-technology-and-live-broadcast-tools/"><u>Enhance Your Online Presence with ManyCam's Virtual Webcam Technology and Live Broadcast Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-accessibility-learn-how-to-insert-subtitles-into-your-vimeo-content-easily/"><u>Enhancing Accessibility: Learn How to Insert Subtitles Into Your Vimeo Content Easily</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exclusive-discounts-on-wonderfox-pro-hd-media-processor-factory-edition-advanced-video-conversion-technology/"><u>Exclusive Discounts on WonderFox Pro HD Media Processor Factory Edition - Advanced Video Conversion Technology</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/streaming-software-spectacle-choosing-between-virusmix-and-castpro-for-2024/"><u>Streaming Software Spectacle Choosing Between VirusMix and CastPro for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-ultimate-list-15-complimentary-and-bootable-anti-virus-systems-we-suggest/"><u>Unveiling the Ultimate List: 15 Complimentary and Bootable Anti-Virus Systems We Suggest</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-capturing-panoramic-shots-iphone-guide/"><u>[Updated] Capturing Panoramic Shots IPhone Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-mkv-movies-content-on-xiaomi-redmi-note-12t-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-gt-neo-5-se-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme GT Neo 5 SE</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-guide-overcoming-discord-stream-interruptions-for-smooth-gameplay-sharing/"><u>Step-by-Step Guide: Overcoming Discord Stream Interruptions for Smooth Gameplay Sharing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-solutions-preventing-discord-app-crashes-for-smooth-gaming/"><u>Step-by-Step Solutions: Preventing Discord App Crashes for Smooth Gaming</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Rechnungsautomation Durch ABBYY Software in DEURAG AG's Prozessen
-date: 2024-09-27T00:00:43.094Z
-updated: 2024-10-03T00:00:50.163Z
+date: 2024-10-03T18:29:06.710Z
+updated: 2024-10-08T18:52:09.286Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bcacb4dbb73e923d456dfdfac8.jpg
@@ -24,6 +24,19 @@ Insurance | Accounts Payable Automation
 Versicherungen | Kreditorenbuchhaltung 
 
 ![](https://static1.abbyy.com/abbyycommedia/15532/malaysia-insurarnce1-pic1.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Über den Kunden
 
@@ -87,17 +100,6 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-[Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
-
-[![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Versicherungen](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
   <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
@@ -106,14 +108,24 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
-[![cs-norton-360x162](https://static5.abbyy.com/abbyycommedia/14890/cs-norton-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
+[![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Versicherungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
+
+[![cs-norton-360x162](https://static5.abbyy.com/abbyycommedia/14890/cs-norton-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
 
@@ -126,10 +138,10 @@ Teilen  True ?  : ""
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -153,17 +165,24 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-comprehensive-study-hero4-black-mechanics/"><u>[New] Comprehensive Study Hero4 Black Mechanics</u></a></li>
-<li><a href="https://win-dash.techidaily.com/bypass-extratorrent-blocks-with-these-proxy-solutions-and-discover-top-torrent-sites-for-unrestricted-downloads/"><u>Bypass ExtraTorrent Blocks with These Proxy Solutions & Discover Top Torrent Sites for Unrestricted Downloads</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-top-hd-movies-and-tv-shows-for-free-quick-secure-streamable-video-downloader/"><u>Download Top HD Movies & TV Shows for Free – Quick, Secure, Streamable Video Downloader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-guide-how-to-download-and-watch-ted-talks/"><u>Easy Guide: How to Download and Watch TED Talks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-to-watch-vob-movies-on-an-ipad-the-ultimate-tutorial/"><u>Easy Methods to Watch VOB Movies on an iPad – The Ultimate Tutorial</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-techniques-for-stitching-images-into-a-cohesive-video/"><u>Easy Techniques for Stitching Images Into a Cohesive Video</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhanced-visual-experience-in-the-iconic-demons-souls-an-in-depth-review/"><u>Enhanced Visual Experience in the Iconic Demon’s Souls – An In-Depth Review</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/get-ready-to-be-amazed-the-best-4k-video-samples-around-for-2024/"><u>Get Ready to Be Amazed The Best 4K Video Samples Around for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/guida-rapido-a-comprimere-e-condividere-grandi-file-video-su-whatsapp-senza-perdere-qualita-utilizzando-winxdvd/"><u>Guida Rapido a Comprimere E Condividere Grandi File Video Su WhatsApp Senza Perdere Qualità Utilizzando WinXDVD</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-complete-how-to-for-mac-obs-plus-streamlabs-integration/"><u>In 2024, The Complete How-To for Mac OBS + Streamlabs Integration</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-android-smartwatch-applications/"><u>Top Rated Android Smartwatch Applications</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/vdsu-screen-reader-report-full-insight/"><u>VDSU Screen Reader Report Full Insight</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-prime-streamers-selection-the-best-websites-for-2024/"><u>[Updated] Prime Streamers' Selection The Best Websites for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/access-the-entire-blueprint-for-next-gen-pcie-version-7-progressing-towards-full-launch/"><u>Access the Entire Blueprint for Next-Gen PCIe Version 7 – Progressing Towards Full Launch</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eliminating-dark-mode-black-screen-post-update/"><u>Eliminating Dark Mode BLACK SCREEN Post Update</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gaomon-s620-drivers-installation-made-simple/"><u>Gaomon S620 Drivers Installation Made Simple</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/get-your-factory-pro-for-ipod-videos-securely-guaranteed-safe-purchase-today/"><u>Get Your Factory Pro for iPod Videos Securely – Guaranteed Safe Purchase Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guide-creating-videos-from-audio-clips-perfectly-tailored-for-your-youtube-channel/"><u>Guide: Creating Videos From Audio Clips Perfectly Tailored for Your YouTube Channel</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-oppo-f25-pro-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Oppo F25 Pro 5G</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-choose-the-perfect-gaming-console-a-guide-for-buyers/"><u>How to Choose the Perfect Gaming Console? A Guide for Buyers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-final-cut-pro-x-essential-image-cropping-techniques/"><u>New In 2024, Final Cut Pro X Essential Image Cropping Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pcyoutubedvd/"><u>PCでYouTube映像をDVDに保存するためのガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-combining-multiple-mp4-clips-on-your-windows-11-pc/"><u>Step-by-Step: Combining Multiple MP4 Clips on Your Windows 11 PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-troubleshooting-guide-solving-connectivity-issues-with-your-iphone-and-airpods/"><u>Ultimate Troubleshooting Guide: Solving Connectivity Issues with Your iPhone and AirPods</u></a></li>
+<li><a href="https://common-error.techidaily.com/usb-device-not-recognized-keeps-popping-up-solved/"><u>USB Device Not Recognized Keeps Popping Up [SOLVED]</u></a></li>
 </ul></div>
 

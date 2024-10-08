@@ -1,7 +1,7 @@
 ---
 title: Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board
-date: 2024-09-27T04:55:02.522Z
-updated: 2024-10-03T05:17:10.177Z
+date: 2024-10-02T17:47:18.984Z
+updated: 2024-10-08T16:53:03.014Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ca1823a541bb8f1b1b4e3f36dc533291122ea53e71344224f2ca3a62defe8ec.jpg
@@ -22,10 +22,10 @@ Robert has over 40 years of experience as an executive in the technology industr
 Robert holds a Master’s degree with honors in Physics and Philosophy from Oxford University.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -47,15 +47,22 @@ Robert holds a Master’s degree with honors in Physics and Philosophy from Oxfo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-analyzing-whether-youtube-premium-is-right-for-you/"><u>[New] 2024 Approved Analyzing Whether YouTube Premium Is Right for You</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-poco-f5-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Poco F5 5G? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/budget-saving-stratospheric-storage-for-heavy-dumps-for-2024/"><u>Budget-Saving Stratospheric Storage for Heavy Dumps for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-overcome-anthems-continuous-boot-loop-dilemma-a-complete-guide/"><u>How to Overcome Anthem’s Continuous Boot Loop Dilemma - A Complete Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/phishing-proof-your-social-life-on-facebook/"><u>Phishing-Proof Your Social Life on Facebook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-iphone-14-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On iPhone 14 Making It Possible</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-perfecting-the-closure-a-practical-guide-to-vimeos-end-credits/"><u>[Updated] 2024 Approved Perfecting the Closure A Practical Guide to Vimeo's End Credits</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guide-to-finding-clean-high-quality-images/"><u>2024 Approved Guide to Finding Clean, High-Quality Images</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/elevate-your-gaming-experience-the-ultimate-review-of-the-id-cooling-frozn-a620-pro-ses-unparalleled-value-and-quality/"><u>Elevate Your Gaming Experience - The Ultimate Review of the ID-Cooling Frozn A620 Pro SE's Unparalleled Value and Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/erweiterter-customer-service-von-moore-blatch-optimierung-durch-posteingangslosungen/"><u>Erweiterter Customer Service Von Moore Blatch: Optimierung Durch Posteingangslösungen</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-meizu-21-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Meizu 21 Phones with/without a PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-15-pro-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 15 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-tecno-camon-20-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Tecno Camon 20 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simple-steps-to-update-lenovo-ideapad-u310/"><u>Simple Steps to Update Lenovo Ideapad U310</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-webm-to-mp4-converter-roundup-top-10-picks/"><u>Updated In 2024, WebM to MP4 Converter Roundup Top 10 Picks</u></a></li>
 </ul></div>
 

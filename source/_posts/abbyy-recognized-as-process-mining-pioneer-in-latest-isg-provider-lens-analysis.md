@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis
-date: 2024-10-01T12:46:20.485Z
-updated: 2024-10-02T18:19:39.528Z
+date: 2024-10-06T19:13:57.073Z
+updated: 2024-10-08T19:03:18.761Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae42c21363a9149298cc2eac3.jpg
@@ -15,39 +15,38 @@ Report
 
 ![](https://static1.abbyy.com/abbyycommedia/35252/146-ia-solutionsandservices-pdandm-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY named a leader of process mining
 
 The 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services report placed ABBYY in a leading position for the process mining market.
 
 **ABBYY’s process mining platform, ABBYY Timeline, features advanced task and process mining technology. Using the latest artificial intelligence (AI), it enables businesses to automatically build an interactive digital twin of their processes, analyze them in real time to identify bottlenecks, and predict future outcomes to facilitate decision-making of technology investments.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Download it now!
 
 **![Quadrant Knowledge Solutions SPARK Matrix : Process Mining 2021](https://static1.abbyy.com/abbyycommedia/35080/process-discovery-and-mining.png)**
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ISG Provider Lens™ quadrant focuses on providers that offer proprietary software platforms, tools and associated services to help clients automatically discover, monitor and improve real-time processes from event logs and user interactions.
 
 Process mining is the key to proving automation opportunities and benefits. Use of [process mining](https://tools.techidaily.com/abbyy/products/) solutions is not only aimed at eliminating inefficiencies in business operations and paving the way for reduced cost, but also improving workforce productivity and enhancing customer experience.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -55,10 +54,10 @@ Process mining is the key to proving automation opportunities and benefits. Use 
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/analystreport-process-mining-isg-provider-lens-en.pdf "Read the report") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You migt also be interested in...
@@ -66,6 +65,13 @@ Process mining is the key to proving automation opportunities and benefits. Use 
 [![NelsonHall Process Discovery and Process Mining NEAT Evaluation 2021](https://static1.abbyy.com/abbyycommedia/34916/136-nelsonhall-2021-en-360x232.jpg) NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment See report](https://digital.abbyy.com/hubfs/documents/content/report-process-discovery-and-mining-evaluation-nelsonhall-2021-en.pdf "NelsonHall names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment")[![ABBYY Timeline Process Mining](https://static4.abbyy.com/abbyycommedia/31769/02-timeline-video-2021.jpg) ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform Learn more](https://www.abbyy.com/timeline/ "ABBYY Timeline: a Cloud-Based, AI-Driven Process Mining Platform")[![Data Transformation in Process Mining | ABBYY Blog](https://static3.abbyy.com/abbyycommedia/33166/colleagues-whiteboarding.jpg) The Importance of Data Transformation in Process Mining and Discovery Read article](https://www.abbyy.com/blog/data-transformation-in-process-mining-and-discovery/ "The Importance of Data Transformation in Process Mining and Discovery") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -136,18 +142,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-navigating-twitch-recording-a-users-playbook/"><u>[New] 2024 Approved Navigating Twitch Recording A User's Playbook</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-how-to-see-who-unfollowed-you-on-instagram/"><u>[New] How to See Who Unfollowed You On Instagram</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-crafting-seamless-audiovisual-mixes-in-audacity/"><u>[Updated] Crafting Seamless Audiovisual Mixes in Audacity</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-how-to-save-skype-calls-on-windows-and-os-x/"><u>[Updated] In 2024, How to Save Skype Calls on Windows and OS X</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-quick-start-zooming-into-success-with-win11/"><u>2024 Approved Quick Start Zooming Into Success with Win11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-customization-enhancing-your-digital-footprint/"><u>Cookiebot-Driven Customization: Enhancing Your Digital Footprint</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enhance-your-websites-user-experience-with-leading-traffic-analysis-tools/"><u>Cookiebot-Enhanced: Enhance Your Website's User Experience with Leading Traffic Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/executive-strategies-overcoming-obstacles-in-artificial-intelligence/"><u>Executive Strategies: Overcoming Obstacles in Artificial Intelligence</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-chime-into-chats-whatsapp-status-soundtracks/"><u>In 2024, Chime Into Chats WhatsApp Status Soundtracks</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unbeatable-free-flv-video-editing-tools/"><u>New In 2024, Unbeatable Free FLV Video Editing Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/precision-marketing-via-innovative-cookie-based-analytics-tools/"><u>Precision Marketing via Innovative Cookie-Based Analytics Tools</u></a></li>
-<li><a href="https://driver-install.techidaily.com/swift-software-refreshes-on-lenovo-z50-70/"><u>Swift Software Refreshes on Lenovo Z50-70</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-a-comprehensible-approach-to-adding-dates-on-youtube-videos/"><u>[New] 2024 Approved A Comprehensible Approach to Adding Dates on YouTube Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-8-best-zombie-games/"><u>[New] 2024 Approved The 8 Best Zombie Games</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mp3-to-youtube-converter-upload-mp3-to-youtube/"><u>[Updated] MP3 to YouTube Converter Upload MP3 to YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-windows-11-mov-to-avi-conversion-tutorial/"><u>[Updated] Windows 11 MOV to AVI Conversion Tutorial</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723001656004-gta-not-working-heres-how-to-get-your-online-adventure-back-on-track/"><u>GTA nOt wOrkIng? Here's How to Get Your Online Adventure Back on Track!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-enrich-social-media-content-with-auto-generated-speech/"><u>In 2024, How to Enrich Social Media Content with Auto-Generated Speech</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/solutions-to-mitigate-vibrational-jello-in-uav-recordings/"><u>Solutions to Mitigate Vibrational Jello in UAV Recordings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/universal-chatgpt-open-doors-worldwide-communication/"><u>Universal ChatGPT: Open Doors, Worldwide Communication</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-linux-on-a-chromebook-the-ultimate-setup-tutorial/"><u>Updated Linux on a Chromebook The Ultimate Setup Tutorial</u></a></li>
 </ul></div>
 

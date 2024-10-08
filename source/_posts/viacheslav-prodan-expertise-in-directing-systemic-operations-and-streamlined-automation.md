@@ -1,7 +1,7 @@
 ---
 title: "Viacheslav Prodan: Expertise in Directing Systemic Operations & Streamlined Automation"
-date: 2024-09-27T00:50:24.870Z
-updated: 2024-10-02T18:46:11.045Z
+date: 2024-10-03T17:39:07.392Z
+updated: 2024-10-08T16:31:12.849Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/603cef112c71acaaa3fdccdd6f7a956de3ad09701fee843146114a343a411d66.jpg
@@ -33,6 +33,13 @@ My career at ABBYY began five years ago in 2018, when I became Team Leader of th
 
 My main role now is in the automation and optimization of processes and systems in our company. This requires meetings with people from different teams and departments. Also, I always need to have a complete picture of how everything works in the company so that changes do not affect the processes of other teams.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What does a typical day look like for you at ABBYY?
 
 Every day I wake up with thoughts of ‘what else can be done better’ and fall asleep with thoughts of what I managed to achieve.
@@ -41,22 +48,22 @@ With a free schedule, my morning starts with deciding where I will work today—
 
 ![ABBYY Customer Excellence team](https://static1.abbyy.com/abbyycommedia/36641/abbyy-team.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What keeps you going, and what do you enjoy the most in your role, any highlights?
 
 I can honestly say that I love what I do and have confidence in my own abilities to do a great job. It’s very fulfilling to see the results of our work and helping to improve the lives of employees around the world. I am also grateful for the support of my colleagues and manager. I’m certainly living by the phrase: “Do what you love, and you’ll never work another day in your life.”
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What was your previous experience before ABBYY?
 
@@ -67,10 +74,10 @@ I was head of technical support at the largest private logistics company in Ukra
 Sometimes you need to take a step back and look at what you're doing to determine if everything is right. Self-analysis, the desire to do something for people, and not be afraid to voice the most daring proposals are key attributes. And most importantly, enjoy what you do and how you do it. This is what I expect from an employee on my team.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How do you spend your free time?
@@ -78,6 +85,13 @@ Sometimes you need to take a step back and look at what you're doing to determin
 In recent years, I have been trying to spend more time in nature and have been camping with friends. It’s great to put up a tent in the woods and escape. I also like long drives exploring new places. For me, the drive itself and being on the road is a separate pleasure and adventure in itself, no matter what the traffic! My dream is to make a road trip in my car across Europe and see many different countries and landscapes.
 
 ![camping](https://static1.abbyy.com/abbyycommedia/36643/camping-abbyy-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When I’m not taking trips or camping breaks, I love to play board games with friends. I’m also guilty of spending hours online just looking for information about new technologies or breakthroughs in IT (information technology) or what tech companies are doing. I have a real thirst for tech news.
 
@@ -88,10 +102,10 @@ I would like people to have the opportunity to do what they want and what they e
 ![Slava Prodan ABBYY](https://static1.abbyy.com/abbyycommedia/36640/slava-prodan-abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What’s your pet peeve?
@@ -102,25 +116,11 @@ People who don’t learn from their mistakes. This is important so that you can 
 
 The “Intouchables” movie—it's an incredible story.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
 [See all open positions](https://boards.eu.greenhouse.io/abbyy/?itm%5Fsource=corpblog)
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -185,19 +185,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>[New] A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-exclusive-online-cam-dance-duels-for-2024/"><u>[New] Exclusive Online Cam Dance Duels for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>[New] Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-the-expert-guide-to-swift-fb-profiling/"><u>[New] The Expert Guide to Swift FB Profiling</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-battle-royale-queens-top-10-female-youtubers/"><u>[Updated] Battle Royale Queens Top 10 Female YouTubers</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-youtubes-secrets-transcribe-for-free-and-efficiently/"><u>2024 Approved Unlock YouTube's Secrets Transcribe for Free and Efficiently</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-realme-10t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-script-to-screen-a-kids-journey-in-movie-making/"><u>In 2024, From Script to Screen A Kids Journey in Movie Making</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/simple-chatgpt-versus-browsing-enhanced-gpt-functions/"><u>Simple ChatGPT Versus Browsing-Enhanced GPT Functions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-ranked-avcd-to-digital-video-format-translator-software-for-windows-11-users-2024-edition/"><u>Top-Ranked AVCd to Digital Video Format Translator Software for Windows 11 Users, 2024 Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/tsts/"><u>TSファイルの効率的な変換技術：TS動画再エンコード手順解説</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-convert-videos-for-playstation-portable-psp-models-psp-20003000gops3/"><u>Ultimate Guide: Convert Videos for PlayStation Portable (PSP) Models - PSP 2000/3000/Go/PS3</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-finding-the-ideal-video-shrinker-app-for-your-pc-in-windows/"><u>Ultimate Guide: Finding the Ideal Video Shrinker App for Your PC in Windows</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-how-to-use-nvidia-geforce-experience-for-easy-screen-recording-with-shadowplay-feature/"><u>Ultimate Tutorial: How to Use Nvidia GeForce Experience for Easy Screen Recording with ShadowPlay Feature</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pushing-the-boundaries-in-depth-review-of-benq-sw320s-4k-display-for-2024/"><u>[New] Pushing the Boundaries In-Depth Review of BenQ SW320's 4K Display for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-audio-liberation-from-youtube-three-safe-methods/"><u>[Updated] In 2024, Audio Liberation From YouTube Three Safe Methods</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boosting-sap-bot-capabilities-through-abbyys-advanced-content-analytics/"><u>Boosting SAP Bot Capabilities Through ABBYY's Advanced Content Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/capitalizing-on-growth-streamline-revenue-management-using-abbyy-solutions/"><u>Capitalizing on Growth: Streamline Revenue Management Using ABBYY Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/changer-la-maniere-de-traiter-les-documents-avec-doxio-et-abbyy-une-revolution-dans-le-gestionnaire-papier/"><u>Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Personalization: Enhance User Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-infinix-hot-40-pro-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Infinix Hot 40 Pro Phone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-steadicams-to-elevate-uav-video-production-quality/"><u>In 2024, Prime Steadicams to Elevate UAV Video Production Quality</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-the-art-of-rectifying-6-common-gpt-errors/"><u>Mastering the Art of Rectifying 6 Common GPT Errors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-5-gpt-powered-strategies-to-streamline-routine-human-resources-duties/"><u>Top 5 GPT-Powered Strategies to Streamline Routine Human Resources Duties</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021
-date: 2024-09-28T10:45:59.904Z
-updated: 2024-10-03T06:59:26.571Z
+date: 2024-10-06T16:20:01.785Z
+updated: 2024-10-08T17:06:05.676Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -42,10 +42,16 @@ Den vollständigen Bericht über ISG Provider Lens™ Intelligent Automation - S
 Den vollständigen Bericht zur Quadrant Knowledge Solutions SPARK Matrix for IDP 2021 finden Sie unter: <https://www.abbyy.com/resources/report/intelligent-document-processing-quadrant-knowledge-solutions/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -55,10 +61,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -66,10 +72,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,24 +101,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-optimizing-screen-captures-expert-techniques-for-hp-laptops/"><u>[New] In 2024, Optimizing Screen Captures Expert Techniques for HP Laptops</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamlined-sounds-iphones-efficient-podcasting/"><u>[New] Streamlined Sounds IPhone's Efficient Podcasting</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-capturing-the-immersive-world-tips-for-recording-vr-games/"><u>[Updated] 2024 Approved Capturing the Immersive World Tips for Recording VR Games</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-audio-harmony-mastering-the-cut-and-switch/"><u>[Updated] Audio Harmony Mastering the Cut and Switch</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-capturing-the-essence-cinematic-techniques-at-their-best/"><u>[Updated] Capturing the Essence Cinematic Techniques at Their Best</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Personalization: Enhance User Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-websites-performance-with-cutting-edge-analytics/"><u>Cookiebot-Enabled: Boost Your Website's Performance with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-fueled-solutions-enhancing-your-digital-experience/"><u>Cookiebot-Fueled Solutions: Enhancing Your Digital Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-personalization-with-automated-marketing-bot/"><u>Customized Personalization with Automated Marketing Bot</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discover-how-discreet-and-cost-effective-the-rexing-v1-dash-cam-can-be-in-this-comprehensive-review/"><u>Discover How Discreet and Cost-Effective the Rexing V1 Dash Cam Can Be in This Comprehensive Review</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-and-sales-using-smart-visitor-tracking-technology/"><u>Drive Engagement and Sales Using Smart Visitor Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guia-completo-como-converter-sua-colecao-vhs-em-midia-digital-com-ferramentas-e-softwares-modernos/"><u>Guia Completo: Como Converter Sua Coleção VHS Em Mídia Digital Com Ferramentas E Softwares Modernos</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-dive-deep-into-high-quality-video-capture-technology/"><u>In 2024, Dive Deep Into High-Quality Video Capture Technology</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-honor-magic-6-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Honor Magic 6 Pro FRP</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-asmr-explained-why-it-might-be-good-for-you/"><u>[New] ASMR Explained Why It Might Be Good For You</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-moviegenius-for-windows-8/"><u>[New] MovieGenius for Windows 8</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-revolutionizing-gift-reveal-innovative-ideas-for-2024/"><u>[New] Revolutionizing Gift Reveal Innovative Ideas for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-anonymizing-videos-tips-for-keeping-personal-data-hidden/"><u>[Updated] Anonymizing Videos Tips for Keeping Personal Data Hidden</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-discover-the-top-free-platforms-for-youtube-ops/"><u>2024 Approved Discover the Top Free Platforms for YouTube Ops</u></a></li>
+<li><a href="https://win11.techidaily.com/curing-file-writing-restrictions-in-windows-1011/"><u>Curing File Writing Restrictions in Windows 10/11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deploying-ai-agents-with-agentgpt-a-step-by-step-guide-from-your-web-browser/"><u>Deploying AI Agents with AgentGPT: A Step-by-Step Guide From Your Web Browser</u></a></li>
+<li><a href="https://video-capture.techidaily.com/join-the-journey-to-a-calmer-mind-games-for-2024/"><u>Join the Journey to a Calmer Mind (Games) for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
 </ul></div>
 

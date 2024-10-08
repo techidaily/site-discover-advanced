@@ -1,7 +1,7 @@
 ---
 title: Drive Engagement and Sales Using Smart Visitor Tracking Technology
-date: 2024-09-27T05:56:00.461Z
-updated: 2024-10-03T11:09:40.072Z
+date: 2024-10-01T19:28:42.063Z
+updated: 2024-10-08T17:30:56.419Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e86352ca57ab485a51d50b112ab.png
@@ -20,10 +20,10 @@ Wholesale & Retail Trade | Accounts Payable Automation
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY Digital Intelligence optimiert den automatisierten Rechnungsein­gang der Bünting Unternehmens­gruppe
@@ -32,9 +32,29 @@ Groß- und Einzelhandel | Automatisierung der Kreditorenbuchhaltung
 
 ![](https://static1.abbyy.com/abbyycommedia/31808/01-bunting-cover-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Über den Kunden
 
 ![Bünting Gruppe](https://static4.abbyy.com/abbyycommedia/31810/01c-bunting-logo-158x52.jpg) 
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name      | Bünting Gruppe                               |
 | --------- | -------------------------------------------- |
@@ -87,33 +107,19 @@ _→ Mitarbeiterressourcen werden somit frei und können für strategischere Auf
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Content Intelligence](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [Content Intelligence](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31809/01d-bunting-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") [PDF-Version](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static5.abbyy.com/abbyycommedia/31764/buenting-customer-story-de.pdf "PDF-Version") 
@@ -143,16 +149,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-secure-and-enhance-slack-communications-with-top-10-free-audio-apps/"><u>[Updated] In 2024, Secure & Enhance Slack Communications with Top 10 Free Audio Apps</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028181396-m4amp3/"><u>「一度に複数のフォルダーM4A音楽コレクションをMP3に並行して再エンコードする方法」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027179271-mp3/"><u>「ツイキャスから高品質のMP3ファイルへ変換ガイド」</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/decoding-the-turing-test-and-envisioning-a-winner/"><u>Decoding the Turing Test & Envisioning a Winner</u></a></li>
-<li><a href="https://program-issues.techidaily.com/diablo-immortal-pc-release-delayed-latest-updates-and-expected-launch-dates/"><u>Diablo Immortal PC Release Delayed: Latest Updates and Expected Launch Dates</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722975803434-easy-troubleshooting-and-installation-of-the-dell-mouse-driver-solved/"><u>Easy Troubleshooting and Installation of the Dell Mouse Driver - Solved</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-swindles-to-stamps-the-twitsignature-transition/"><u>From Swindles to Stamps: The TwitSignature Transition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-detailed-insights-into-youtubes-perfected-aspect-ratios/"><u>In 2024, Detailed Insights Into YouTube's Perfected Aspect Ratios</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-potential-advanced-tracking-solutions-from-cookiebot-innovations/"><u>Unlocking Potential: Advanced Tracking Solutions From Cookiebot Innovations</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Tecno Pop 7 Pro | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029041642-android/"><u>スマートフォンで動画が再生しないときの解決策: Androidを使った詳細ガイド</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-highly-effective-ways-to-stream-and-record-sports-games-for-2024/"><u>[New] Highly Effective Ways to Stream and Record Sports Games for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nnovating-content-approaches-to-stand-out-in-shorts-arenas/"><u>[New] Innovating Content Approaches to Stand Out in Shorts Arenas</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-launch-live-fb-broadcast-from-any-device-with-obs-guide-for-2024/"><u>[New] Launch Live FB Broadcast From Any Device with OBS Guide for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-benq-bl2711u-elevating-professional-monitors-to-new-heights-in-4k-realms/"><u>[Updated] 2024 Approved BenQ BL2711U Elevating Professional Monitors to New Heights in 4K Realms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-7-cameras-boosting-vlogging-creativity-and-viewership/"><u>[Updated] Premium 7 Cameras Boosting Vlogging Creativity & Viewership</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-in-depth-guide-obs-for-gamers/"><u>In 2024, In-Depth Guide OBS for Gamers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-training-data-includes-a-diverse-range-of-internet-text-but-its-important-to-note-that-grover-is-designed-more-with-content-generation-in-mind-rather-th625/"><u>The Training Data Includes a Diverse Range of Internet Text, but It's Important to Note that Grover Is Designed More with Content Generation in Mind Rather than Deep Specialization Like Legal Reasoning.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1725286243178-winxvideo-ai/"><u>WinXvideo AI 통합에 관한 자주 묻는 질문과 대답</u></a></li>
 </ul></div>
 

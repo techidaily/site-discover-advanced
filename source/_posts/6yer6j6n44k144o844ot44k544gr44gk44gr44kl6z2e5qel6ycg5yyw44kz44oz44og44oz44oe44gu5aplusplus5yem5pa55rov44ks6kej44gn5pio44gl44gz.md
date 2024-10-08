@@ -1,7 +1,7 @@
 ---
 title: 金融サービスにおける非構造化コンテンツの対処方法を解き明かす
-date: 2024-10-02T12:02:12.192Z
-updated: 2024-10-03T08:25:46.450Z
+date: 2024-10-02T19:03:17.501Z
+updated: 2024-10-08T16:17:57.604Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a98c24ab59e2903c5366daaa.jpg
@@ -25,6 +25,13 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 
 **[金融サービス向けのドキュメントスキルで、自動化の障害となる非構造化コンテンツを克服する。](https://static4.abbyy.com/abbyycommedia/34902/checklist-financialservices-documentskillsmarketplace-ja.pdf?itm%5Fsource=corpblog-ja)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 金融関係文書の自動作成における非構造化データ
 
 非構造化データを使用すれば、変化する顧客のニーズを把握することができるため、金融機関はトレンドを把握し、目的に合ったサービスを提供することができます。そして重要なのは、競争で優位性が保てることです。 しかし、構造化データと非構造化データの領域は大きく分かれており、自動化プロセスは主に、フィールド、データタイプ、およびパラメータが定義された構造化データベースファイルに重点を置いていました。
@@ -34,17 +41,10 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 ![workers using NLP in finance](https://static1.abbyy.com/abbyycommedia/34754/skills-for-finansial-services-2-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 金融における自然言語処理（NLP）
@@ -53,24 +53,18 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 
 これらのデータソースやその他のデータソースを効率的に分析し、非構造化データからインサイトを導き出すことができれば、銀行やその他の金融サービス機関が現在および将来の顧客について適切な判断を下すことができます。 このように活用されていないコンテンツから、有意義な情報を得られる可能性があります。
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 金融サービスにおける文書処理プロセスの自動化をお考えですか？
 
 当社にはそのためのスキルがあります。
 
 [ABBYY Marketplaceにアクセスする](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ABBYY Marketplaceのアプローチ方法
 
@@ -84,14 +78,14 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Cheryl Chiodi
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -156,22 +150,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-content-the-leading-online-television-recordings-for-2024/"><u>[New] Capturing Content The Leading Online Television Recordings for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-ai-ocr-rpa/"><u>伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-ascendant-a-la-tete-de-son-equipe-avec-lannonce-de-neil-murphy-comme-nouvel-chief-sales-officer/"><u>ABBYY Ascendant À La Tête De Son Équipe Avec L'annonce De Neil Murphy Comme Nouvel Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-compreno-crowned-innovative-leader-of-2016-by-kmworld-magazine/"><u>ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-drives-rochling-towards-unified-financial-reporting-with-sap-integration/"><u>ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-study-reveals-rising-employee-resignation-thoughts-amidst-poor-business-processes-during-covid-19-crisis/"><u>ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyys-digital-intelligence-celebrated-as-a-groundbreaking-innovation-of-the-year-2020/"><u>ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyynelsonhall2020/"><u>ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/adapting-financial-management-tactics-to-navigate-todays-new-normal-proven-approaches/"><u>Adapting Financial Management Tactics to Navigate Today's 'New Normal': Proven Approaches</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/epson-wf-2760-driver-installation-for-windows-11-10-and-8-users-step-by-step-guide/"><u>Epson WF 2760 Driver Installation for Windows 11, 10 & 8 Users: Step-by-Step Guide</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fast-solutions-overcome-shader-optimization-issues-in-star-wars-battlefront-ii/"><u>Fast Solutions: Overcome Shader Optimization Issues in Star Wars Battlefront II</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y27 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transitioning-from-sierra-to-legacy-os-el-capitan/"><u>In 2024, Transitioning From Sierra To Legacy OS - El Capitan</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-samsung-galaxy-a23-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Samsung Galaxy A23 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastery-in-flagging-fakes-a-guide-to-gpt-recognition/"><u>Mastery in Flagging Fakes: A Guide to GPT Recognition</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/update-instantly-upgrade-your-sound-with-nahimic-drivers/"><u>Update: Instantly Upgrade Your Sound with Nahimic Drivers</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-online-dailymotion-converter-fast-free-and-easy-to-use/"><u>Updated Online Dailymotion Converter Fast, Free, and Easy to Use</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-fix-no-video-on-sony-a6400-camera-for-2024/"><u>[New] How to Fix No Video On Sony A6400 Camera for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/giro-vocale-dei-numeri-in-italiano-1-1000/"><u>Giro Vocale Dei Numeri in Italiano - 1-1000</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-recovery-mode-on-apple-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unlock-4k-the-ultimate-list-of-free-video-converters/"><u>Updated In 2024, Unlock 4K The Ultimate List of Free Video Converters</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
 </ul></div>
 

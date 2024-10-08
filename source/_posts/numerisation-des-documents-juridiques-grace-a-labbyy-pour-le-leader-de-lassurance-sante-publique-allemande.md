@@ -1,7 +1,7 @@
 ---
 title: Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande
-date: 2024-09-26T11:04:22.106Z
-updated: 2024-10-03T11:16:36.851Z
+date: 2024-10-05T18:16:12.147Z
+updated: 2024-10-08T17:49:25.903Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/264f7e50d992f10f22f440e035402650c9e912cde2fed4f7c2aee477f6b93402.jpg
@@ -20,10 +20,10 @@ Insurance | Digital Archiving
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Le plus grand assureur en santé publique d’Allemagne numérise les documents de son département juridique
@@ -32,16 +32,16 @@ Assurance | Archivage numérique
 
 ![](https://static1.abbyy.com/abbyycommedia/16169/cs-aok-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Aperçu du client
 
 ![Association AOK](https://static2.abbyy.com/abbyycommedia/15833/aok_bv_logo.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Prénom               | Association AOK                  |
 | -------------------- | -------------------------------- |
@@ -97,26 +97,26 @@ Sur la base de son expérience positive avec ABBYY Recognition Server au sein de
 [![ABBYY Recognition Server est maintenant nommé FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (maintenant FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Assurances](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-aok-360x162](https://static2.abbyy.com/abbyycommedia/16168/cs-aok-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") [Version PDF](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Accéder au document](https://static5.abbyy.com/abbyycommedia/17753/cas-client-aok-fr.pdf "Version PDF") 
 
@@ -145,17 +145,16 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-transformation-tips-applying-japans-favorite-on-screen-effects/"><u>[New] 2024 Approved Transformation Tips Applying Japan's Favorite On-Screen Effects</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-tailoring-your-podcast-content-with-seo-in-mind/"><u>[New] Tailoring Your Podcast Content with SEO in Mind</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-infinix-note-30-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Infinix Note 30 Pro?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-nonresponsive-diagnostics-in-win10win11/"><u>Tackling Nonresponsive Diagnostics in Win10/Win11</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultimate-monitor-match-up-recommendations-for-top-tier-xbox-sx-experience/"><u>Ultimate Monitor Match-Up Recommendations for Top-Tier Xbox SX Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-comes-with-the-nintendo-switch/"><u>What Comes With the Nintendo Switch?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-user-friendly-way-of-migrating-snapchat-images-home/"><u>[New] The User-Friendly Way of Migrating SnapChat Images Home</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/activate-and-repair-a-defective-windows-scan-function/"><u>Activate and Repair a Defective Windows Scan Function</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-s18-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-x7b-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor X7b to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-samsung-galaxy-f54-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Samsung Galaxy F54 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unveiling-the-best-storytelling-schools-1-8-guide/"><u>Unveiling the Best Storytelling Schools - #1-#8 Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-wmv-video-splitter-free-download-top-choices/"><u>Updated WMV Video Splitter Free Download Top Choices</u></a></li>
 </ul></div>
 

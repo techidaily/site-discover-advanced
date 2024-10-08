@@ -1,7 +1,7 @@
 ---
 title: "Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!"
-date: 2024-09-26T07:11:05.445Z
-updated: 2024-10-03T04:56:06.976Z
+date: 2024-10-03T16:45:43.375Z
+updated: 2024-10-08T16:20:34.508Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
@@ -20,10 +20,10 @@ July 27, 2017
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tolstoy: famous and rare
@@ -35,10 +35,10 @@ Apart from the finished works of fiction - prose, poetry, drama - these volumes 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Tolstoy fans used technologies
@@ -56,10 +56,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -75,10 +75,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -106,17 +106,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-how-to-change-your-tiktok-username/"><u>[New] 2024 Approved How to Change Your TikTok Username</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-revisit-and-refine-your-past-editing-fbs-look-back-videos-for-2024/"><u>[New] Revisit and Refine Your Past Editing FB's Look Back Videos for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solved-roblox-stuck-on-loading-screen/"><u>[Solved] Roblox Stuck on Loading Screen</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-discovering-free-srt-excellence-our-top-8-picks/"><u>[Updated] Discovering Free SRT Excellence Our Top 8 Picks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-beyond-playfulness-unveiling-the-subtext-in-snapchat-symbols/"><u>[Updated] In 2024, Beyond Playfulness Unveiling the Subtext in Snapchat Symbols</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44cm44ot44oh44kq5pig5yop44gm6kal44gl44kj44ge77yb44o744oi44op44ow44or44k344ol44o844og44kj44oz44kw44go5lplusu5q2j5oml6acg44cn/"><u>「ビデオ映像が見づらい！・トラブルシューティングと修正手順」</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726030048568-bup/"><u>効果的な方法でBUPファイルを再生：エラーに直面した際の詳細ガイド</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-muted-or-quiet-speakers-in-windows-11-troubleshooting-guide/"><u>Fixing Muted or Quiet Speakers in Windows 11 – Troubleshooting Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-x-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone X to other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrams-best-grids-built-by-the-top-tools-compiled-here/"><u>In 2024, Instagram's Best Grids Built by the Top Tools Compiled Here</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-8-best-video-conferencing-software-for-small-business-safely/"><u>[New] In 2024, 8 Best Video Conferencing Software for Small Business Safely</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hilarious-youtube-moments-top-10-quirky-short-film-concepts/"><u>[New] In 2024, Hilarious YouTube Moments Top 10 Quirky Short Film Concepts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-detailed-guidance-on-crafting-dynamic-yt-profiles-for-2024/"><u>[Updated] Detailed Guidance on Crafting Dynamic YT Profiles for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/everything-you-need-to-know-about-netflix-a-comprehensive-guide/"><u>Everything You Need to Know About Netflix: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-for-correcting-your-sims-4-display-difficulties-related-to-the-gpu/"><u>Expert Advice for Correcting Your Sims 4 Display Difficulties Related to the GPU</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-google-pixel-8-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Google Pixel 8 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/er-secrets-for-online-gamers-channel-templates-for-2024/"><u>Insider Secrets for Online Gamers' Channel Templates for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oneplus-ace-2v-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your OnePlus Ace 2V Phone</u></a></li>
 </ul></div>
 
