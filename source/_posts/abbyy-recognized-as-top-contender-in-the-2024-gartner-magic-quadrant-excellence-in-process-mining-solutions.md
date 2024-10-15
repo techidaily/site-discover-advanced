@@ -1,7 +1,7 @@
 ---
 title: ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions
-date: 2024-10-01T19:18:58.841Z
-updated: 2024-10-08T16:14:47.520Z
+date: 2024-10-12T18:11:45.359Z
+updated: 2024-10-14T19:38:48.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ba823e70571284a0c45a2acec26bb9d28a4fab8bdde6a1d84cbac37f185e31d.jpg
@@ -14,10 +14,10 @@ Report
 ## ABBYY Named a Leader in the 2024 Gartner® Magic Quadrant™ for Process Mining Platforms
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY recognized for its Timeline process intelligence platform’s completeness of vision and ability to execute.
@@ -25,10 +25,10 @@ Report
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Process mining platforms](https://tools.techidaily.com/abbyy/products/) help businesses to make smart, data-based decisions faster so they can achieve operational goals and gain competitive edge. The Gartner® Magic Quadrant™ for Process Mining Platforms examines current market forces and the leading vendors of process mining platforms.
@@ -54,10 +54,10 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -131,24 +131,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-layout-layers-a-guide-to-organizing-online-videos/"><u>[Updated] 2024 Approved Layout Layers A Guide to Organizing Online Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-quick-ways-to-transfer-contacts-from-apple-iphone-12-pro-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>4 Quick Ways to Transfer Contacts from Apple iPhone 12 Pro to iPhone With/Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cal-channels-for-asmr-lovers/"><u>Critical Channels for ASMR Lovers</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/has-oversight-over-chatgpt-became-an-issue-for-openai/"><u>Has Oversight Over ChatGPT Became an Issue for OpenAI?</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-htc-u23-pro-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset HTC U23 Pro in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-resolve-bluetooth-connectivity-issues-on-your-windows-11-pc/"><u>How to Resolve Bluetooth Connectivity Issues on Your Windows 11 PC</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-k70-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi K70 Device</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/reducir-el-tamano-de-tu-video-para-compartirlo-en-facebook-facilmente/"><u>Reducir El Tamaño De Tu Video Para Compartirlo en Facebook Fácilmente</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/retain-gpt-conversations-easily/"><u>Retain GPT Conversations Easily</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-performance-hiccups-optimizing-deathloop-stability-on-pc-systems/"><u>Solving Performance Hiccups: Optimizing Deathloop Stability on PC Systems</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1715860067198-new-top-tickles-for-young-game-fans/"><u>[New] Top Tickles for Young Game Fans!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-decoding-the-art-of-iphones-and-podcasts-downloading-for-2024/"><u>[Updated] Decoding the Art of iPhones and Podcasts Downloading for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-process-mining-pioneer-in-latest-isg-provider-lens-analysis/"><u>ABBYY Recognized as Process Mining Pioneer in Latest ISG Provider Lens™ Analysis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ai-powered-automated-finance-paperwork-revolutionizing-the-banking-industry/"><u>AI-Powered Automated Finance Paperwork: Revolutionizing the Banking Industry</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-ad-targeting-with-cookiebot-the-ultimate-guide/"><u>Automated Ad Targeting with Cookiebot: The Ultimate Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-conversions-using-cookiebot-technology-for-personalized-web-marketing-solutions/"><u>Boost Conversions Using Cookiebot Technology for Personalized Web Marketing Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rve-space-not-time-youtube-video-length-adjustment-for-2024/"><u>Conserve Space, Not Time YouTube Video Length Adjustment for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-motorola-moto-e13-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Motorola Moto E13 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-samsung-galaxy-a54-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Samsung Galaxy A54 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/newest-version-of-crosslink-hdmi-usb-drivers-secure-your-download-today/"><u>Newest Version of Crosslink HDMI-USB Drivers – Secure Your Download Today!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/premier-camera-drones-10-filmmakers-dream-fleet/"><u>Premier Camera Drones #10 Filmmakers' Dream Fleet</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-the-cognitive-features-of-android-systems/"><u>Understanding the Cognitive Features of Android Systems</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-sony-digital-camcorder-video-editing-tutorial-for-beginners/"><u>Updated Sony Digital Camcorder Video Editing Tutorial for Beginners</u></a></li>
 </ul></div>
 

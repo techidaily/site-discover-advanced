@@ -1,7 +1,7 @@
 ---
 title: ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer
-date: 2024-10-01T19:24:25.052Z
-updated: 2024-10-08T19:14:08.992Z
+date: 2024-10-11T20:16:32.549Z
+updated: 2024-10-14T22:48:49.622Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/042cea82a1fcfb2242b9880aa52ff1cf0cb7e4c3cd3e6dc3d81f2870623c2d81.jpg
@@ -38,10 +38,10 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -55,10 +55,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -66,10 +66,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,19 +95,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-essential-resources-for-crafting-eye-catching-youtube-ends/"><u>[New] 2024 Approved Essential Resources for Crafting Eye-Catching YouTube Ends</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-audio-interface-innovations-for-optimal-podcasting/"><u>[New] Audio Interface Innovations for Optimal Podcasting</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-selecting-the-prime-sky-vault-for-firms-for-2024/"><u>[Updated] Selecting the Prime Sky Vault for Firms for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y78t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y78t Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-data-collection-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Data Collection & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-fueled-solutions-enhancing-your-digital-experience/"><u>Cookiebot-Fueled Solutions: Enhancing Your Digital Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-personalization-with-automated-marketing-bot/"><u>Customized Personalization with Automated Marketing Bot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-engagement-and-sales-using-smart-visitor-tracking-technology/"><u>Drive Engagement and Sales Using Smart Visitor Tracking Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-samsung-galaxy-a15-4g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Samsung Galaxy A15 4G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-savespace-pros-review-summary/"><u>In 2024, SaveSpace Pros Review Summary</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oneplus-nord-ce-3-lite-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any OnePlus Nord CE 3 Lite 5G Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/pro-sniping-on-a-budget-try-these-affordable-pc-tools/"><u>Pro Sniping on a Budget? Try These Affordable PC Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/quick-and-simple-discover-the-best-dav-to-avi-video-converter-apps-ranked-1-to-5/"><u>Quick and Simple: Discover the Best DAV-to-AVI Video Converter Apps Ranked #1 to #5</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-maximizing-your-iphones-burst-photography-for-2024/"><u>[Updated] Maximizing Your iPhone's Burst Photography for 2024</u></a></li>
+<li><a href="https://win-studio.techidaily.com/comment-recuperer-les-donnees-perdues-sans-photorec-decouvrez-lexcellente-alternative/"><u>Comment Récupérer Les Données Perdues Sans PhotoRec - Découvrez L'Excellente Alternative!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/demystifying-complex-srt-concepts-for-professionals/"><u>Demystifying Complex SRT Concepts for Professionals</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-canon-mp560-driver-quick-download-and-setup-instructions/"><u>Get the Latest Canon MP560 Driver: Quick Download & Setup Instructions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-converse-seamlessly-with-chatgpt-across-the-globe/"><u>How to Converse Seamlessly with ChatGPT Across the Globe</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-realme-12-pro-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Realme 12 Pro 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721956762295-maximize-your-ai-potential-with-our-picks-of-the-top-7-chatgpt-chrome-extensions/"><u>Maximize Your AI Potential with Our Picks of the Top 7 ChatGPT Chrome Extensions!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-instructions-for-forcing-the-closure-of-unresponsive-programs-in-windows-10/"><u>Step-by-Step Instructions for Forcing the Closure of Unresponsive Programs in Windows 10</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-pitfalls-of-generative-ai-in-chats/"><u>Top 7 Pitfalls of Generative AI in Chats</u></a></li>
 </ul></div>
 

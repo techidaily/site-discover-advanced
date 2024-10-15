@@ -1,7 +1,7 @@
 ---
 title: "Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications"
-date: 2024-10-04T17:29:25.202Z
-updated: 2024-10-08T17:03:21.170Z
+date: 2024-10-08T22:18:44.125Z
+updated: 2024-10-14T22:09:24.051Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a0697447c3ea6b08edc7929364d24aaff9babf43934271a1bc595c07d928a8cf.jpg
@@ -20,10 +20,10 @@ Finance/Banking | Mobile Capture
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY Mobile OCR Engine makes on-the-go loan approval a blast
@@ -31,10 +31,10 @@ Finance/Banking | Mobile Capture
 Banking | Mobile Capture 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
@@ -58,21 +58,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-avoiding-edgenuitys-grasp-tips-for-quickly-skipping-video-lessons/"><u>[New] Avoiding Edgenuity's Grasp Tips for Quickly Skipping Video Lessons</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-delving-into-the-pros-and-cons-of-using-itop/"><u>[New] In 2024, Delving Into the Pros and Cons of Using ITop</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-launchpad-gear-your-youtube-channels-first-steps/"><u>[New] Launchpad Gear Your YouTube Channel's First Steps</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-updated-guide-leading-camcorders-for-ocean-exploration/"><u>[Updated] 2024 Approved Updated Guide Leading Camcorders for Ocean Exploration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44cm44ot44oh44kq5pig5yop44gm6kal44gl44kj44ge77yb44o744oi44op44ow44or44k344ol44o844og44kj44oz44kw44go5lplusu5q2j5oml6acg44cn/"><u>「ビデオ映像が見づらい！・トラブルシューティングと修正手順」</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-best-jest-in-layout-and-edit-suite/"><u>2024 Approved Best Jest in Layout & Edit Suite</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-cold-chronicles-the-2022-winter-olympics-in-china/"><u>2024 Approved Cold Chronicles The 2022 Winter Olympics in China</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-tips-for-overcoming-mp4-format-issues-with-powerdirector-software/"><u>Expert Tips for Overcoming MP4 Format Issues with PowerDirector Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/skydance-secures-new-growth-opportunities-by-integrating-paramountplus-and-pluto-tv-into-its-media-empire/"><u>Skydance Secures New Growth Opportunities by Integrating Paramount+ and Pluto TV Into Its Media Empire</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-setting-up-and-operating-linux-bash-shell-in-windows-11/"><u>Step-by-Step Guide: Setting Up & Operating Linux Bash Shell in Windows 11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-rated-affordable-tablets-comprehensive-expert-reviews/"><u>Top Rated Affordable Tablets : Comprehensive Expert Reviews</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-search-comments-on-youtube-quickly/"><u>[New] 2024 Approved How to Search Comments on YouTube Quickly?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-simplified-screen-capture-methods-for-stories/"><u>[New] 2024 Approved Simplified Screen Capture Methods for Stories</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-how-to-create-360-degree-photosimages-with-fisheye-lens/"><u>[New] How to Create 360 Degree Photos/Images with Fisheye Lens</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-streamlabs-obs-review-and-alternative/"><u>[New] In 2024, Streamlabs OBS Review and Alternative</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-5-goggles-for-optimal-drone-pilot-viewing/"><u>[Updated] Leading 5 Goggles for Optimal Drone Pilot Viewing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-sidetrade-opted-for-abbyy-vantage-in-upgrading-their-cash-handling-processes/"><u>How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-oppo-a78-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Oppo A78 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Tecno Spark Go (2023)? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-vivo-y200-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Vivo Y200 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/innovating-ap-workflow-management-with-advanced-automated-solutions/"><u>Innovating AP Workflow Management with Advanced Automated Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/leading-steadicam-systems-for-drones-in-filmmaking-industry/"><u>Leading Steadicam Systems for Drones in Filmmaking Industry</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-effective-online-engagement/"><u>Leverage the Power of Cookiebot Technology for Effective Online Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leveraging-artificial-intelligence-in-collaboration-unveiling-the-abbyy-insights/"><u>Leveraging Artificial Intelligence in Collaboration: Unveiling the ABBYY Insights</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-to-tackle-failed-syncs-with-onedrive-windows/"><u>Methods to Tackle Failed Syncs with OneDrive Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/numerisation-des-documents-juridiques-grace-a-labbyy-pour-le-leader-de-lassurance-sante-publique-allemande/"><u>Numérisation Des Documents Juridiques Grâce À L'ABBYY Pour Le Leader De L'assurance Santé Publique Allemande</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr/"><u>スマホ向け人工知能搭載のOCRレシート処理ソリューション – エイビィービー・モバイルウェブキャプチャ</u></a></li>
 </ul></div>
 

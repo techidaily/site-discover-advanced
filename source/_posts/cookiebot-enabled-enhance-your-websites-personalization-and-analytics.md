@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's Personalization and Analytics"
-date: 2024-10-02T16:51:06.080Z
-updated: 2024-10-08T16:08:24.403Z
+date: 2024-10-11T19:35:06.302Z
+updated: 2024-10-15T01:27:06.979Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e909ca12d5d0ef3819e924e4b2acc53554680366614c69f27f338ed1d92d5d7.jpg
@@ -14,10 +14,10 @@ eBook
 ## From Referral to Appointment: Speed Is Key to Improved Care, Patient Satisfaction, and Revenue Optimization
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Referral leakage costs hospitals up to $971K per physician per year. How much is it costing yours?
@@ -25,10 +25,10 @@ eBook
 ![](https://static1.abbyy.com/abbyycommedia/37819/ebook-use-case-financial-services-intelligent-document-processing_tn_360x232-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Despite advances in digital technology, 76 percent of physician referrals are still sent via paper mail, email, and fax. These documents feed into slow, error-prone manual processes, resulting in delays and lost revenue as some patients abandon their appointments, a.k.a. “referral leakage.” 
@@ -36,10 +36,10 @@ Despite advances in digital technology, 76 percent of physician referrals are st
 No wonder only 54 percent of traditional referrals result in scheduled appointments. But it doesn’t have to be this way.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Download it now!
@@ -47,16 +47,10 @@ No wonder only 54 percent of traditional referrals result in scheduled appointme
 This eBook, brought to you by HIMSS and ABBYY, explores how intelligent automation is resolving hospitals’ most pressing referral management challenges, resulting in improved patient experiences and reduced revenue losses from referral leakage.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -130,18 +124,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-srt-mastery-free-and-best-websites-in-top-8-lists/"><u>[New] SRT Mastery Free & Best Websites in Top 8 Lists</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-capturing-discords-magic-3-steps-for-ensuring-your-live-stream-stays-alive/"><u>[Updated] Capturing Discord's Magic 3 Steps for Ensuring Your Live Stream Stays Alive</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-traffic-generation-with-cookiebot-technology/"><u>Automated Traffic Generation with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/carlsberg-utilise-abpyy-pour-raccourcir-le-processus-de-commercialisation-de-ses-offres/"><u>Carlsberg Utilise ABPyy Pour Raccourcir Le Processus De Commercialisation De Ses Offres</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-marketing-solutions-enhance-your-seo-strategies/"><u>Cookiebot-Driven Marketing Solutions: Enhance Your SEO Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-seo-with-leading-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site's SEO with Leading Tracking Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-stylish-asus-bw-1ed1x-u-with-notable-features-and-quirks/"><u>In-Depth Review of the Stylish Asus BW-1eD1X-U with Notable Features and Quirks</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-oppo-a1x-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Oppo A1x 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolve-windows-11s-unresponsive-hdmi-tv-detection-with-these-easy-fixes/"><u>Resolve Windows 11'S Unresponsive HDMI TV Detection with These Easy Fixes</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/simple-steps-to-download-and-install-hp-stream-printer-drivers/"><u>Simple Steps to Download and Install HP Stream Printer Drivers</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/step-by-step-iphone-podcast-audio-enjoyment/"><u>Step-by-Step IPhone Podcast Audio Enjoyment</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/techniques-for-controlling-edges-cpu-usage/"><u>Techniques for Controlling Edge's CPU Usage</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-apowersoft-screen-recorder-review-and-alternative/"><u>[New] 2024 Approved Apowersoft Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-embedding-youtube-playlists-step-by-step-guide/"><u>[New] 2024 Approved Embedding YouTube Playlists Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revolutionize-your-feed-with-these-10-insta-tools/"><u>[New] 2024 Approved Revolutionize Your Feed with These 10 Insta-Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-taking-on-screen-capture-giants-how-bandicam-stacks-up-against-camtasia-for-2024/"><u>[New] Taking on Screen Capture Giants How Bandicam Stacks Up Against Camtasia for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-harnessing-your-creative-power-with-ipad-for-time-lapses/"><u>[Updated] 2024 Approved Harnessing Your Creative Power with iPad for Time-Lapses</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/wav-ogg-flac/"><u>「WAV, OGG, FLACフォーマット音楽ファイルの音量設定ガイド」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-on-apple-iphone-14-plus-by-drfone-ios/"><u>How To Create an Apple Developer Account On Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-13-pro-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone 13 Pro without Password</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-complete-examination-a-full-picture-of-bublcams-360-degree-scope/"><u>In 2024, Complete Examination A Full Picture of Bublcam's 360-Degree Scope</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-unlocking-voice-functionality-in-tiktok-videos/"><u>In 2024, Unlocking Voice Functionality in TikTok Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/movavi-professionelle-kostenlose-konvertierung-von-mpe-in-avi-fuhren-sie-ihre-aufgaben-einfach-und-effizient-aus/"><u>Movavi: Professionelle Kostenlose Konvertierung Von MPE in Avi - Führen Sie Ihre Aufgaben Einfach Und Effizient Aus!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-guide-on-extracting-sound-from-dvds/"><u>Seamless Guide on Extracting Sound From DVDs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-converting-mpg-videos-into-high-quality-mp4-formats/"><u>Step-by-Step Guide: Converting MPG Videos Into High-Quality MP4 Formats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-merging-video-files-from-your-iphone-with-pc/"><u>Step-by-Step Guide: Merging Video Files From Your iPhone with PC</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-transforming-tod-videos-into-various-formats-including-mp4-and-avi/"><u>Step-by-Step Guide: Transforming TOD Videos Into Various Formats Including MP4 & AVI</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-dvd-region-free-software-compatible-with-windows-11/"><u>Top DVD Region Free Software Compatible with Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-to-top-video-and-audio-compression-tools-save-space-improve-quality/"><u>Ultimate Guide to Top Video & Audio Compression Tools - Save Space, Improve Quality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-software-and-online-tools-for-converting-mkv-files-into-wmv-format/"><u>Ultimate Guide: Software and Online Tools for Converting MKV Files Into WMV Format</u></a></li>
 </ul></div>
 

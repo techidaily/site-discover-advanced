@@ -1,7 +1,7 @@
 ---
 title: ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題
-date: 2024-10-05T19:20:29.509Z
-updated: 2024-10-08T18:09:58.532Z
+date: 2024-10-09T20:36:03.950Z
+updated: 2024-10-15T01:58:19.548Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453eb6e04c1cfde40ef70bbce3.jpg
@@ -14,10 +14,10 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
@@ -25,10 +25,10 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
@@ -42,10 +42,10 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
@@ -119,22 +119,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-best-free-cloud-options-get-unlimited-storage-1tbplus/"><u>[New] 2024 Approved Best Free Cloud Options Get Unlimited Storage (1TB+)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-understanding-instagrams-video-length-cap/"><u>[Updated] 2024 Approved Understanding Instagram's Video Length Cap</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-action-footage-clarity-the-top-10-camera-mics/"><u>[Updated] Action Footage Clarity The Top 10 Camera Mics</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-free-and-fun-capture-and-convert-skype-calls-mp3-for-2024/"><u>[Updated] Free & Fun Capture and Convert Skype Calls (MP3) for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-virtual-meetups-made-simple-setting-up-video-calls-with-whatsapp-on-your-laptop-for-2024/"><u>[Updated] Virtual Meetups Made Simple Setting up Video Calls with WhatsApp on Your Laptop for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-tecno-phantom-v-flip-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Tecno Phantom V Flip to iPhone | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-online-presence-through-effective-webpage-strategies-seo-techniques-for-success/"><u>Boosting Online Presence Through Effective Webpage Strategies: SEO Techniques for Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-sap-bot-capabilities-through-abbyys-advanced-content-analytics/"><u>Boosting SAP Bot Capabilities Through ABBYY's Advanced Content Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/capitalizing-on-growth-streamline-revenue-management-using-abbyy-solutions/"><u>Capitalizing on Growth: Streamline Revenue Management Using ABBYY Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/changer-la-maniere-de-traiter-les-documents-avec-doxio-et-abbyy-une-revolution-dans-le-gestionnaire-papier/"><u>Changer La Manière De Traiter Les Documents Avec Doxio Et ABBYY : Une Révolution Dans Le Gestionnaire Papier</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Personalization: Enhance User Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-website-optimization-solutions/"><u>Cookiebot-Driven Website Optimization Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-websites-performance-with-cutting-edge-analytics/"><u>Cookiebot-Enabled: Boost Your Website's Performance with Cutting-Edge Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-site-with-cutting-edge-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site with Cutting-Edge Tracking Technology</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-infinix-hot-30i-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Infinix Hot 30i</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-unlocking-the-potential-of-discord-streams/"><u>In 2024, Unlocking the Potential of Discord Streams</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/professional-mac-gif-recording-top-10-picks/"><u>Professional Mac GIF Recording Top 10 Picks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-social-media-spots-for-boosting-youtube-videos/"><u>Best Social Media Spots for Boosting YouTube Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-traffic-using-cutting-edge-cookiebot-solutions/"><u>Boost Your Site's Traffic Using Cutting-Edge Cookiebot Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/complete-guide-on-installing-the-latest-cpu-driver-versions-on-a-windows-machine/"><u>Complete Guide on Installing the Latest CPU Driver Versions on a Windows Machine</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-site-enhance-user-experience-with-smart-tracking/"><u>Cookiebot-Enabled Site: Enhance User Experience with Smart Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciding-between-apple-tv-4k-and-roku-ultra-features-performance-and-price-breakdown/"><u>Deciding Between Apple TV 4K and Roku Ultra - Features, Performance & Price Breakdown</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-free-online-music-beat-detection-tools/"><u>In 2024, Explore Free Online Music Beat Detection Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ly-adapt-video-formats-for-mac-pixels/"><u>Swiftly Adapt Video Formats for MAC Pixels</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723000487764-terraria-crashes-fix-it-with-these-top-5-solutions/"><u>Terraria Crashes? Fix It with These Top 5 Solutions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-smooth-chatbot-dialogue-the-ultimate-chrome-extension-for-effortless-gpt-3-prompt-crafting/"><u>Unlock Smooth Chatbot Dialogue: The Ultimate Chrome Extension for Effortless GPT-3 Prompt Crafting</u></a></li>
 </ul></div>
 

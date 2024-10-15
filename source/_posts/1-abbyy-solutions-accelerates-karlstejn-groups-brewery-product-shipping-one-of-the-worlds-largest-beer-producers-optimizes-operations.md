@@ -1,7 +1,7 @@
 ---
 title: "1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations"
-date: 2024-10-03T16:42:32.168Z
-updated: 2024-10-08T16:54:10.803Z
+date: 2024-10-10T00:09:25.534Z
+updated: 2024-10-14T22:49:33.382Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/25f844691822ba4cb5e360ab99f911dddda24c96d9c140ba9ad85b4664a5d151.png
@@ -20,10 +20,10 @@ Transportation & Logistics | Food and Beverage | Forms Processing | Document Pro
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 世界有数のビール会社 カールスバーグ・グループ、ABBYYのソリューションにより、製品を出荷するまでの時間を短縮
@@ -35,13 +35,6 @@ Transportation & Logistics | Food and Beverage | Forms Processing | Document Pro
 #### お客様の概要
 
 ![Carlsberg Group](https://static5.abbyy.com/abbyycommedia/36017/15064-logo-carlsberg-group.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | 氏名     | Carlsberg Group                                           |
 | ------ | --------------------------------------------------------- |
@@ -90,32 +83,39 @@ ABBYYのIDPソリューションを納品書のスキャンプロセスに導入
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/36083/15063-carlsberg-360x162.png)](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") [PDF版](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [資料を読む](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -138,24 +138,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-crafting-compelling-instagram-stories-a-guide-to-scaled-visuals/"><u>[New] Crafting Compelling Instagram Stories A Guide to Scaled Visuals</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/op-8-proven-video-growth-enhancers-for-2024/"><u>[New] Top 8 Proven Video Growth Enhancers for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-cutting-edge-engines-the-quintessential-qxp-motors-guide/"><u>[Updated] In 2024, Cutting-Edge Engines The Quintessential QXP Motors Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-optimize-video-quality-turning-on-av1-in-youtube-settings/"><u>2024 Approved Optimize Video Quality Turning ON AV1 in YouTube Settings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevate-security-enable-controlled-access-in-windows-11/"><u>Elevate Security: Enable Controlled Access in Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-tips-for-overcoming-mp4-format-issues-with-powerdirector-software/"><u>Expert Tips for Overcoming MP4 Format Issues with PowerDirector Software</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/flacapple-losslesswindowsmac/"><u>FLACからApple Losslessへの変換手法：WindowsとMacで使える方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/h264-format-not-working-on-vlc-media-player-uncover-successful-troubleshooting-tips-here/"><u>H264 Format Not Working on VLC Media Player? Uncover Successful Troubleshooting Tips Here!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-the-art-of-mobile-video-recording-with-snapchat/"><u>In 2024, Mastering the Art of Mobile Video Recording with Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-non-retweeted-video-tweet-guide-for-iphone-and-android-users/"><u>In 2024, Non-Retweeted Video Tweet Guide for iPhone & Android Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/swift-technique-coding-images-for-youtube-channel-thumbnails/"><u>Swift Technique Coding Images for YouTube Channel Thumbnails</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlocking-character-potential-with-gpt-and-visionary-ai-tools/"><u>Unlocking Character Potential with GPT and Visionary AI Tools</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-financial-frontier-maximizing-your-content-revenue/"><u>YouTube's Financial Frontier Maximizing Your Content Revenue</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-breaking-down-sony-bdp-s6700-updates/"><u>[New] Breaking Down Sony BDP-S6700 Updates</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enabling-autoplay-youtube-without-alerts-for-2024/"><u>[New] Enabling Autoplay YouTube Without Alerts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expertise-in-image-colors-pro-techniques-revealed/"><u>[New] Expertise in Image Colors Pro Techniques Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-how-to-add-youtube-annotations-and-cards/"><u>[New] How to Add YouTube Annotations and Cards?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-ultimate-ps4-recording-in-obs-a-detailed-walkthrough/"><u>[Updated] In 2024, Ultimate PS4 Recording in OBS - A Detailed Walkthrough</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driving-online-engagement-with-advanced-cookiebot-technology-solutions/"><u>Driving Online Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevate-your-website-analytics-using-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics Using Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/emilia-romagna-bank-enhances-document-management-with-abnyy-finereader-technology/"><u>Emilia Romagna Bank Enhances Document Management with ABNYy FineReader Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-online-conversions-using-the-power-of-cookiebot-technology/"><u>Enhance Online Conversions Using the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-invoicing-workflow-with-abbyy-plus-m-files-the-ultimate-guide/"><u>Enhance Your Invoicing Workflow with ABBYY + M-Files: The Ultimate Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-site-with-cookiebot-technology/"><u>Enhance Your Site with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-websites-engagement-with-cookiebot-analytics/"><u>Enhance Your Website's Engagement with Cookiebot Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-digital-marketing-with-cookiebot-integration/"><u>Enhanced Digital Marketing with Cookiebot Integration</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/full-assessment-samsungs-360-degree-capture-device/"><u>Full Assessment Samsung's 360-Degree Capture Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-iphone-audio-augmentation-3-inexpensive-ways-for-clips-with-a-soundtrack/"><u>In 2024, IPhone Audio Augmentation 3 Inexpensive Ways for Clips with a Soundtrack</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-samsung-galaxy-s24plus-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ultimate-tutorial-how-to-download-and-setup-microsoft-store-applications-in-windows-10/"><u>Ultimate Tutorial: How to Download and Setup Microsoft Store Applications in Windows 10</u></a></li>
 </ul></div>
 

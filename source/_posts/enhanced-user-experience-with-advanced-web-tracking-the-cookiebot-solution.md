@@ -1,7 +1,7 @@
 ---
 title: "Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution"
-date: 2024-10-06T18:23:25.684Z
-updated: 2024-10-08T17:04:59.348Z
+date: 2024-10-11T01:57:36.761Z
+updated: 2024-10-14T20:55:05.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a71e7a06fbd4b66d64319f0c.jpg
@@ -19,13 +19,6 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Connexions setzt auf ABBYY bei der Auswertung von Meinungsumfragen
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 229 kb)](https://static5.abbyy.com/abbyycommedia/6144/cs-connexions-fc-d.pdf) 
@@ -33,15 +26,28 @@ Social Work
 Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen Aufgabe gegenüber, Dokumente zu verarbeiten, die so schnell und kostengünstig wie möglich digital erfasst werden müssen. Connexions Berkshire – einer von mehreren Connexions Standorten im Vereinigten Königreich – ist eine dieser Organisationen.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Der Hintergrund
 
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Die Lösung
 
@@ -58,18 +64,18 @@ Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional i
 
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Der Blick nach vorn
 
 Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu erwerben. Zudem urden die Funktionalitäten von ABBYY FlexiCapture und die Ergebnisse des Pilotprojekts in der Berkshire Niederlassung den anderen Connexions Organisationen in England präsentiert. Daraufhin haben sich viele weitere Organisationen ebenfalls für die Nutzung von FlexiCapture entschieden, und aufgrund des Erfolges des Pilotprojekts in Berkshire ist eine umfassende, nationale Befragung mit 600.000 Teilnehmern geplant. „Ich verstehe ehrlich gesagt nicht, wie wir bislang ohne diese Technologie auskommen konnten", erklärt Maddison. „Wir gehen davon aus, dass die Umfragen jedes Jahr in ihrem Umfang wachsen werden, und ohne ABBYY könnten wir den zusätzlichen Arbeitsaufwand gar nicht bewältigen."
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Über ABBYY und Kontaktmöglichkeiten
 
@@ -80,10 +86,10 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -107,24 +113,20 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-premium-selection-of-fastest-recorders/"><u>[New] Premium Selection of Fastest Recorders</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-safe-audio-conversion-techniques-turning-youtube-to-mp3-easily-and-securely/"><u>[Updated] 2024 Approved Safe Audio Conversion Techniques Turning YouTube to MP3 Easily & Securely</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/dxabbyy/"><u>企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-site-with-cookiebot-the-ultimate-marketing-automation-tool/"><u>Boost Your Site with Cookiebot: The Ultimate Marketing Automation Tool</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-sites-performance-advanced-insights-from-the-latest-cookiebot-solutions/"><u>Boost Your Site's Performance: Advanced Insights From the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-efficiency-in-kreditorenbuchhaltung-via-shared-services-and-automation-by-madsack-sap-dank-abbyy-and-beck-it/"><u>Boosting Efficiency in Kreditorenbuchhaltung via Shared Services & Automation by MADSACK, SAP Dank ABBYY, and Beck IT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-insights-optimize-your-website-with-smart-analytics/"><u>Cookiebot-Driven Insights: Optimize Your Website with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-site-performance-boosting-engagement-with-smart-tracking/"><u>Cookiebot-Enhanced Site Performance: Boosting Engagement with Smart Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-the-secret-ingredient-for-dynamic-website-optimization/"><u>Cookiebot: The Secret Ingredient for Dynamic Website Optimization</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-leading-free-defrag-programs-for-optimal-pc-performance-in-july-2024/"><u>Discover the Leading Free Defrag Programs for Optimal PC Performance in July 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/driven-by-the-leading-conversion-optimized-analytics-platform/"><u>Driven by the Leading Conversion-Optimized Analytics Platform</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-a2-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo A2 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y55s-5g-2023-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-the-world-of-vivacut-video-editing-insights/"><u>In 2024, Navigating the World of VivaCut Video Editing - Insights</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-techniques-for-adding-fonts-to-your-iphones-system/"><u>Ultimate Techniques for Adding Fonts to Your iPhone's System</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-unwanted-sounds-gone-learn-how-to-remove-background-noise-in-fcp/"><u>Updated Unwanted Sounds? Gone! Learn How to Remove Background Noise in FCP</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/win7-print-problem-devices-unresponsive-post-sleep/"><u>Win7 Print Problem: Devices Unresponsive Post-Sleep</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-steps-for-a-never-to-return-from-tiktok-space/"><u>[New] Steps for a Never-to-Return From TikTok Space</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-kiddos-best-gaming-delights-top-girls-adventures/"><u>[Updated] 2024 Approved Kiddo's Best Gaming Delights - Top Girls' Adventures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-tips-for-effortless-eradication-of-unwanted-youtube-discussions/"><u>[Updated] In 2024, Tips for Effortless Eradication of Unwanted YouTube Discussions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-youtubers-picks-on-anti-shake-gear-for-professional-videos/"><u>[Updated] YouTubers’ Picks on Anti-Shake Gear for Professional Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-2023-timeline-turning-srt-into-txt-swiftly/"><u>2024 Approved Ultimate 2023 Timeline Turning SRT Into TXT Swiftly</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-drives-rochling-towards-unified-financial-reporting-with-sap-integration/"><u>ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-study-reveals-rising-employee-resignation-thoughts-amidst-poor-business-processes-during-covid-19-crisis/"><u>ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyys-digital-intelligence-celebrated-as-a-groundbreaking-innovation-of-the-year-2020/"><u>ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyynelsonhall2020/"><u>ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/adapting-financial-management-tactics-to-navigate-todays-new-normal-proven-approaches/"><u>Adapting Financial Management Tactics to Navigate Today's 'New Normal': Proven Approaches</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/anthony-macciola-abbyys-leading-visionary-as-chief-innovation-officer/"><u>Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-discover-the-best-3d-video-production-tools-for-stunning-visuals/"><u>New In 2024, Discover the Best 3D Video Production Tools for Stunning Visuals</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/transfert-instantane-dun-fichier-vers-google-drive-tutoriel-sur-la-synchro-automatique/"><u>Transfert Instantané D'un Fichier Vers Google Drive : Tutoriel Sur La Synchro Automatique</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-success-overcoming-the-directx-unrecoverable-system-error/"><u>Troubleshooting Success: Overcoming the DirectX Unrecoverable System Error</u></a></li>
 </ul></div>
 

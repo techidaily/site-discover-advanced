@@ -1,7 +1,7 @@
 ---
 title: Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets
-date: 2024-10-03T16:51:11.256Z
-updated: 2024-10-08T17:55:26.944Z
+date: 2024-10-12T23:43:31.699Z
+updated: 2024-10-14T18:44:51.206Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0217ab2f78f4ec22b4e817c364c8596747881cd4ccd50e41e8a2b78b87f09590.jpg
@@ -30,10 +30,10 @@ ABBYYジャパン代表取締役社長に就任した前田まりこは、次の
 前田まりこは、ABBYY入社以前は米国に拠点を置く自動化ロボットのリーディング・カンパニーであるGreyOrangeで日本及び韓国チームを統括してきました。また営業、ソリューション・コンサルティング、オペレーション、カスタマー・エクスペリエンスに焦点を当てたセールス戦略と収益拡大をリードするなど、豊富な経験を誇ります。（早稲田大学大学院修士課程修了）
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -49,10 +49,10 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -78,22 +78,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-unlocking-the-secrets-of-turning-online-videos-into-desktop-music-files-for-2024/"><u>[New] Unlocking the Secrets of Turning Online Videos Into Desktop Music Files for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-facebook-financial-gains-a-step-by-step-guide-for-2024/"><u>[Updated] Unlocking Facebook Financial Gains A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>2024 Approved Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/amazing-results-how-clearing-my-over-ten-years-youtube-history-made-me-feel/"><u>Amazing Results: How Clearing My Over Ten Years YouTube History Made Me Feel</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-videos-youtube-tools-and-more-for-2024/"><u>Crafting Videos YouTube Tools and More for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-vivo-s17e-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo S17e Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-samsung-galaxy-s23-fe-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Samsung Galaxy S23 FE Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-eliminating-crashes-in-diablo-ii-reimagined-edition/"><u>Troubleshooting Guide: Eliminating Crashes in Diablo II Reimagined Edition</u></a></li>
-<li><a href="https://howto.techidaily.com/xiaomi-13t-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi 13T Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-10-stellar-tools-that-amplify-your-videos-youtube-presence/"><u>[New] 2024 Approved 10 Stellar Tools That Amplify Your Video's YouTube Presence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-your-youtube-potential-by-dodging-these-8-typical-mistakes/"><u>[New] Unlock Your YouTube Potential by Dodging These 8 Typical Mistakes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/circumventing-video-send-blockages-in-facebook-chat-apps-for-2024/"><u>Circumventing Video Send Blockages in Facebook Chat Apps for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-our-cookiebot-driven-technology/"><u>Enhanced Personalization with Our Cookiebot-Driven Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-optimization-with-cookiebot-technology/"><u>Enhanced Traffic Optimization with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-trouble-free-play-no-more-runescape-game-disruptions/"><u>Mastering Trouble-Free Play: No More RuneScape Game Disruptions</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-honor-magic-vs-2-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Honor Magic Vs 2 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

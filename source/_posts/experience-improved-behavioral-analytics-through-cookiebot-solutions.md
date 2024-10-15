@@ -1,7 +1,7 @@
 ---
 title: Experience Improved Behavioral Analytics Through Cookiebot Solutions
-date: 2024-10-01T16:59:56.091Z
-updated: 2024-10-08T17:52:30.434Z
+date: 2024-10-11T20:52:23.739Z
+updated: 2024-10-14T16:52:42.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ade566529a7bc97aed23a78dd1be17314340f234a16c9d2f0b2b465091d3ea91.jpg
@@ -43,6 +43,13 @@ Only 6% of attendees to the SSON webinar described their AP department as being 
 
 ![blog-ap-challenge-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Uncovering AP challenges
 
 "Before automating its AP process with AI-powered IDP solutions, this global snack-food supplier used to face data entry errors and the other types of AP challenges identified by shared services leaders who attended the SSON webinar,” said Donald Bunch, senior manager for automation development and governance at the multinational food enterprise. In many cases, staff had to handle the same document multiple times. 
@@ -60,10 +67,10 @@ As a result, invoices were processed differently in France, Brazil, and Italy.
 “We needed to design a solution that would encompass all these different markets and variations and still allow the company to service the unique needs of individual localities,” Bunch explained. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How AI is used in invoice processing
@@ -82,17 +89,16 @@ AI-powered solutions can liberate AP staff from the manual, repetitive tasks tha
 ![blog-ap-challenge-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/how-a-multinational-food-enterprise-uses-ai-to-achieve-delicious-results/blog-ap-challenge-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Benefits of transforming AP into a strategic powerhouse
@@ -118,10 +124,10 @@ Curious to learn more about how a multinational snack food supplier used AI-powe
 ![Mark-Brousseau](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/Mark-Brousseau.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Mark Brousseau
@@ -191,22 +197,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-mastering-cinematic-art-with-top-ten-professional-tools/"><u>[New] 2024 Approved Mastering Cinematic Art with Top Ten Professional Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-future-of-youtube-branding-top-titles-for-video-content-creators-limited-to-156-characters/"><u>[New] The Future of Youtube Branding Top Titles for Video Content Creators (Limited to 156 Characters)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-unveiling-the-best-budget-friendly-live-streamer-tools-for-2024/"><u>[New] Unveiling the Best Budget-Friendly Live Streamer Tools for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-best-free-webcam-video-capture-software/"><u>[Updated] In 2024, Best Free Webcam Video Capture Software</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-graphic-design-journeys-from-passion-to-profession/"><u>[Updated] In 2024, Graphic Design Journeys From Passion to Profession</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-visual-storytelling-with-your-canon-timelapse-toolkit/"><u>[Updated] Unlocking Visual Storytelling with Your Canon Timelapse Toolkit</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/chromefirefox/"><u>【Chrome・Firefox】動画ダウンロードソフトワックスにおける代替アプリケーションとその使い方</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-soundwaves-on-social-a-guide-to-embedding-tracks-in-stories/"><u>2024 Approved Soundwaves on Social A Guide to Embedding Tracks in Stories</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/best-mp3-to-wav-converters-top-picks-for-windows-and-macos/"><u>Best MP3 to WAV Converters: Top Picks for Windows & macOS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comparing-apple-itunes-with-microsofts-zune-which-media-player-wins-out/"><u>Comparing Apple iTunes with Microsoft's Zune: Which Media Player Wins Out?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/conversion-mts-avi-and-positive-adjectives-like-simple-swift-fast-and-effortless/"><u>Conversion, MTS, AVI, and Positive Adjectives Like Simple, Swift, Fast, and Effortless.</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/convert-mp4-audio-tracks-to-mp3-files-free-of-charge-in-windows-10/"><u>Convert MP4 Audio Tracks to MP3 Files Free of Charge in Windows 10</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-an-animated-gif-with-integrated-audio-a-step-by-step-guide/"><u>Creating an Animated GIF With Integrated Audio: A Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cutting-your-videos-into-halves-across-all-platforms-pc-mac-iphone-and-android/"><u>Cutting Your Videos Into Halves Across All Platforms: PC, Mac, iPhone & Android</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/download-animated-shiva-artwork-without-cost-or-hassle-top-tips-and-tricks/"><u>Download Animated Shiva Artwork Without Cost or Hassle: Top Tips and Tricks</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-realme-v30-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Realme V30 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-tecno-spark-10-pro-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Tecno Spark 10 Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-closer-views-for-efficient-tech-meetings/"><u>[New] 2024 Approved Navigating Closer Views for Efficient Tech Meetings</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-most-favored-5-iphones-podcast-apps/"><u>[New] In 2024, Most Favored 5 iPhones Podcast Apps</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-savor-the-viral-tiktoks-culinary-hitslist/"><u>[Updated] 2024 Approved Savor the Viral TikTok's Culinary Hitslist</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-sizing-up-how-to-make-videos-work-in-instagram-bests/"><u>2024 Approved Sizing Up How to Make Videos Work in Instagram Bests</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/download-asus-drivers-for-windows-10-and-7/"><u>Download ASUS Drivers for Windows 10 & 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c12-pro-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Nokia C12 Pro Bootloader Easily</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
 </ul></div>
 

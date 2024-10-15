@@ -1,7 +1,7 @@
 ---
 title: "Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology"
-date: 2024-10-05T17:12:59.347Z
-updated: 2024-10-08T16:22:04.096Z
+date: 2024-10-09T18:31:05.005Z
+updated: 2024-10-15T00:35:26.193Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03036a5859c384dd9ace3b529.jpg
@@ -20,10 +20,10 @@ July 27, 2017
 All of Tolstoy in One Click is an international crowdsourcing project that unites technologies and social effort. It continues the current trend of preserving cultural heritage –– for global audiences and inspires a number of other similar projects.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tolstoy: famous and rare
@@ -35,10 +35,10 @@ Apart from the finished works of fiction - prose, poetry, drama - these volumes 
 However, by the turn of the 21st century, the great writer’s works were turning into a bibliographic rarity. Unless preserved, it would have been a huge loss not only to millions of the writer's admirers, but also for universities, historians, and modern writers.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Tolstoy fans used technologies
@@ -56,10 +56,10 @@ The work of volunteers was organized through a dedicated website – [readingtol
 As a result, the entire 46,820 pages and 14.5 million words were recognized and proofread within 14 days at the rate of 8.5 book volumes per day.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## From archive digitization to a trendsetting project
@@ -75,10 +75,10 @@ _By Daria Kertsenbaum_
 [OCR](https://tools.techidaily.com/abbyy/products/) [PDF](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -106,20 +106,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-cam-cover-selection-made-simple-with-our-10-picks/"><u>[Updated] Cam Cover Selection Made Simple with Our 10 Picks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/g9xii-review-the-perfect-companion-for-the-budding-vintage-style-travel-photographer/"><u>G9XII Review – The Perfect Companion for the Budding Vintage-Style Travel Photographer</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-word-2023-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for Word 2023 document</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-xiaomi-14-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Xiaomi 14 Pro?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-poco-x6-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Poco X6 Pro Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/master-your-windows-with-chatgpt/"><u>Master Your Windows with ChatGPT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-instructions-for-downloading-inshot-editing-software-on-pc/"><u>Step-by-Step Instructions for Downloading InShot Editing Software on PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-tutorial-converting-movies-tofrom-wmv-with-simple-techniques/"><u>Step-by-Step Tutorial: Converting Movies To/From WMV with Simple Techniques</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-shake-it-off-8-excellent-free-video-stabilizers-to-try-this-year/"><u>Updated Shake It Off 8 Excellent Free Video Stabilizers to Try This Year</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-your-daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>[New] Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-spectral-sync-solutions/"><u>[Updated] In 2024, Spectral Sync Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-learn-youtube-editing-tricks-for-flawless-shortening/"><u>[Updated] Learn YouTube Editing Tricks for Flawless Shortening</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-visual-identity-top-6-sources-for-youtube-icons-and-logos/"><u>[Updated] Mastering Visual Identity Top 6 Sources for YouTube Icons & Logos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-fix-for-error-cannot-find-file-mscorwksdll/"><u>Complete Fix for Error: Cannot Find File MSCORWKS.DLL</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/from-novice-to-pro-a-compreenhensive-guide-to-gifs-in-snapchat/"><u>From Novice to Pro A Compreenhensive Guide to Gifs in Snapchat</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y100a-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y100A to Outlook | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-depth-analysis-of-vlc-recorder-app-for-2024/"><u>In-Depth Analysis of VLC Recorder App for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
 </ul></div>
 

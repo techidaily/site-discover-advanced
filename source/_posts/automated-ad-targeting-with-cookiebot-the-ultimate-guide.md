@@ -1,7 +1,7 @@
 ---
 title: "Automated Ad Targeting with Cookiebot: The Ultimate Guide"
-date: 2024-10-03T17:22:41.205Z
-updated: 2024-10-08T17:25:29.846Z
+date: 2024-10-13T21:14:24.515Z
+updated: 2024-10-14T17:55:32.236Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb6fabc72096593a99e32594f.png
@@ -23,9 +23,23 @@ AI suffers from a major problem of bias within companies — and this compromise
 
 The number of companies adopting AI has increased from 10% four years ago to 37% in 2019, according to Gartner’s survey of 3,000 CIOs. In the short term, companies should try to build an ethic around their use of AI. But they must also be strategic in [integrating AI into business](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fixing cultural bias
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28681/ai-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The concept of “test and fail” will be essential for the successful introduction of AI in the enterprise. AI needs a culture where failure is accepted, which is averse to the traditional IT-driven culture. By adopting a trial-and-error approach, AI algorithms can be refined and improved on an ongoing basis, ultimately resulting in the best return on investment.
 
@@ -35,21 +49,22 @@ Firms that have already financed digital transformations, and have hardly benefi
 
 _Learn about ABBYY's approach to [trustworthy AI](https://tools.techidaily.com/abbyy/products/) here._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Include responsibility and accountability
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28683/ai-2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To successfully implement AI projects in hypersensitive domains such as finance, where compliance with certain types of regulations is mandatory, you will need to incorporate accountability for specific factors related to mandatory regulations. This helps answer these types of questions:
@@ -64,27 +79,20 @@ By enabling accountability for these types of issues, it will create transparenc
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28685/ai-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Setting up an in-house AI team will be one of the means that will allow you to develop your AI projects. By calling on AI talents in specific divisions, you will have a solid team that can help you recruit and retain your employees. New AI-related teams and job descriptions will need to be created by adding scientists, data engineers, and machine learning engineers to your staff.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Practicing participatory design
 
 Another way to create a more sustainable solution to building responsible AI is to base it on participatory design, which includes the humans who are involved in the actual use of the final solution.
 
 Picture this. If an automated software is to be used in a call center to help reduce an employee’s workload, it is preferable that customers, a call center supervisor, and a call center employee be involved in the development process.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Plan your AI budget
 
@@ -98,23 +106,9 @@ Source: [Deloitte](https://www.cio.com/article/3393443/state-auto-taps-rpa-to-cu
 
 Therefore, a key action to take quickly is to define a budget for your future AI project as it will require a lot of funds — the absence of which will result in the total failure of the project.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Start small and experiment
 
 ![7 Tips for Bringing Artificial Intelligence into Your Organization](https://static1.abbyy.com/abbyycommedia/28689/ai-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Although you want to develop your artificial intelligence strategy as quickly as possible, it requires a little patience and experimentation. It is best to create a small number of artificial intelligence resources that are difficult to implement. Tailor these resources so that they give you an advantage in your industry. This may require the use of specific data that has been carefully researched and used in the development of AI applications.
 
@@ -199,22 +193,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-the-realm-of-melodies-where-to-get-hearing-heroes-ringtones/"><u>[New] The Realm of Melodies Where to Get Hearing Heroes' Ringtones</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-earnings-escalate-500-subscriber-marker-achieved/"><u>[Updated] 2024 Approved Earnings Escalate 500-Subscriber Marker Achieved</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-perfecting-your-videos-narrative-integrating-timestamps-smartly/"><u>[Updated] Perfecting Your Video's Narrative Integrating Timestamps Smartly</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-samsung-galaxy-m34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-boosts-leadership-with-neil-murphys-promotion-to-chief-sales-officer/"><u>ABBYY Boosts Leadership with Neil Murphy's Promotion to Chief Sales Officer</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-erleichtert-die-verwendung-von-eucon-in-ihrer-dokumentenbearbeitung/"><u>ABBYY Erleichtert Die Verwendung Von Eucon In Ihrer Dokumentenbearbeitung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-launches-advanced-ai-driven-automation-hub-in-lithuania-a-leap-towards-smart-process-transformation/"><u>Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-newest-thunderbolt-drivers-for-your-windows-system-today/"><u>Get the Newest Thunderbolt Drivers for Your Windows System Today!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/google-serp-features-local-pack-by-link-assistant-rank-tracker-serp-analysis-serp-analysis/"><u>Google SERP Features - Local Pack</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-fix-d3dx925dll-is-missing-or-not-found-errors/"><u>How to Fix D3dx9_25.dll Is Missing or Not Found Errors</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
-<li><a href="https://win-web3.techidaily.com/top-tips-for-successfully-creating-your-own-apple-music-cd/"><u>Top Tips for Successfully Creating Your Own Apple Music CD</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/winxvideo-ia-para-mejora-automatica-y-control-total-sobre-imagenes-y-videos-crear-editar-conversion-y-grabacion-perfecta/"><u>Winxvideo IA Para Mejora Automática Y Control Total Sobre Imágenes Y Videos. Crear, Editar, Conversión Y Grabación Perfecta</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-charting-new-territories-innovations-in-office-spaces-for-enhanced-output/"><u>[New] Charting New Territories Innovations in Office Spaces for Enhanced Output</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-advertising-solutions-for-effective-digital-campaigns/"><u>Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-boost-your-sites-visibility-and-conversions/"><u>Cookiebot-Enabled: Boost Your Site's Visibility & Conversions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhancing-user-experience-with-personalized-data-tracking/"><u>Cookiebot-Enabled: Enhancing User Experience with Personalized Data Tracking</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-4-ways-to-record-facebook-live-stream/"><u>In 2024, 4 Ways to Record Facebook Live Stream</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/navigate-the-maze-of-macos-for-streamlined-video-resizing-to-instagram/"><u>Navigate the Maze of MacOS for Streamlined Video Resizing to Instagram</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-errors-in-windows-memory-check-tool/"><u>Overcoming Errors in Windows Memory Check Tool</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/pc-windows-11-live-usb/"><u>PC初期設定に向けての簡単リフレッシュ - Windows 11 Live USB構築ガイドとブートプロセス解説</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-sound-selection-best-wired-earbuds/"><u>Ultimate Sound Selection: Best Wired Earbuds</u></a></li>
 </ul></div>
 

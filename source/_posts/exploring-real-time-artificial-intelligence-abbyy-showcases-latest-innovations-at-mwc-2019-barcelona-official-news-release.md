@@ -1,7 +1,7 @@
 ---
 title: "Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release"
-date: 2024-10-07T16:49:22.443Z
-updated: 2024-10-08T18:42:09.357Z
+date: 2024-10-10T21:54:18.387Z
+updated: 2024-10-15T00:49:21.852Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7b4c7d026fb9a820758c805a32df2a4b6a1efba9319850eda25937764e730c5.jpg
@@ -66,21 +66,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/updated-capturing-panoramic-shots-iphone-guide/"><u>[Updated] Capturing Panoramic Shots IPhone Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-mkv-movies-content-on-xiaomi-redmi-note-12t-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Xiaomi Redmi Note 12T Pro</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-gt-neo-5-se-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme GT Neo 5 SE</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-overcoming-discord-stream-interruptions-for-smooth-gameplay-sharing/"><u>Step-by-Step Guide: Overcoming Discord Stream Interruptions for Smooth Gameplay Sharing</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-solutions-preventing-discord-app-crashes-for-smooth-gaming/"><u>Step-by-Step Solutions: Preventing Discord App Crashes for Smooth Gaming</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-unbeatable-5-photo-backdrop-switchers-for-x8-series/"><u>[New] Unbeatable 5 Photo Backdrop Switchers for X/8 Series</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-instagram-your-complete-guide-to-making-a-mark-with-reels/"><u>2024 Approved Mastering Instagram Your Complete Guide to Making a Mark With Reels</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-traffic-generation-with-cookiebot-technology/"><u>Automated Traffic Generation with Cookiebot Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budgeted-skyvault-storing-mountains-of-data-for-2024/"><u>Budgeted SkyVault Storing Mountains of Data for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/carlsberg-utilise-abpyy-pour-raccourcir-le-processus-de-commercialisation-de-ses-offres/"><u>Carlsberg Utilise ABPyy Pour Raccourcir Le Processus De Commercialisation De Ses Offres</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-marketing-solutions-enhance-your-seo-strategies/"><u>Cookiebot-Driven Marketing Solutions: Enhance Your SEO Strategies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-sites-seo-with-leading-tracking-technology/"><u>Cookiebot-Enabled: Enhance Your Site's SEO with Leading Tracking Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-enhance-your-websites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhance Your Website's Personalization and Analytics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/examining-vidma-as-a-video-recorder-for-screens-for-2024/"><u>Examining Vidma as a Video Recorder for Screens for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-poco-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Poco</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-step-by-step-mastery-how-to-design-your-vr-alter-egos-efficiently/"><u>In 2024, Step-by-Step Mastery How to Design Your VR Alter Egos Efficiently</u></a></li>
+<li><a href="https://driver-install.techidaily.com/perfect-display-performance-via-hp-drivers-windows-10/"><u>Perfect Display Performance via HP Drivers, Windows 10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/precision-and-performance-in-every-shade-the-eizo-cg318-4k-monitor-for-2024/"><u>Precision and Performance in Every Shade – The EIZO CG318-4K Monitor for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-definitive-selection-of-the-top-8-tv-streaming-sites-to-watch-in-202/"><u>The Definitive Selection of the Top 8 TV Streaming Sites to Watch in 202</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

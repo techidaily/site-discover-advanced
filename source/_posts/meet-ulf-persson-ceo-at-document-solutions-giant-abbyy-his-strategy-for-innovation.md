@@ -1,7 +1,7 @@
 ---
 title: "Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation"
-date: 2024-10-04T17:32:47.032Z
-updated: 2024-10-08T17:46:57.673Z
+date: 2024-10-11T17:18:21.766Z
+updated: 2024-10-14T17:52:50.657Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ff2e2b344a8396c6bab8264d1025798025a6c7a29bed97ca0ab60000543775d0.jpg
@@ -24,10 +24,10 @@ Throughout his career, Ulf has been involved as an investor and board member in 
 Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School of Economics and the Swedish Defense Language Institute.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -49,22 +49,16 @@ Ulf holds a B.Sc. degree in Economics and is an alumnus of the Stockholm School 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-best-8-platforms-for-professional-linux-editing/"><u>[New] In 2024, Best 8 Platforms for Professional Linux Editing</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/2-decouvrez-les-principes-fondamentaux-de-la-politique-de-confidentialite-de-movavi-pour-assurer-la-vie-privee-en-ligne/"><u>2. Découvrez Les Principes Fondamentaux De La Politique De Confidentialité De Movavi Pour Assurer La Vie Privée en Ligne</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-seamless-and-efficient-web-tracking/"><u>Automated with CookieBot: Seamless and Efficient Web Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-with-cookiebot-streamlining-your-websites-user-experience/"><u>Automated with Cookiebot: Streamlining Your Website's User Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automatische-erfassung-von-rechnungen-mit-abbyy-bei-der-deurag-hotel-holding-gmbh/"><u>Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-digital-footprint-effortlessly-using-cookiebot-technology-for-superior-seo-results/"><u>Boost Your Digital Footprint Effortlessly Using Cookiebot Technology for Superior SEO Results</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-website-traffic-efficiently-the-secrets-of-cookiebots-smart-analytics-solutions/"><u>Boost Your Website Traffic Efficiently: The Secrets of Cookiebot's Smart Analytics Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-personalization-elevate-your-websites-engagement/"><u>Cookiebot Driven Personalization: Elevate Your Website's Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-empowered-solutions-advanced-analytics-and-personalized-marketing-techniques/"><u>Cookiebot Empowered Solutions: Advanced Analytics and Personalized Marketing Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-advertising-solutions-for-effective-digital-campaigns/"><u>Cookiebot-Enabled Advertising Solutions for Effective Digital Campaigns</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-graphics-card-drivers-on-windows-11-fast-and-simple-download/"><u>Get the Latest NVIDIA Graphics Card Drivers on Windows 11: Fast and Simple Download</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-big-thing-on-facebook-enhanced-story-panel-features/"><u>Next Big Thing on Facebook? Enhanced Story Panel Features</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/shutting-down-defender-firewall-in-windows-11-easily/"><u>Shutting Down Defender Firewall in Windows 11 Easily</u></a></li>
-<li><a href="https://win11.techidaily.com/techniques-to-fix-inaudible-microphone-during-screen-recordings/"><u>Techniques to Fix Inaudible Microphone During Screen Recordings</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-free-and-easy-3gp-video-rotation-top-picks-for-this-year-for-2024/"><u>Updated Free and Easy 3GP Video Rotation Top Picks for This Year for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-teen-riches-skyrocket-with-viral-video-empire/"><u>[New] 2024 Approved Teen Riches Skyrocket with Viral Video Empire</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-brief-tips-on-easy-audiovideo-recording-in-gotomeeting/"><u>In 2024, Brief Tips on Easy Audio/Video Recording in GoToMeeting</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-15-plus-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 15 Plus? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mariko-maeda-takes-the-helm-at-abbyy-japan-with-vision-for-continued-growth-in-japanese-markets/"><u>Mariko Maeda Takes the Helm at ABBYY Japan with Vision for Continued Growth in Japanese Markets</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marketing-mastery-unleashed-exploring-the-impact-of-advanced-bot-solutions/"><u>Marketing Mastery Unleashed: Exploring the Impact of Advanced Bot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-problem-get-your-razer-man-o-war-microphone-up-and-running-again/"><u>Solving the Problem: Get Your Razer Man O' War Microphone Up and Running Again</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Infinix Hot 30 5G? | Dr.fone</u></a></li>
 </ul></div>
 

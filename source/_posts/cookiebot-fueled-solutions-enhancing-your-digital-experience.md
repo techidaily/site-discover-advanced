@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Fueled Solutions: Enhancing Your Digital Experience"
-date: 2024-10-07T18:47:32.550Z
-updated: 2024-10-08T18:00:22.971Z
+date: 2024-10-09T22:10:47.714Z
+updated: 2024-10-14T21:08:24.721Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
@@ -26,38 +26,11 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 まず、AI自動学習機能を用いた文書仕分けについてご紹介いたします。  
 文書仕分けの設定・確認は次の4ステップのみで、非常に簡単に実行可能です。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. 文書定義作成
 
 仕分け結果の格納先となる文書定義名を作成します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30089/pic-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. 仕分け用トレーニングバッチ作成、学習用画像読み込み
 
@@ -78,10 +51,23 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30093/pic-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. 仕分けトレーニング（仕分け学習）とトレーニング結果の設定
@@ -90,15 +76,36 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30094/pic-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 結果に問題なければ、トレーニング結果を認識処理時に適用する設定を実施します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30095/pic-7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. 作業バッチで結果を確認
 
 作業バッチでテスト画像を読み込み、正しく仕分けが行われることを確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30096/pic-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 では、次にAI自動学習によるデータ抽出についてご紹介いたします。  
 データ抽出設定・確認方法は、次の4ステップになります。  
@@ -116,22 +123,15 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30098/pic-10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 次に、作成したバッチにトレーニング用のサンプル画像ファイルを読み込み、認識を実行します。また、それぞれのサンプル画像に対し「学習用」「テスト用」を設定します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30099/pic-11.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. フィールド抽出トレーニングの実施
@@ -142,29 +142,22 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30100/pic-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 以上でトレーニングの準備が整いましたので、学習ボタンをクリックする事によりトレーニングを実行、トレーニングが完了次第認識処理を実施し、結果を確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30101/pic-13.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. 作業バッチで結果を確認
 
 作業バッチでテスト画像を読み込み、正しくフィールド抽出が行われていることを確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30102/pic-14.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 いかがでしょうか？
 
@@ -187,6 +180,13 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) [コンテンツの理解](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYY Japan エンジニアリングチーム
 
@@ -253,20 +253,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-du-recorder-features-and-review-for-2024/"><u>[Updated] Du Recorder Features and Review for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-visionary-video-download-engine-capture-and-save-anywhere/"><u>[Updated] In 2024, Visionary Video Download Engine - Capture & Save Anywhere</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-rx-580-graphics-card-update-made-easy-secure-and-upgrade-your-drivers-today/"><u>AMD RX 580 Graphics Card Update Made Easy: Secure and Upgrade Your Drivers Today</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-comprehensive-guide-scaling-up-youtube-media/"><u>In 2024, Comprehensive Guide Scaling Up YouTube Media</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/injecting-spark-into-your-unique-podcast-format/"><u>Injecting Spark Into Your Unique Podcast Format</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/premier-selection-top-8-webcams-transform-livestreaming-for-2024/"><u>Premier Selection Top 8 Webcams Transform Livestreaming for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/provoking-the-giants-a-detailed-comparison-between-iphone-15-and-pro-max-features/"><u>Provoking the Giants: A Detailed Comparison Between iPhone 15 and Pro Max Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-the-complexity-of-youtube-thumbnail-psychology/"><u>[Updated] Navigating the Complexity of YouTube Thumbnail Psychology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-ai-ocr-rpa/"><u>伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-ascendant-a-la-tete-de-son-equipe-avec-lannonce-de-neil-murphy-comme-nouvel-chief-sales-officer/"><u>ABBYY Ascendant À La Tête De Son Équipe Avec L'annonce De Neil Murphy Comme Nouvel Chief Sales Officer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-compreno-crowned-innovative-leader-of-2016-by-kmworld-magazine/"><u>ABBYY Compreno Crowned 'Innovative Leader of 2016' By KMWorld Magazine</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-8-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-tactics-for-spotify-ad-mastery-for-2024/"><u>Innovative Tactics for Spotify Ad Mastery for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/revive-your-acers-speakers-a-guide-to-resolving-no-sound-problems/"><u>Revive Your Acer's Speakers: A Guide to Resolving No-Sound Problems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/windows-pc-bring-out-the-best-in-your-videos-for-2024/"><u>Windows PC Bring Out the Best in Your Videos for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY"
-date: 2024-10-05T16:01:01.585Z
-updated: 2024-10-08T18:52:40.965Z
+date: 2024-10-08T02:00:19.782Z
+updated: 2024-10-14T22:23:10.287Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ed59cfb64274f1c3cef31ec193da51a46dc4b1758c31b372bba92f57a24379da.jpg
@@ -36,16 +36,10 @@ Paul has built and managed information and cyber security programs in sectors su
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,10 +49,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -66,10 +60,10 @@ ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -96,16 +90,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-live-tv-is-vmix-or-wirecast-your-go-to-tool/"><u>2024 Approved Mastering LIVE TV Is VMix or Wirecast Your Go-To Tool?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-capturequality-assessor-network/"><u>In 2024, CaptureQuality Assessor Network</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 12</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-ios-a-comprehensive-guide-to-sending-voicemails-with-your-iphone/"><u>Mastering iOS: A Comprehensive Guide to Sending Voicemails with Your iPhone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-places-to-find-background-music-for-videos/"><u>Top Places to Find Background Music for Videos</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshoot-pc-lag-in-halo-infinite-discover-7-effective-ways-to-ensure-smooth-gameplay/"><u>Troubleshoot PC Lag in Halo Infinite: Discover 7 Effective Ways to Ensure Smooth Gameplay</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-boost-your-instagram-vids-visibility/"><u>[New] 2024 Approved How to Boost Your Instagram Vids' Visibility</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-edit-photos-on-snapchat/"><u>[Updated] 2024 Approved How to Edit Photos on Snapchat</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-twitch-recording-a-users-playbook/"><u>[Updated] In 2024, Navigating Twitch Recording A User's Playbook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-hdr-capturing-dynamic-range-in-your-images/"><u>[Updated] IPhone HDR Capturing Dynamic Range in Your Images</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/10-best-free-passport-photo-maker-online-and-desktop-for-2024/"><u>10 Best Free Passport Photo Maker Online and Desktop for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/2022-spark-matrix-by-quadrant-smart-document-management/"><u>2022 Spark Matrix by Quadrant: Smart Document Management</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/6yer6j6n44k144o844ot44k544gr44gk44gr44kl6z2e5qel6ycg5yyw44kz44oz44og44oz44oe44gu5aplusplus5yem5pa55rov44ks6kej44gn5pio44gl44gz/"><u>金融サービスにおける非構造化コンテンツの対処方法を解き明かす</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbeyy-finescanner-80-abbeyy/"><u>ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-announces-chip-vonburgs-appointment-to-chief-of-strategic-customer-growth-initiatives/"><u>ABBYY Announces Chip vonBurg's Appointment to Chief of Strategic Customer Growth Initiatives</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-uninterrupted-gaming-overcome-halo-infinite-freezing-on-your-pc-using-our-top-ebx-fix-strategies/"><u>Master Uninterrupted Gaming: Overcome 'Halo Infinite' Freezing on Your PC Using Our Top Ebx Fix Strategies</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-cure-overcome-m-audio-driver-fails/"><u>Quick Cure: Overcome M-Audio Driver Fails</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44oc44oi44or44on44od44kv6kej5rai77ya44k144ox44op44kk44ob44kn44o844oz6ygl55so44ks5ps55zae44gz44kl44gf44kb44gu44k544kt44or44ki44ox44ot44o844ob/"><u>ボトルネック解消：サプライチェーン運用を改善するためのスキルアプローチ</u></a></li>
 </ul></div>
 

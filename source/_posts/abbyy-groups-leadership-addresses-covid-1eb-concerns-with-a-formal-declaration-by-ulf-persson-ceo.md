@@ -1,7 +1,7 @@
 ---
 title: ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO
-date: 2024-10-03T18:51:08.207Z
-updated: 2024-10-08T17:34:21.079Z
+date: 2024-10-09T21:25:21.212Z
+updated: 2024-10-14T20:39:50.547Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1ee9fa4b40235e3cbfd62f11.jpg
@@ -49,29 +49,29 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-average-podcast-income-whats-the-payoff/"><u>[New] 2024 Approved Average Podcast Income What's the Payoff?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-step-by-step-screenshot-procedures-for-hp-devices/"><u>[Updated] 2024 Approved Step-by-Step Screenshot Procedures for HP Devices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-srt-shift-magic-subtitles-subc-conversion-guide/"><u>[Updated] SRT Shift Magic Subtitles (SUBC) Conversion Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-video-aspects-online/"><u>2024 Approved Mastering Video Aspects Online</u></a></li>
-<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-samsung-galaxy-a23-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Samsung Galaxy A23 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/breaking-down-steam-user-id-location/"><u>Breaking Down Steam User ID Location</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-between-gps-and-cellular-a-comprehensive-guide-for-apple-watch-users/"><u>Choosing Between GPS and Cellular – A Comprehensive Guide for Apple Watch Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/idp-implementation-strategies-transforming-the-future-of-insurance-operations/"><u>IDP Implementation Strategies: Transforming the Future of Insurance Operations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leveraging-cookiebot-technology-for-advanced-site-engagement-and-seo-success/"><u>Leveraging Cookiebot Technology for Advanced Site Engagement and SEO Success</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/leveraging-windows-11-and-intel-unison-for-smooth-phone-integration/"><u>Leveraging Windows 11 & Intel Unison for Smooth Phone Integration</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-potential-virus-clues-in-windows-task-scheduling/"><u>Understanding Potential Virus Clues in Window's Task Scheduling</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-effective-color-difference-filters-in-film-making/"><u>[New] Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-to-success-top-hashtags-for-6-figure-views-on-youtube/"><u>[Updated] In 2024, Elevate to Success Top Hashtags for 6-Figure Views on YouTube</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-free-substitutes-for-netflix-you-shouldnt-miss/"><u>Best Free Substitutes for Netflix You Shouldn't Miss</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-lava-agni-2-5g-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Lava Agni 2 5G</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-navigate-your-gaming-world-with-steams-switch-controller/"><u>In 2024, Navigate Your Gaming World with Steam's Switch Controller</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-secrets-low-light-iphone-photography/"><u>In 2024, Unveiling Secrets Low Light iPhone Photography</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/sound-sculpting-on-android-the-7-ultimate-audio-editing-apps/"><u>Sound Sculpting on Android The 7 Ultimate Audio Editing Apps</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-ultimate-guide-to-charming-and-unique-ringtones/"><u>The Ultimate Guide to Charming and Unique Ringtones</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-motorola-moto-g23-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Motorola Moto G23 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

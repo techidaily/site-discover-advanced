@@ -1,7 +1,7 @@
 ---
 title: "Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role"
-date: 2024-10-01T19:23:13.296Z
-updated: 2024-10-08T16:56:29.981Z
+date: 2024-10-13T22:46:39.404Z
+updated: 2024-10-14T20:46:56.337Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16477a8d9fa6304264e3f24e3.jpg
@@ -37,10 +37,10 @@ Before joining ABBYY, Mr. Shimizu spent more than 30 years at RICOH, being respo
 _1 IDC Worldwide Intelligent Process Automation Software Forecast, 2021-2025; July 2021 #US48015622_
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -50,10 +50,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -61,10 +61,16 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -91,17 +97,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-action-capturing-software-guide-for-2024/"><u>[Updated] Top Action-Capturing Software Guide for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-step-by-step-guide-converting-mkv-videos-into-mov-format-across-windows-macos-and-web-services/"><u>1. Step-by-Step Guide: Converting MKV Videos Into MOV Format Across Windows, macOS, & Web Services</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-transforming-your-vertical-videos-into-horizontal-a-free-guide/"><u>1. Transforming Your Vertical Videos Into Horizontal: A Free Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-ultimate-media-toolkit-free-wonderfox-download-center-hd-conversion-and-dvd-ripping-solutions/"><u>1. Ultimate Media Toolkit: Free WonderFox Download Center - HD Conversion & DVD Ripping Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/xmedia-recode-mp4movm2ts/"><u>動画再コーディング手順：XMedia Recode MP4、MOV、M2TSの変換方法</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/challenge-yourself-with-chatgpts-hottest-gaming-delights/"><u>Challenge Yourself with ChatGPT’s Hottest Gaming Delights</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-headlines-with-effective-slug-lines/"><u>In 2024, Optimizing Headlines with Effective Slug Lines</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-twitch-broadcasting-the-quintessential-top-5-tools-you-need-to-succeed/"><u>Mastering Twitch Broadcasting: The Quintessential Top 5 Tools You Need to Succeed</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-tier-voice-to-text-applications-for-2024/"><u>Top Tier Voice to Text Applications for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/vantage-point-critique-for-2024/"><u>Vantage Point Critique for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/view-count-rewards-on-youtube-per-million-in-2024/"><u>View Count Rewards on YouTube – Per Million, In 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027295203-microsoft-teams/"><u>レコーディング機能に問題がある時、Microsoft Teamsでどうすれば良いか</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-novice-to-expert-navigating-windows-11s-movie-maker-easily/"><u>[New] In 2024, From Novice to Expert Navigating Windows 11'S Movie Maker Easily</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-chromebook-and-hp-efficient-webcam-recording-tips-for-2024/"><u>[Updated] Chromebook & HP Efficient Webcam Recording Tips for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-essential-asmr-channel-discoveries/"><u>[Updated] Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-vision-navigating-video-degrees-with-ease/"><u>[Updated] YouTube Vision Navigating Video Degrees with Ease</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-get-videoproc-app-streamlined-video-editing-on-the-go/"><u>1. Get VideoProc App: Streamlined Video Editing on the Go</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-crafting-perfect-slack-filmo-meeting-experiences/"><u>2024 Approved Crafting Perfect Slack-Filmo Meeting Experiences</u></a></li>
+<li><a href="https://games-able.techidaily.com/celebrating-indie-innovations-my-curated-collection/"><u>Celebrating Indie Innovations: My Curated Collection</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-user-engagement/"><u>Cookiebot Driven Solutions: Enhance Your Site's User Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-tailored-seo-and-marketing-strategies/"><u>Cookiebot-Driven Solutions | Tailored SEO & Marketing Strategies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhancing-digital-engagement/"><u>Cookiebot-Driven Solutions: Enhancing Digital Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-technology-boosting-website-efficiency-and-tracking-success/"><u>Cookiebot-Driven Technology: Boosting Website Efficiency and Tracking Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimizing-your-website-with-advanced-tracking-and-analytics/"><u>Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-15-pro-to-other-iphone-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 15 Pro to Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-oppo-find-n3-flip-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Oppo Find N3 Flip for Streaming | Dr.fone</u></a></li>
 </ul></div>
 

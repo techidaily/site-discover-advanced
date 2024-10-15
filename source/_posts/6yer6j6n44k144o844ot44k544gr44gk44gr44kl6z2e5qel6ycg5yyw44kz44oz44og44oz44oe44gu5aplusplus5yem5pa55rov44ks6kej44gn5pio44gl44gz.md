@@ -1,7 +1,7 @@
 ---
 title: 金融サービスにおける非構造化コンテンツの対処方法を解き明かす
-date: 2024-10-02T19:03:17.501Z
-updated: 2024-10-08T16:17:57.604Z
+date: 2024-10-08T00:08:27.028Z
+updated: 2024-10-14T16:10:12.863Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a98c24ab59e2903c5366daaa.jpg
@@ -26,10 +26,16 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 **[金融サービス向けのドキュメントスキルで、自動化の障害となる非構造化コンテンツを克服する。](https://static4.abbyy.com/abbyycommedia/34902/checklist-financialservices-documentskillsmarketplace-ja.pdf?itm%5Fsource=corpblog-ja)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 金融関係文書の自動作成における非構造化データ
@@ -40,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 
 ![workers using NLP in finance](https://static1.abbyy.com/abbyycommedia/34754/skills-for-finansial-services-2-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 金融における自然言語処理（NLP）
 
 自然言語処理（NLP）は、金融機関が非構造化文書から価値のあるデータや事実を発掘し、財務報告書、法的命令、定款、契約書、合意書、物件説明書、さらにはニュース、ブログ、およびソーシャルメディアのコンテンツなど、顧客に関する重要な詳細情報が含まれている可能性のある複雑な文書の面倒な調査を最適化するのに役立ちます。 これらの情報源からインサイトを得るためのソリューションとして、これまで手作業による調査が行われてきましたが、これは本質的に不正確で一貫性がなく、重要な詳細情報を見落とすリスクが高くなります。
@@ -54,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a
 これらのデータソースやその他のデータソースを効率的に分析し、非構造化データからインサイトを導き出すことができれば、銀行やその他の金融サービス機関が現在および将来の顧客について適切な判断を下すことができます。 このように活用されていないコンテンツから、有意義な情報を得られる可能性があります。
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 金融サービスにおける文書処理プロセスの自動化をお考えですか？
@@ -78,13 +77,20 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Cheryl Chiodi
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -150,14 +156,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-how-to-fix-no-video-on-sony-a6400-camera-for-2024/"><u>[New] How to Fix No Video On Sony A6400 Camera for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easy-methods-for-converting-digital-video-recorder-files-into-mp4-format-a-comprehensive-tutorial/"><u>Easy Methods for Converting Digital Video Recorder Files Into MP4 Format – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/giro-vocale-dei-numeri-in-italiano-1-1000/"><u>Giro Vocale Dei Numeri in Italiano - 1-1000</u></a></li>
-<li><a href="https://techidaily.com/how-to-exit-recovery-mode-on-apple-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on Apple iPhone 13 mini? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Vivo Y27s? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/seamless-integration-of-vimeo-videos-into-your-powerpoint-slides/"><u>Seamless Integration of Vimeo Videos Into Your PowerPoint Slides</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unlock-4k-the-ultimate-list-of-free-video-converters/"><u>Updated In 2024, Unlock 4K The Ultimate List of Free Video Converters</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726029573862-wonderfox-dvd-video-converter/"><u>WonderFox DVD Video Converter - スムーズなビデオダウンロード</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ncover-the-leaders-1-6-in-global-short-video-clips-for-2024/"><u>[New] Uncover the Leaders #1-#6 in Global Short Video Clips for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlock-the-full-potential-of-facebook-the-best-5-chrome-extensions/"><u>[Updated] 2024 Approved Unlock the Full Potential of Facebook The Best 5 Chrome Extensions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-brief-scene-structure-summary-for-2024/"><u>[Updated] Brief Scene Structure Summary for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/cyberpunk-2077-overcoming-the-initial-failure-to-startup/"><u>Cyberpunk 2077: Overcoming the Initial Failure to Startup</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723862714665-exploring-computing-power-at-toms-hardware-hub-discover-top-gear/"><u>Exploring Computing Power at Tom's Hardware Hub - Discover Top Gear</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-diagnose-and-resolve-mic-failures-in-the-steelseries-arctis-e-headset/"><u>How to Diagnose and Resolve Mic Failures in the SteelSeries Arctis E Headset</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-crafting-a-memorable-look-back-experience-on-fb/"><u>In 2024, Crafting a Memorable Look Back Experience on FB</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/mastering-screen-recordings-the-recmeister-way-for-2024/"><u>Mastering Screen Recordings The Recmeister Way for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/seamless-video-to-text-best-ones-online-at-your-fingertips-for-2024/"><u>Seamless Video-to-Text Best Ones Online at Your Fingertips for 2024</u></a></li>
 </ul></div>
 

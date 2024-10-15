@@ -1,7 +1,7 @@
 ---
 title: Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers
-date: 2024-09-26T19:50:25.407Z
-updated: 2024-10-03T00:37:03.247Z
+date: 2024-10-11T01:47:09.204Z
+updated: 2024-10-14T19:06:51.449Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e7857315bad256fdc5741086fa363d0007b6f6fca6b50e61093052da5a00ac70.jpg
@@ -23,17 +23,31 @@ Education/Research
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 329 kb)](https://static4.abbyy.com/abbyycommedia/10189/cs-unisouthampton-rs-f.pdf) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Contexte
 
 ![](https://tools.techidaily.com/abbyy/products/)La bibliothèque de l’université de Southampton accueille environ 35 000 étudiants et membres de son personnel. Elle offre un accès à une très vaste collection de qualité supérieure : 1,5 millions de livres et plusieurs millions de pages de documents d’archive. La bibliothèque s’est récemment lancée dans un programme de numérisation d’un nombre important de textes clés via l’Unité de numérisation de bibliothèques (LDU, Library Digitisation Unit). La LDU est une opération phare dans le secteur de l’éducation et se spécialise dans la capture numérique d’un large éventail de documents pour les référentiels ou la distribution sur Internet via des liens du catalogue de la bibliothèque. La démarche de la bibliothèque universitaire consiste à offrir un accès complet aux documents numériques qu’elle crée, chaque fois que cela est possible et autorisé.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ABBYY FineReader, un produit logiciel conçu pour la numérisation et la numérisation ad-hoc, a été utilisé par la bibliothèque pendant un certain nombre d’années pour numériser une petite quantité de pages, et occasionnellement l’intégralité de livres. Ce programme est aussi utilisé pour la reconnaissance de texte et la reconnaissance optique de caractères (OCR, optical character recognition). La bibliothèque s’est rapidement rendue compte que pour automatiser le processus OCR, avec un rendement élevé, et atteindre son objectif, qui est de numériser un demi-million de pages par an, elle aurait besoin d’un produit plus robuste et capable de traiter automatiquement d’importants volumes de documents.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Solution
@@ -59,13 +73,6 @@ D’autres projets internes incluent:
 
 **La collection Richard Rutt:** une collection de livres de tricot datant du 19ème siècle provenant de la bibliothèque de références artistiques de l’école Winchester a été numérisée et mise à disposition sous la forme de fichiers PDF interrogeables via Internet.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 La reconnaissance optique de caractères puissante et précise est une partie intégrante des activités de l’unité de numérisation de bibliothèques. Grâce à l’augmentation de la production engendrée par ABBYY Recognition Server, le personnel de la bibliothèque est libéré du travail ennuyeux que constitue l’OCR manuel. Des millions de pages de documents provenant de la collection de l’université de Southampton sont disponibles en ligne dans des formats numériques pour les étudiants et pour le reste du monde.
@@ -73,13 +80,6 @@ La reconnaissance optique de caractères puissante et précise est une partie in
 La réussite de la numérisation peut également être attribuée à la souplesse d´administration du produit et à la facilité de son intégration aux processus de bibliothèques existants. « La possibilité d’intégrer ABBYY Recognition Server à notre workflow était capitale, » a déclaré Julian Ball, administrateur de section de l’unité de numérisation de bibliothèques.
 
 « L’installation d’ABBYY Recognition Server a été rapide. Les premières réponses d’ABBYY et de leurs équipes de support vis-à-vis de toutes les questions posées ont été rapides, avec un suivi de bonne qualité. Nous avons été très satisfaits des résultats et nous avons hâte d’utiliser le produit pour continuer à remplir nos objectifs en termes de numérisation. »
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## À propos de l’université de Southampton
 
@@ -99,10 +99,10 @@ Contact: [www.soton.ac.uk/library/ldu](http://www.soton.ac.uk/library/ldu)
 Partager 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Prêt à parler à un expert ?
@@ -126,19 +126,19 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-ultimate-overview-of-camstudios-video-tools/"><u>[New] 2024 Approved Ultimate Overview of CamStudio's Video Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-shorts-and-tiktok-which-one-is-better-for-personal-usage-in-2024/"><u>[New] YouTube Shorts & TikTok Which One Is Better for Personal Usage, In 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-commanding-voice-performance-analysis-edition-8/"><u>[Updated] In 2024, Commanding Voice Performance Analysis, Edition 8</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-innovative-practices-for-instagram-video-narratives-and-captioning/"><u>[Updated] Innovative Practices for Instagram Video Narratives and Captioning</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-performance-in-claims-management-strategies-from-abbyy-ebook-expertise/"><u>Enhancing Performance in Claims Management: Strategies From ABBYY eBook Expertise</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-next-level-analytics-driven-by-cutting-edge-cookiebot-solutions/"><u>Experience Next-Level Analytics: Driven by Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-abbyys-advanced-ai-techniques-at-the-uk-partner-day-driving-innovation-and-maximizing-returns/"><u>Exploring ABBYY's Advanced AI Techniques at the UK Partner Day – Driving Innovation and Maximizing Returns</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/future-work-scenarios-unveiled-how-to-prepare-for-a-post-pandemic-labor-landscape-expert-tips-from-abbyy-thought-leaders/"><u>Future Work Scenarios Unveiled: How to Prepare for a Post-Pandemic Labor Landscape - Expert Tips From ABBYY Thought Leaders</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-potential-of-your-campaigns-with-cookiebots-advanced-analytics-tools/"><u>Harness the Potential of Your Campaigns with Cookiebot's Advanced Analytics Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-empowers-websites-with-advanced-tracking-and-personalization-technologies/"><u>How Cookiebot Empowers Websites with Advanced Tracking and Personalization Technologies</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-honor-x9b-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Honor X9b Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/test-drive-the-innovative-cycwagen-cargo-ebike-a-firsthand-review/"><u>Test Drive the Innovative CycWagen Cargo eBike: A Firsthand Review</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrade-your-gpu-install-gtx-firmware-update/"><u>Upgrade Your GPU - Install GTX Firmware Update</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-ultimate-android-moba-game-series-countdown-10/"><u>[New] 2024 Approved The Ultimate Android MOBA Game Series Countdown (#10)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-browser-screen-capturing-software/"><u>[New] 2024 Approved The Ultimate Guide to Browser Screen Capturing Software</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-professional-tips-for-perfecting-your-srt-files/"><u>[New] Professional Tips for Perfecting Your SRT Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-artisan-editor-refining-video-transitions-with-inshot/"><u>[Updated] In 2024, The Artisan Editor Refining Video Transitions with Inshot</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamlined-video-logitechs-background-editing-guide-for-2024/"><u>[Updated] Streamlined Video - Logitech's Background Editing Guide for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-distribution-network-through-cutting-edge-rpa-and-intelligent-scanning-technology/"><u>Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-performance-using-the-latest-cookiebot-solutions/"><u>Enhanced Performance Using the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-ai-driven-technology-of-cookiebot/"><u>Enhanced Personalization with the AI-Driven Technology of Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-site-personalization-with-advanced-analytics-by-cookiebot/"><u>Enhanced Site Personalization with Advanced Analytics by Cookiebot</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-se-2020ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on Apple iPhone SE (2020)/iPad/iPod</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-honor-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Honor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-quick-access-handbook-for-rapid-srt-to-text-change-for-2024/"><u>The Ultimate, Quick-Access Handbook for Rapid SRT to Text Change for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers
-date: 2024-10-01T18:31:54.282Z
-updated: 2024-10-08T17:49:07.091Z
+date: 2024-10-08T20:04:18.757Z
+updated: 2024-10-14T23:50:15.900Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8cca3cd844fe92c1c213c87ec.jpg
@@ -70,27 +70,33 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-regaining-exclusive-snap-privacy/"><u>[Updated] In 2024, Regaining Exclusive Snap Privacy</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-10-best-screen-recorders-for-pc-and-mac/"><u>[Updated] In 2024, Top 10 Best Screen Recorders for PC and Mac</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723017055257-black-ops-cold-war-sound-glitch-on-pc-heres-how-to-solve-it/"><u>Black Ops: Cold War Sound Glitch on PC? Here's How to Solve It</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-xbox-wireless-controller-drivers-simple-and-swift-setup/"><u>Download Xbox Wireless Controller Drivers: Simple and Swift Setup</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/get-the-latest-from-abc7-free-downloads-of-top-stories-in-mp4-wmv-and-avi-formats/"><u>Get the Latest From ABC7 - Free Downloads of Top Stories in MP4, WMV & AVI Formats</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-lava-blaze-2-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Lava Blaze 2 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-6-plus-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 6 Plus</u></a></li>
-<li><a href="https://network-issues.techidaily.com/win11-resume-post-creators-patching/"><u>Win11 Resume Post-Creators Patching</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sprinting-to-victory-key-moments-from-2-omics-games-for-2024/"><u>[New] Sprinting to Victory Key Moments From 2 Omics Games for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-downloading-vimeo-media-direct-conversion-to-mp3-format/"><u>[Updated] In 2024, Downloading Vimeo Media Direct Conversion to MP3 Format</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-infinix-smart-7-hd-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Infinix Smart 7 HD FRP</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-12-pro-max-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 12 Pro Max Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-insider-features-of-zoom-software-for-windows-11-for-2024/"><u>Navigating the Insider Features of Zoom Software for Windows 11 for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-beginners-handbook-to-manipulating-registry-keys-with-revo-uninstaller-features/"><u>The Beginner's Handbook to Manipulating Registry Keys with Revo Uninstaller Features</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-samsung-galaxy-f34-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/pps-for-downloading-youtube-content-for-2024/"><u>Top Apps for Downloading YouTube Content for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

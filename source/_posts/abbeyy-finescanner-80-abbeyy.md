@@ -1,7 +1,7 @@
 ---
 title: "ABBEYY FineScanner 8.0: 革新的なスマートフォンビジネスソリューション紹介 - ABBEYYブログ"
-date: 2024-10-01T17:32:08.670Z
-updated: 2024-10-08T18:55:48.312Z
+date: 2024-10-14T00:05:49.223Z
+updated: 2024-10-15T00:58:35.631Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92aed76fb6bf5194cca7db102.jpg
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 ![classification_search_fs_8](https://static1.abbyy.com/abbyycommedia/31422/classification_search_fs_8.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ニューラルネットワークの「トレーニング」には、多数のABBYY従業員から提供された何万枚もの写真の調査が含まれていました。 AIは、他の勤勉な学生と同様に、学ぶために豊富な知識を必要とします。 このプロセスの一環として、ABBYYの開発者は、提供された各写真を手作業で細心の注意を払ってマークしました。 これが、AIが本とA4ドキュメント、名刺とIDなどの違いを「教えた」方法でした。[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)にアップロードされた最も人気のあるドキュメントタイプに対して、7つの異なるセクションを実装することにしました。 このデータは、ユーザーが回答したアンケートによって取得されました。
@@ -53,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 我々のテスト結果によると、分類の精度は約90〜95％です。 しかし、それはギャラリーの写真品質に大きく依存します。
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## テキスト検索を使って写真を見つける
@@ -64,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 また、皆さまに、今までよりも早く必要な写真を見つけていただきたいと思っています。 これを実現するために、独自のテキスト検索機能を実装しました。 これにより、適切な写真から検索バーにテキストを入力するだけで、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)でその写真を見つけることが可能です。 つまり、写真のテキストを覚えている限り、ギャラリーをスクロールする必要はありません。検索バーにテキストを入力するだけで、[FineScanner](https://fsfree.onelink.me/RsYZ/fs8blogjp)が検索結果を表示し、検出されたキーワードを強調表示します。
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
 
@@ -163,20 +170,13 @@ Connect with us
 ![](https://static4.abbyy.com/abbyycommedia/31472/fs-8-blog-main-no-sign.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 今回は、ABBYY Mobileの中から最新世代のモバイルスキャナーであるFineScannerAI 8をご紹介します。FineScannerはドキュメントをスキャンして保存するだけでなく、個人のスマートフォンアーキビスト（記録、公文書保管人）にもなります。 また、今Updateより、FineScannerは、すべての写真を7つの異なるドキュメントタイプに自動的に並べ替え、検索機能を使用して特定の写真を検索し、AR（拡張現実）を使用してドキュメントのサイズを正確に測定できるようになりました。
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 新世代のスマートギャラリー
 
@@ -205,10 +205,10 @@ Connect with us
 我々のテスト結果によると、分類の精度は約90〜95％です。 しかし、それはギャラリーの写真品質に大きく依存します。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## テキスト検索を使って写真を見つける
@@ -217,14 +217,14 @@ Connect with us
 
 ![search_fs_8](https://static1.abbyy.com/abbyycommedia/31421/search_fs_8.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ギャラリー画面上部のバーに検索フレーズを入力し始めるだけでOKです。 適切なドキュメントカテゴリフォルダに移動して、検索することにより、特定のカテゴリ（A4など）のドキュメントを検索することもできます。 これを行うと、検索が特定のドキュメントタイプに制限されます。
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 新しいスマートギャラリーと検索機能の活用
 
@@ -290,16 +290,16 @@ AR（拡張現実）を使用してドキュメントを測定するには、次
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-podcast-logo-basics-key-principles-for-striking-art/"><u>[New] 2024 Approved Podcast Logo Basics Key Principles for Striking Art</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-best-steadicams-for-dsrl-filming-for-2024/"><u>[New] Best Steadicams for DSRL Filming for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-essential-xbox-external-drives-review-summary/"><u>[New] In 2024, Essential Xbox External Drives Review Summary</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-entertainment-unlocked-apk-of-funimate-explained-for-2024/"><u>[Updated] Entertainment Unlocked APK of Funimate Explained for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-navigating-mov-saving-in-windows-11-top-six-methods-reviewed/"><u>[Updated] In 2024, Navigating .MOV Saving in Windows 11 - Top Six Methods Reviewed</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-premier-smart-automation-ally-for-the-arsenal-ladies-team/"><u>ABBYY Recognized as Premier Smart Automation Ally for the Arsenal Ladies Team</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbyy-showcase-innovative-solutions-for-smart-data-entry-and-boosting-productivity-with-digitized-documents-march-14th-march-18th/"><u>ABBYY Showcase: Innovative Solutions for Smart Data Entry & Boosting Productivity with Digitized Documents (March 14Th - March 18Th)</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-oppo-a38-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Oppo A38</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-walkthrough-the-process-of-deleting-content-from-your-youtube-channel/"><u>Ultimate Walkthrough: The Process of Deleting Content From Your YouTube Channel</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/upgrade-and-preserve-your-library-how-to-turn-dvds-into-webm-files-for-easy-online-viewing/"><u>Upgrade & Preserve Your Library: How to Turn DVDs Into WebM Files for Easy Online Viewing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/wonderfox-hd-video-converter-pro-factory-edition/"><u>WonderFox HD Video Converter Pro Factory Editionが正常にインストールされました。よろしくお願い致します!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/potlight-secrets-perfecting-vlogger-lights-for-2024/"><u>[New] Spotlight Secrets Perfecting Vlogger Lights for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quip-collection-event-specific-jest-compilation/"><u>[Updated] Quip Collection Event-Specific Jest Compilation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-livestream-launchpad-duel-go-with-xsplit-or-opt-for-obs/"><u>2024 Approved Livestream Launchpad Duel Go with XSplit or Opt for OBS?</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-oppo-reno-11f-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Oppo Reno 11F 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/guia-passo-a-passo-para-desfoque-de-video-metodos-tanto-offline-quanto-online/"><u>Guia Passo-a-Passo Para Desfoque De Vídeo: Métodos Tanto Offline Quanto Online</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meet-anthony-macciola-the-recently-appointed-chief-innovation-leader-at-abbyy/"><u>Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-portable-charger-showdown-spotlight-on-poweradd-pilot-pro2/"><u>The Ultimate Portable Charger Showdown - Spotlight on POWERADD Pilot Pro2</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-third-party-av-solutions-amidst-microsoft-guard/"><u>Unlocking Third-Party AV Solutions Amidst Microsoft Guard</u></a></li>
 </ul></div>
 

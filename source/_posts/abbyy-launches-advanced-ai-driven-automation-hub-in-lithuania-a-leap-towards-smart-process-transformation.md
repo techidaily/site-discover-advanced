@@ -1,7 +1,7 @@
 ---
 title: "Abbyy Launches Advanced AI-Driven Automation Hub in Lithuania: A Leap Towards Smart Process Transformation"
-date: 2024-10-06T18:08:28.049Z
-updated: 2024-10-08T18:52:07.280Z
+date: 2024-10-09T16:32:10.450Z
+updated: 2024-10-14T23:42:34.512Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec122694d578843a25c7f44c71.jpg
@@ -26,10 +26,10 @@ Intelligent automation company, ABBYY, has opened a new office in Vilnius, the c
 ABBYY’s new engineering resource center in Lithuania is the company’s 15th global office.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -39,10 +39,10 @@ ABBYY powers intelligent automation. We reimagine the way people work and how co
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Editorial Contact
@@ -50,10 +50,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -80,20 +80,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-live-recording-analyzer/"><u>[New] 2024 Approved Live Recording Analyzer</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-optimal-10-image-storage-solutions-guarantee-photographic-safety/"><u>[New] Optimal 10 Image Storage Solutions, Guarantee Photographic Safety</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-top-strategies-for-chronicling-lol-showdowns-for-2024/"><u>[New] Top Strategies for Chronicling LOL Showdowns for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-a23-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy A23 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-sustainable-traffic-growth-ethical-video-marketing-tips/"><u>In 2024, Sustainable Traffic Growth Ethical Video Marketing Tips</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-xs-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone XS Properly | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/um-10-audio-enhancers-for-multiple-systems/"><u>Premium 10 Audio Enhancers for Multiple Systems</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-capturing-a-screenshot-on-your-acer-device/"><u>Step-by-Step Guide: Capturing a Screenshot on Your Acer Device</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oppo-reno-8t-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Oppo Reno 8T 5G ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-innovative-techniques-to-make-a-mark-with-your-gopro-studio-edits/"><u>[Updated] Innovative Techniques to Make a Mark with Your GoPro Studio Edits</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-abbyy-solutions-accelerates-karlstejn-groups-brewery-product-shipping-one-of-the-worlds-largest-beer-producers-optimizes-operations/"><u>1. ABBYY Solutions Accelerates Karlstejn Group's Brewery Product Shipping: One of the World's Largest Beer Producers Optimizes Operations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-content-that-captivates-instagrams-roadmap-to-success/"><u>2024 Approved Crafting Content that Captivates Instagram’s Roadmap to Success</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-ai-ocr-rpa/"><u>伊藤忠商事の紙帳票取引業務にABBYY AI OCRを活用した改革成功 - RPA連動で大幅な時間削減</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-capabilities-of-yuneecs-typhoon-uav-for-2024/"><u>Exploring the Capabilities of Yuneec’s Typhoon UAV for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-oppo-a1-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Oppo A1 5G</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-educators-roadmap-to-effective-multimedia-use/"><u>In 2024, The Educator's Roadmap to Effective Multimedia Use</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-download-errors-for-cyberpunk-2077-a-comprehensive-guide-for-steam-users/"><u>Overcome Download Errors for Cyberpunk 2077: A Comprehensive Guide for Steam Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/tutorial-comment-copier-facilement-votre-serveur-windows-server-2022-sur-un-nouvel-hdd-en-quelques-etapes-simples/"><u>Tutorial: Comment Copier Facilement Votre Serveur Windows Server 2022 Sur Un Nouvel HDD en Quelques Étapes Simples</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbey-checklist/"><u>デジタル先進の金貸し市場で勝ち抜く戦略: ABBEY CHECKLIST</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization with the AI-Driven Technology of Cookiebot
-date: 2024-10-01T18:34:19.162Z
-updated: 2024-10-08T19:21:17.736Z
+date: 2024-10-13T18:53:29.536Z
+updated: 2024-10-14T20:25:55.729Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f84ca632563f78a12990cc533.jpg
@@ -25,16 +25,22 @@ Transportation & Logistics | Accounts Payable Automation
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static5.abbyy.com/abbyycommedia/37724/east-midlands-railway-case-study-intelligent-automation-en_tn_556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![East Midlands Railway](https://static2.abbyy.com/abbyycommedia/31982/03c-emr-logo-182x50.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | East Midlands Railway                                                                    |
 | ------------ | ---------------------------------------------------------------------------------------- |
@@ -45,13 +51,6 @@ Transportation & Logistics | Accounts Payable Automation
 #### Partner Overview
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
@@ -100,32 +99,39 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37728/east-midlands-railway-case-study-intelligent-automation-en_tn_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read the document](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -148,20 +154,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-a-guide-to-mastering-steams-switch-pro-controller/"><u>[New] In 2024, A Guide to Mastering Steam's Switch Pro Controller</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-ranking-10-best-iphoneandroid-apps-for-video-enthusiasts/"><u>[Updated] Ranking 10 Best iPhone/Android Apps for Video Enthusiasts</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/abbey2024peak-matrix-idp/"><u>ABBEYとエベレスト・グループが発表する2024年PEAK Matrixリーダーシップランキング - IDP抜題</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/elevating-photojournalism-gopro-time-lapse-basics/"><u>Elevating Photojournalism GoPro Time-Lapse Basics</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-toshiba-printerscanner-driver-updates-for-pcs-with-windows-installed/"><u>Get the Newest Toshiba Printer/Scanner Driver Updates for PCs with Windows Installed</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/hollenhorst-plaques-and-drusen-are-deposits-found-within-the-eye-but-while-the-former-is-related-to-cholesterol-emboli-from-vascular-issues-like-carotid-art160/"><u>Hollenhorst Plaques and Drusen Are Deposits Found Within the Eye, but While the Former Is Related to Cholesterol Emboli From Vascular Issues Like Carotid Artery Stenosis, Drusen Do Not Have a Direct Systemic Association and Can Be Age-Related Changes.</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-samsung-galaxy-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Samsung Galaxy A05s? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mending-disconnected-remotes-in-windows-operating-system/"><u>Mending Disconnected Remotes in Windows Operating System</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-snowrunners-crash-problem-effective-solutions-for-a-smooth-gameplay-on-pc/"><u>Overcoming SnowRunner's Crash Problem: Effective Solutions for a Smooth Gameplay on PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/simplify-your-workflow-with-no-code-artificial-intelligence-solutions/"><u>Simplify Your Workflow with No-Code Artificial Intelligence Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-freight-operations-using-cutting-edge-autotech-innovations/"><u>Streamline Freight Operations Using Cutting-Edge AutoTech Innovations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-picks-abbyy-at-the-forefront-of-idc-industry-analysis-reports/"><u>Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/troubleshooting-win11s-blue-screen-effective-strategies/"><u>Troubleshooting Win11's Blue Screen - Effective Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/us-regulations-offer-positive-outlook-insights-from-abbyy/"><u>U.S. Regulations Offer Positive Outlook: Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-appeal-why-programmers-choose-abbyy-solutions-dive-into-the-expert-opinions/"><u>Unveiling the Appeal: Why Programmers Choose ABBYY Solutions - Dive Into The Expert Opinions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-smartest-screens-top-11-general-knowledge-channels/"><u>[New] 2024 Approved Smartest Screens Top 11 General Knowledge Channels</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-of-hdr-enhancement-your-lightroom-journey/"><u>[New] In 2024, The Art of HDR Enhancement Your Lightroom Journey</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-mastery-over-airwaves-recording-techniques-for-live-sounds/"><u>[Updated] In 2024, Mastery Over Airwaves Recording Techniques for Live Sounds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-inside-look-the-full-power-of-polarr-photo-editor/"><u>[Updated] Inside Look The Full Power of Polarr Photo Editor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-total-capture-trio-setup/"><u>2024 Approved Total Capture Trio Setup</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-realme-narzo-60x-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-htc-u23-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from HTC U23.</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-roadmap-to-crafting-memorable-tiktok-videos/"><u>In 2024, The Ultimate Roadmap to Crafting Memorable TikTok Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-secures-new-equity-position-in-leading-ocr-firm-abbyy/"><u>Marlin Equity Partners Secures New Equity Position in Leading OCR Firm, ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-on-page-seo-effective-strategies-to-elevate-your-websites-visibility-in-google-searches/"><u>Master the Art of On-Page SEO: Effective Strategies to Elevate Your Website's Visibility in Google Searches</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigating-new-norms-in-banking-with-artificial-intelligence-and-digital-advancements-post-corona-expertise-from-a-leading-abbyy-analyst/"><u>Navigating New Norms in Banking with Artificial Intelligence & Digital Advancements Post-Corona – Expertise From a Leading ABBYY Analyst</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-powered-by-the-leading-analytics-platform-cookiebot/"><u>Optimized with Advanced Web Tracking Technology: Powered by the Leading Analytics Platform, Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-procedures-for-reduced-expenditure-in-finance-management-services/"><u>Optimizing Procedures for Reduced Expenditure in Finance Management Services</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/pioneering-pc-advice-with-toms-electronics/"><u>Pioneering PC Advice with Tom's Electronics</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revolutionizing-workflows-with-abbyy-discover-the-next-generation-rpa-solutions-for-modern-enterprises/"><u>Revolutionizing Workflows with ABBYY: Discover the Next Generation RPA Solutions for Modern Enterprises</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-samsung-galaxy-a05-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Samsung Galaxy A05 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/southampton-university-digitizes-massive-print-collections-enhancing-accessibility-for-students-and-researchers/"><u>Southampton University Digitizes Massive Print Collections, Enhancing Accessibility for Students and Researchers</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-essentials-of-process-mining-how-it-transforms-data-into-actionable-insights-for-organizations/"><u>The Essentials of Process Mining: How It Transforms Data Into Actionable Insights for Organizations</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-libor-changeover-with-artificial-intelligence-perspectives-by-abbyy-experts/"><u>Understanding LIBOR Changeover with Artificial Intelligence: Perspectives by ABBYY Experts</u></a></li>
 </ul></div>
 

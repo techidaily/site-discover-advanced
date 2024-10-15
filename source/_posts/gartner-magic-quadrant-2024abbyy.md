@@ -1,7 +1,7 @@
 ---
 title: "Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選"
-date: 2024-10-03T17:11:24.528Z
-updated: 2024-10-08T16:21:10.848Z
+date: 2024-10-11T18:36:28.664Z
+updated: 2024-10-14T20:43:44.817Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0004bab4ed76fb3b0e7b5e78faee5c8cd34739a5594338591ba06831ec971383.jpg
@@ -14,10 +14,10 @@ thumbnail: https://thmb.techidaily.com/0004bab4ed76fb3b0e7b5e78faee5c8cd34739a55
 ## ABBYY、2024年Gartner® Magic Quadrant™のプロセスマイニングプラットフォームのリーダーに選出
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYは、Timeline process intelligenceプラットフォームの完全なビジョンと実行能力を評価されました。 
@@ -25,10 +25,10 @@ thumbnail: https://thmb.techidaily.com/0004bab4ed76fb3b0e7b5e78faee5c8cd34739a55
 ![Figure_1_Magic_Quadrant_for_Process_Mining](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/figure_1_magic_quadrant_for_process_mining.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [プロセスマイニングプラットフォーム](https://tools.techidaily.com/abbyy/products/) プロセスマイニングプラットフォーム
@@ -54,10 +54,10 @@ GARTNER is a registered trademark and service mark, and MAGIC QUADRANT and PEER 
 Gartner Peer Insights content consists of the opinions of individual end users based on their own experiences with the vendors listed on the platform, should not be construed as statements of fact, nor do they represent the views of Gartner or its affiliates. Gartner does not endorse any vendor, product or service depicted in this content nor makes any warranties, expressed or implied, with respect to this content, about its accuracy or completeness, including any warranties of merchantability or fitness for a particular purpose."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
@@ -131,18 +131,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-essential-stop-motion-movies-you-cant-miss/"><u>[Updated] In 2024, Essential Stop-Motion Movies You Can't Miss</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-tunekeeper-trackdown-downloads-and-discussion-for-2024/"><u>[Updated] TuneKeeper Trackdown Downloads & Discussion for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1725288227917-dvd/"><u>英語が苦手な方のための、日本語対応DVD書き込みツールをご紹介!</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-samsung-galaxy-xcover-7-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Samsung Galaxy XCover 7 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-online-music-archives-copyright-free-gaming-tunes-for-2024/"><u>Free Online Music Archives (Copyright-Free Gaming Tunes) for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-get-canon-ip110-printer-drivers-on-your-windows-machine-supports-win11-win10-win8-and-win7/"><u>How to Get Canon IP110 Printer Drivers on Your Windows Machine (Supports Win11, Win10, Win8 & Win7)</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/voice-changers-for-vtubers-two-best-app-recommended/"><u>Voice Changers for Vtubers Two Best App Recommended</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exposed-the-hazards-of-fake-follower-purchases-on-youtube/"><u>[New] 2024 Approved Exposed The Hazards of Fake Follower Purchases on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-timely-tweets-triumph-in-the-youtube-landscape/"><u>[New] 2024 Approved Timely Tweets Triumph in the YouTube Landscape</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1715860751151-new-expertly-capture-your-macs-display-with-no-cost/"><u>[New] Expertly Capture Your Mac's Display with No Cost!</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-traffic-analysis-using-the-cookiebot-platform/"><u>Elevate Traffic Analysis Using the Cookiebot Platform</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prestigious-music-archives-for-vfx-artists/"><u>In 2024, Prestigious Music Archives for VFX Artists</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/neueste-fortschritte-in-der-formularerfassung-erleben-sie-die-innovation-von-abbyy-bei-der-pruffirma-in-duderstadt/"><u>Neueste Fortschritte in Der Formularerfassung: Erleben Sie Die Innovation Von ABBYY Bei Der Prüffirma in Duderstadt</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/preserving-literary-heritage-digitizing-tolstoys-works-with-abbyy-technology/"><u>Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/simplify-the-process-of-transforming-youtube-content-into-lossless-flac-audio/"><u>Simplify the Process of Transforming YouTube Content Into Lossless FLAC Audio</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-infinix-smart-7-hd-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Infinix Smart 7 HD to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-the-difference-retweets-vs-re-tweets-on-twitter/"><u>Understanding the Difference: Retweets Vs. Re-Tweets on Twitter</u></a></li>
 </ul></div>
 

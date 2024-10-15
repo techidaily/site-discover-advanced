@@ -1,7 +1,7 @@
 ---
 title: How Sidetrade Opted for ABBYY Vantage in Upgrading Their Cash Handling Processes
-date: 2024-10-07T17:58:17.734Z
-updated: 2024-10-08T17:34:44.703Z
+date: 2024-10-07T16:18:10.060Z
+updated: 2024-10-14T19:30:03.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aaf0974e4ab83d3cc5b35041225761e54de0f8418307a4877fba8e369a6e30f0.jpg
@@ -25,15 +25,22 @@ Other | Document Processing
 
 ![Sidetrade](https://static4.abbyy.com/abbyycommedia/37785/ds-124_sidetrade-case-study_tn_556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Sidetrade](https://static2.abbyy.com/abbyycommedia/37810/sidetrade-brand2020-logo_master.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | Sidetrade                                       |
@@ -91,38 +98,25 @@ Right out of the box, the Remittance Advice Skill delivered upwards of 90 percen
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/37786/ds-124_sidetrade-case-study_tn_360x162.jpg)](https://static5.abbyy.com/abbyycommedia/37734/sidetrade-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/37734/sidetrade-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read the document](https://static5.abbyy.com/abbyycommedia/37734/sidetrade-case-study-intelligent-document-processing-en.pdf "PDF Version") 
@@ -148,18 +142,16 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-quick-recovery-of-twitch-broadcasts/"><u>[Updated] 2024 Approved The Quick Recovery of Twitch Broadcasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivate-clarity-mastering-online-engagement-with-facebooks-enhanced-moderation-features/"><u>Cultivate Clarity: Mastering Online Engagement with Facebook's Enhanced Moderation Features</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortless-steps-to-restore-accidentally-deleted-documents-in-windows-11/"><u>Effortless Steps to Restore Accidentally Deleted Documents in Windows 11</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhancing-rpa-efficiency-using-all-encompassing-enterprise-workflow-analysis-tools/"><u>Enhancing RPA Efficiency Using All-Encompassing Enterprise Workflow Analysis Tools</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guida-rapida-al-duplice-copia-dei-film-in-dvd-per-sistemi-operativi-windows-and-macos/"><u>Guida Rapida Al Duplice Copia Dei Film in DVD per Sistemi Operativi Windows & MacOS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-tecno-spark-20-pro-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Tecno Spark 20 Pro Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://article-files.techidaily.com/mastering-melodies-with-magix-music-maker-software/"><u>Mastering Melodies with Magix Music Maker Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/be-video-magic-advanced-editing-with-premiere-pro/"><u>YouTube Video Magic Advanced Editing with Premiere Pro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snapchat-for-mac-quick-installation-tips/"><u>[Updated] 2024 Approved Snapchat for MAC Quick Installation Tips</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/archiving-made-simple-saving-chatgpt-talks/"><u>Archiving Made Simple: Saving ChatGPT Talks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-website-enhance-your-traffic-with-smart-tracking/"><u>Cookiebot-Enabled Website: Enhance Your Traffic with Smart Tracking</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-unleashing-personalized-user-experiences-with-cutting-edge-cookies/"><u>Cookiebot-Enhanced: Unleashing Personalized User Experiences with Cutting-Edge Cookies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-traffic-with-the-power-of-cookiebot-technology/"><u>Enhance Website Traffic with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-sites-user-experience-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhance Your Site's User Experience with the Advanced Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-xs-max-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone XS Max to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-poco-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Poco Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-the-0xc19001e1-hardware-compatibility-error-on-windows-10/"><u>Resolving the 0xC19001E1 Hardware Compatibility Error on Windows 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/savor-these-10-delicious-and-inspiring-culinary-series-on-netflix/"><u>Savor These 10 Delicious and Inspiring Culinary Series on Netflix</u></a></li>
 </ul></div>
 

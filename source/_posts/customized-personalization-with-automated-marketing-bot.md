@@ -1,7 +1,7 @@
 ---
 title: Customized Personalization with Automated Marketing Bot
-date: 2024-10-03T18:25:26.421Z
-updated: 2024-10-08T19:30:55.916Z
+date: 2024-10-07T22:35:40.478Z
+updated: 2024-10-14T21:02:56.596Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b52695e8d8e71746809895655de9f8c6acd7b0659cd0b84f4316b6b432fb112c.jpg
@@ -42,16 +42,10 @@ Upon completion of necessary approvals, Alex Beregovsky will join ABBYY's Board 
 Marlin Equity Partners is a global investment firm with over $7.5 billion of capital under management. The firm focuses on providing corporate parents, shareholders and other stakeholders with tailored solutions that meet their business and liquidity needs. Marlin invests in businesses across multiple industries where its capital base, industry relationships and an extensive network of operational resources significantly strengthen a company’s outlook and enhance value. Since its inception, Marlin, through its group of funds and related companies, has made over 180 investments. The firm is headquartered in Los Angeles, California with an additional office in London. For more information, please visit [www.marlinequity.com](http://www.marlinequity.com/).
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -61,10 +55,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -72,10 +66,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -102,24 +96,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-mastery-of-photo-date-annotation-methods/"><u>[New] Mastery of Photo Date Annotation Methods</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-apple-writes-a-new-chapter-m1-pro-vs-m1-max-analysis/"><u>2024 Approved Apple' Writes a New Chapter M1 Pro Vs. M1 Max Analysis</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-p55t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel P55T Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-12-pro-max-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 12 Pro Max How to Bypass?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/beijings-frost-touched-games-highlights-from-2022/"><u>Beijing's Frost-Touched Games, Highlights From 2022</u></a></li>
-<li><a href="https://apple-account.techidaily.com/everything-to-know-about-apple-id-password-requirements-for-iphone-15-pro-by-drfone-ios/"><u>Everything To Know About Apple ID Password Requirements For iPhone 15 Pro</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-online-wmv-to-avi-converter-how-to-transform-videos-without-cost-moveavi/"><u>Free Online WMV to AVI Converter: How to Transform Videos Without Cost - MoveAVi</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-windows-10-essentials-top-free-video-compressors/"><u>New 2024 Approved Windows 10 Essentials Top Free Video Compressors</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/new-era-of-intelligent-business-software-abbyy-releases-revolutionary-products/"><u>New Era of Intelligent Business Software: ABBYY Releases Revolutionary Products</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/newly-enhanced-abbyy-mobile-applications-launched-for-ios-13-users-updates-from-abbyy/"><u>Newly Enhanced ABBYY Mobile Applications Launched for iOS 13 Users - Updates From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/next-level-paperwork-management-with-intelligent-systems-an-insight-into-abbyy-and-pegasystems-solutions/"><u>Next-Level Paperwork Management with Intelligent Systems: An Insight Into ABBYY and Pegasystems Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ocr-versus-identity-provider-idp-what-sets-them-apart/"><u>OCR Versus Identity Provider (IDP): What Sets Them Apart?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-improved-search-engine-visibility/"><u>Optimizing Your Website's Pages for Improved Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimizing-your-websites-pages-for-maximum-search-engine-visibility/"><u>Optimizing Your Website's Pages for Maximum Search Engine Visibility</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/preserving-literary-heritage-digitizing-tolstoys-works-with-abbyy-technology/"><u>Preserving Literary Heritage: Digitizing Tolstoy's Works with ABBYY Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/process-intelligence-key-to-unlocking-70-of-us-leaders-rpa-implementation-success-insights-from-abbyy/"><u>Process Intelligence Key to Unlocking 70% of US Leaders' RPA Implementation Success - Insights From ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionizing-assurance-through-tech-advanceby-the-transformative-effect-of-modern-innovations-on-the-insurance-sector/"><u>Revolutionizing Assurance Through Tech Advanceby: The Transformative Effect of Modern Innovations on the Insurance Sector</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-samsung-galaxy-xcover-6-pro-tactical-edition-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Samsung Galaxy XCover 6 Pro Tactical Edition Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-explore-8-leading-free-srt-translators-online/"><u>[New] Explore 8 Leading Free SRT Translators Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-classical-cinematography-a-modern-tutorial-for-2024/"><u>[Updated] Creating Classical Cinematography A Modern Tutorial for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-pro-level-recording-highlighting-9-best-remote-mic-systems-23/"><u>[Updated] Pro-Level Recording Highlighting 9 Best Remote Mic Systems ('23)</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-drives-rochling-towards-unified-financial-reporting-with-sap-integration/"><u>ABBYY Drives Röchling Towards Unified Financial Reporting with SAP Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-study-reveals-rising-employee-resignation-thoughts-amidst-poor-business-processes-during-covid-19-crisis/"><u>ABBYY Study Reveals Rising Employee Resignation Thoughts Amidst Poor Business Processes During COVID-19 Crisis</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyys-digital-intelligence-celebrated-as-a-groundbreaking-innovation-of-the-year-2020/"><u>ABBYY's Digital Intelligence Celebrated as a Groundbreaking Innovation of the Year 2020</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyynelsonhall2020/"><u>ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/adapting-financial-management-tactics-to-navigate-todays-new-normal-proven-approaches/"><u>Adapting Financial Management Tactics to Navigate Today's 'New Normal': Proven Approaches</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/anthony-macciola-abbyys-leading-visionary-as-chief-innovation-officer/"><u>Anthony Macciola: ABBYY's Leading Visionary as Chief Innovation Officer</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location On Facebook Dating for your Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-14-pro-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 14 Pro</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-s-best-stop-motion-creators-free-paid-and-everything-in-between-for-2024/"><u>New S Best Stop Motion Creators Free, Paid, and Everything in Between for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-12-outils-visionnage-partage-ecran-gratuits-pour-mac-comparatif/"><u>Top 12 Outils Visionnage-Partage Ecran Gratuits Pour Mac - Comparatif</u></a></li>
 </ul></div>
 

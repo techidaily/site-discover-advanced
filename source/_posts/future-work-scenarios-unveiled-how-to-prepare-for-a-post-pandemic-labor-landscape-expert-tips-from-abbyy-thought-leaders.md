@@ -1,7 +1,7 @@
 ---
 title: "Future Work Scenarios Unveiled: How to Prepare for a Post-Pandemic Labor Landscape - Expert Tips From ABBYY Thought Leaders"
-date: 2024-10-01T17:23:45.903Z
-updated: 2024-10-08T18:09:06.268Z
+date: 2024-10-09T22:47:24.514Z
+updated: 2024-10-14T23:05:56.144Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8f5029c9276b28fff4f6f7be.jpg
@@ -34,10 +34,10 @@ With the explosion of RPA last year, many companies still saw many RPA projects 
 [Read the article.](https://chiefexecutive.net/onboarding-your-digital-workforce/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coronavirus Pandemic Reveals the Need for a Broader Digital Front Door
@@ -49,10 +49,10 @@ Last year, we saw that healthcare facilities and providers around the country ex
 ![ABBYY Timeline dashboard for hospitals](https://static1.abbyy.com/abbyycommedia/31822/timeline-screenshot-healthcare.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **_ABBYY Timeline is a cloud-based platform that delivers continual operational insight to healthcare providers. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
@@ -68,13 +68,6 @@ Enterprise Talk interviewed Ivan Yamschikov, AI Evangelist at ABBYY, about the l
 On ITProToday, we talked about how, as the COVID-19 pandemic continues, there has been some evidence that automation adoption to keep businesses operating in unusual times will have to happen in bursts. The coronavirus pandemic has created business circumstances that require creative solutions, and some of those solutions have come via automation – showing that the solutions needed to continue business right now are speeding up digital transitions in a variety of fields.
 
 [Read the article.](https://www.itprotoday.com/artificial-intelligence/will-covid-19-change-opinions-about-automation-adoption)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Knowing WFH Preferences Key to Employee Recruitment and Retention
 
@@ -96,15 +89,22 @@ How smart is your digital workforce? Many organizations are now deploying digita
 
 ![working from home](https://static1.abbyy.com/abbyycommedia/31775/7_gettyimages-1215346013.jpg)In this Forbes article, we discuss how decision makers within enterprise Centers of Excellence need to look at upskilling digital workers and automation platforms with the right capabilities so that DX initiatives have a real impact.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read the article.](https://www.forbes.com/sites/forbestechcouncil/2020/09/09/its-time-to-upskill-your-digital-workforce/#6f44f0ab15b8)
 
 **ABBYY Vantage provides new skills for the [digital worker](https://tools.techidaily.com/abbyy/products/) that deliver intelligence and business value. Learn more [here](https://tools.techidaily.com/abbyy/products/).**
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. How Task Mining Can Turbocharge Your Productivity
@@ -117,6 +117,13 @@ With a rush to reset priorities, rethink the way our customers wish to engage, a
 
 [Read the article.](https://www.analyticsinsight.net/how-task-mining-can-turbocharge-your-productivity/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Six Professions That Should Get Their Own Robot in 2021
 
 ![team meeting via video call](https://static1.abbyy.com/abbyycommedia/31776/8_gettyimages-1248192282.jpg)
@@ -126,13 +133,6 @@ According to recent statistics, the pandemic has resulted in 41 percent of compa
 [Read the article.](https://innotechtoday.com/six-professions-that-should-get-their-own-robot-in-2021/)
 
 [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -197,20 +197,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-crafting-a-tiktok-twosome-film/"><u>[New] 2024 Approved Crafting a TikTok Twosome Film</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-fixing-stuck-feeds-on-instagram-videos/"><u>[New] In 2024, Fixing Stuck Feeds on Instagram Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-skys-the-limit-with-dji-spark-an-in-depth-miniature-drone-study/"><u>[New] Sky's the Limit with DJI Spark An In-Depth Miniature Drone Study</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-ultimate-online-call-and-group-communication-hubs-for-2024/"><u>[New] Ultimate Online Call & Group Communication Hubs for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-xiaomi-redmi-13c-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Xiaomi Redmi 13C Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/marketing-mastery-unleashed-exploring-the-impact-of-advanced-bot-solutions/"><u>Marketing Mastery Unleashed: Exploring the Impact of Advanced Bot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/master-your-contacts-with-abbyy-business-card-scanner-for-android-quick-smart-and-precise/"><u>Master Your Contacts with ABBYY Business Card Scanner for Android: Quick, Smart, and Precise</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/maximizing-efficiency-with-mobile-tech-discover-8-essential-lessons-from-turning-your-phone-into-a-laptop-alternative/"><u>Maximizing Efficiency with Mobile Tech: Discover 8 Essential Lessons From Turning Your Phone Into a Laptop Alternative</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/meet-ulf-persson-ceo-at-document-solutions-giant-abbyy-his-strategy-for-innovation/"><u>Meet Ulf Persson, CEO at Document Solutions Giant - ABBYY: His Strategy for Innovation</u></a></li>
-<li><a href="https://win-answers.techidaily.com/nioh-2-full-edition-step-by-step-fix-for-sudden-game-crashes/"><u>Nioh 2 Full Edition - Step-by-Step Fix for Sudden Game Crashes</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-site-engagement-with-advanced-cookiebot-technology-solutions/"><u>Optimize Site Engagement with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-enhance-user-experience-and-data-tracking/"><u>Optimize with Cookiebot: Enhance User Experience & Data Tracking</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-web-tracking-technology-by-cookiebot/"><u>Optimized with Advanced Web Tracking Technology by Cookiebot</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/overcoming-aol-mail-problems-on-the-iphone-6-proven-methods/"><u>Overcoming AOL Mail Problems on the iPhone: 6 Proven Methods</u></a></li>
-<li><a href="https://extra-support.techidaily.com/select-top-6-apps-for-creating-impressive-photo-shows-for-2024/"><u>Select Top 6 Apps for Creating Impressive Photo Shows for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-avoid-commonplace-channel-titles-finding-uniqueness-with-filmora-for-2024/"><u>[New] Avoid Commonplace Channel Titles Finding Uniqueness with Filmora for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-twitter-video-content-flow-to-facebook/"><u>[New] In 2024, Navigating Twitter Video Content Flow to Facebook</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-transform-vimeo-videos-top-techniques-to-trim-and-tailor-online-sequences-for-2024/"><u>[New] Transform Vimeo Videos Top Techniques to Trim and Tailor Online Sequences for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-inspire-audiences-with-these-high-quality-free-sound-files/"><u>[Updated] 2024 Approved Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-those-who-left-my-instagram-circle-for-2024/"><u>[Updated] Discovering Those Who Left My Instagram Circle for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-record-audio-from-youtube/"><u>[Updated] How to Record Audio From YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exclusive-online-offer-get-macx-dvd-ripper-pro-at-a-bargain-price/"><u>Exclusive Online Offer: Get MacX DVD Ripper Pro at a Bargain Price!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/impressive-25-increase-in-abbyys-revenue-for-the-year-201n7-key-insights-and-trends/"><u>Impressive 25% Increase in ABBYY's Revenue for the Year 201N7: Key Insights and Trends</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-find-n3-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo Find N3 Phone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/increased-productivity-how-abbyys-automated-invoicing-enhances-operations-at-energy-distribution-compannies/"><u>Increased Productivity: How ABBYY's Automated Invoicing Enhances Operations at Energy Distribution Compannies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/laserfiche-optimization-with-abbyy-discover-flexicaptures-power/"><u>Laserfiche Optimization with ABBYY: Discover FlexiCapture's Power</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-abbyy-forward-robert-youngjohns-at-the-helm-of-its-governing-board/"><u>Leading ABBYY Forward - Robert Youngjohns at the Helm of Its Governing Board</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/leading-the-pack-abbyy-secures-top-position-in-qkss-2022-spark-index-for-smart-document-processing-technologies/"><u>Leading the Pack: ABBYY Secures Top Position in QKS's 2022 SPARK Index for Smart Document Processing Technologies</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/marlin-equity-partners-fuels-abbyys-accelerated-expansion-investment-strategy/"><u>Marlin Equity Partners Fuels ABBYY's Accelerated Expansion Investment Strategy</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/meeting-of-global-experts-in-artificial-intelligence-and-robotic-process-automation-abbyys-role-at-the-2018-ai-and-rpa-world-summit-in-berlin/"><u>Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigate-the-future-of-insurance-with-our-digital-agility-advancement-ebook-your-guide-to-modernization-in-insurtech/"><u>Navigate the Future of Insurance with Our 'Digital Agility Advancement' EBook – Your Guide to Modernization in InsurTech</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-solved-final-cut-pro-x-keeps-crashing/"><u>New Solved Final Cut Pro X Keeps Crashing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-boosting-user-engagement-through-tailored-experiences/"><u>Optimize With Cookiebot: Boosting User Engagement Through Tailored Experiences</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-xiaomi-redmi-k70e-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Xiaomi Redmi K70E Phone Pattern Lock</u></a></li>
 </ul></div>
 

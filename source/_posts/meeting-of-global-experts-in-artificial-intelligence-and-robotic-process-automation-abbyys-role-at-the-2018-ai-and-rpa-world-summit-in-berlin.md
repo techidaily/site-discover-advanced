@@ -1,7 +1,7 @@
 ---
 title: "Meeting of Global Experts in Artificial Intelligence and Robotic Process Automation: ABBYY's Role at the 2018 AI & RPA World Summit in Berlin"
-date: 2024-10-05T18:58:20.956Z
-updated: 2024-10-08T17:44:18.320Z
+date: 2024-10-07T18:23:02.822Z
+updated: 2024-10-14T22:36:36.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/289536a26b86dc5c26586097f9ebf58e81d35aa537c61d20d15b54d1edc660b4.jpg
@@ -76,32 +76,26 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-photo-perfection-best-practices-for-integrating-frames-online/"><u>[New] Photo Perfection Best Practices for Integrating Frames Online</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-chart-your-course-to-youtube-riches-the-essential-500-threshold-for-2024/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-discover-the-premier-4k-cameras-of-today/"><u>[Updated] Discover the Premier 4K Cameras of Today</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-to-soundtrack-the-complete-conversion-manual/"><u>[Updated] Instagram to Soundtrack The Complete Conversion Manual</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-virtual-venue-verdict-which-streamer-prevails/"><u>2024 Approved Virtual Venue Verdict Which Streamer Prevails?</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/automated-conversion-tracking-with-the-help-of-cookiebot-your-ultimate-solution/"><u>Automated Conversion Tracking with the Help of Cookiebot - Your Ultimate Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boost-your-websites-success-with-the-advanced-technology-of-cookiebot/"><u>Boost Your Website's Success with the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-user-engagement/"><u>Cookiebot Driven Solutions: Enhance Your Site's User Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-performance-enhancing-your-sites-visibility-and-user-engagement/"><u>Cookiebot-Driven Performance: Enhancing Your Site's Visibility and User Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-performance/"><u>Cookiebot-Driven Solutions: Enhance Your Site's Performance</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oneplus-ace-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Razr 40? | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-10-youtube-tips-for-teachers/"><u>In 2024, 10 YouTube Tips for Teachers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-inter-service-playlist-shuffling-with-ease/"><u>In 2024, Navigating Inter-Service Playlist Shuffling with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-engaging-audiences-with-instagram-stories-surveys/"><u>[New] 2024 Approved Engaging Audiences with Instagram Stories Surveys</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-tracing-the-paths-of-instagram-unfollows-for-2024/"><u>[New] Tracing the Paths of Instagram Unfollows for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-understanding-auto-hdr-and-smart-exposure-techniques-in-photos-for-2024/"><u>[New] Understanding Auto HDR and Smart Exposure Techniques in Photos for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-the-mystery-of-facebooks-hidden-activities/"><u>[New] Unlocking the Mystery of Facebook's Hidden Activities</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comparative-study-samsung-vs-traditional-photo-tools/"><u>[Updated] Comparative Study Samsung vs Traditional Photo Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-vivo-y27-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/bypassing-the-detection-glitch-controller-setup-with-steam-in-windows-systems/"><u>Bypassing the Detection Glitch: Controller Setup with Steam in Windows Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-poco-x6-phone-by-drfone-android/"><u>How to Unlock a Network Locked Poco X6 Phone?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpg-to-mov-file-conversion-a-step-by-step-guide-for-windows-mac-and-online-methods/"><u>MPG to MOV File Conversion: A Step-by-Step Guide for Windows, Mac & Online Methods</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/pcyoutubedvd/"><u>PCでYouTube映像をDVDに保存するためのガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-5-mts-video-editing-software-recommended/"><u>Updated 2024 Approved Top 5 MTS Video Editing Software Recommended</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

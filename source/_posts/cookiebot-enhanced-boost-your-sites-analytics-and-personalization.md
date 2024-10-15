@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization"
-date: 2024-10-04T18:47:02.705Z
-updated: 2024-10-08T17:45:37.887Z
+date: 2024-10-12T21:53:04.904Z
+updated: 2024-10-15T01:15:33.395Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6475a435b4a4c85695223b88.jpg
@@ -29,13 +29,6 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 
 [記事はこちら](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. DXの成功はプロセスの真実を理解することから
 
 デジタルインテリジェンスは、企業にとって今最も重要と考えられている場所、つまり顧客体験、競争上の優位性、可視性、コンプライアンスに多大な影響を与えます。 ABBYYのデジタルマーケティングのディレクターでありプロセスのエキスパートであるRyan Raikerは、RTInsights.comの記事で、どのようにビジネスが組織のプロセスを深く理解する必要としているかを説明しています。
@@ -47,19 +40,6 @@ CMO（最高マーケティング責任者）のJupp Stoepetieが同社に20年�
 自動化は企業を根本的に変革しました。ワークフローの合理化、運用効率の向上から顧客体験の向上まで、自動化はビジネスに不可欠な機能を強化し、DXを推進します。
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 RPA技術により、従業員は日常的な簡単な繰り返し業務ではなく、収益に直接影響する高価値で創造的な業務に集中することができます。 ただし、大きなメリットがあるにもかかわらず、RPA技術だけでは、自動化の可能性を最大限に引き出すには十分ではありません。 ABBYY CIO（最高イノベーション責任者）のAnthony Macciolaは、このForbesの記事で、コンテンツのコンテキストと意味を理解するために、デジタルインテリジェンスソリューションを使用するよう企業組織にアドバイスしています。
 
@@ -77,22 +57,29 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 米国で非常事態宣言が発令されてからわずか数週間後の3月下旬、Amazonでさえ1か月もの配達遅延が発生したと報告されました。 ABBYYの製品マーケティング担当役員（Vice President）であるBruce Orcuttは、サプライチェーンが回復力を発揮するためには、迅速にピボット（軸を決めて旋回）できる必要があるとSupply & Demand Chain Executiveで語っています。
 
 [記事はこちら](https://www.sdcexec.com/software-technology/article/21159542/3-questions-every-leader-needs-to-ask-for-a-resilient-supply-chain)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. 壊れた業務プロセスを修正することによる利益率の活性化
 
 今日では、医療提供者は利益率を確保し、保険会社が支払うべきすべてのドルを取得する必要があります。 運用効率の向上と管理プロセスの合理化は、請求拒否を減らし、請求ワークフローに伴うやり直しの量を最小限に抑えるのに大いに役立ちます。 Bruce Orcuttは、ヘルスケアリーダーが、どこにボトルネックがあり、どのプロセスにコストがかかっているのかを特定できる高度なソリューションの必要性について語っています。
 
 [記事はこちら](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. 強烈な効果をもたらすRPAにタスクマイニングとプロセスマイニングで明確な道筋を
 
@@ -102,6 +89,13 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **_クラウドベースのプラットフォームであるABBYY Timelineは、高度なタスクマイニング（ [過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）およびプロセスマイニング（[過去ブログ記事](https://tools.techidaily.com/abbyy/products/)）を使用して、人、プロセス、およびコンテンツからの洞察を組み合わせることにより、ビジネスオペレーションを360度可視化します。_**
 
 **_詳細、体験版申し込みは[こちら](https://tools.techidaily.com/abbyy/products/)より承ります。_**
@@ -109,10 +103,10 @@ RPA技術により、従業員は日常的な簡単な繰り返し業務では�
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [新型コロナ感染症](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -178,24 +172,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-deep-dive-into-acid-pro-functionality-and-alternatives-for-2024/"><u>[New] Deep Dive Into ACID Pro Functionality & Alternatives for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-tone-and-pitch-control-on-chrome-os-select-the-best-online-speech-converters/"><u>2024 Approved Tone and Pitch Control on Chrome OS Select the Best Online Speech Converters</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-technology-boosting-website-efficiency-and-tracking-success/"><u>Cookiebot-Driven Technology: Boosting Website Efficiency and Tracking Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-optimizing-your-website-with-advanced-tracking-and-analytics/"><u>Cookiebot-Enabled: Optimizing Your Website with Advanced Tracking & Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-personalization-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated Personalization: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhance-your-iphones-video-quality-essential-stabilization-techniques/"><u>Enhance Your iPhone's Video Quality Essential Stabilization Techniques</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/from-distance-to-face-to-face-laptop-techniques-for-whatsapp-calls/"><u>From Distance to Face-to-Face Laptop Techniques for WhatsApp Calls</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-oneplus-11-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your OnePlus 11 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/izing-impact-strategies-for-overcoming-video-short-snags-for-2024/"><u>Maximizing Impact Strategies for Overcoming Video Short Snags for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stop-overlapping-alerts-how-to-prevent-your-ipad-from-ringing-alongside-your-iphone/"><u>Stop Overlapping Alerts: How to Prevent Your iPad From Ringing Alongside Your iPhone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-essential-guide-to-navigating-the-windows-registry-with-helpful-revouninstaller-strategies/"><u>The Essential Guide to Navigating the Windows Registry with Helpful RevoUninstaller Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-convert-your-social-media-presence-into-a-sustainable-business-model-for-2024/"><u>[New] How to Convert Your Social Media Presence Into a Sustainable Business Model for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-insiders-handbook-to-crafting-shareable-meme-gifs/"><u>[New] The Insider's Handbook to Crafting Shareable Meme GIFs</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726029280838-pnggif3/"><u>「ピンクからジビットへ: PNG画像をGIF形式に変換するための3つのテクニック解説」</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-decoding-vimeos-variety-of-subscription-plans-and-their-advantages/"><u>2024 Approved Decoding Vimeo's Variety of Subscription Plans and Their Advantages</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-your-podcast-for-apple-platform-access/"><u>2024 Approved Streamlining Your Podcast for Apple Platform Access</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-personalize-the-save-spot-of-mac-images/"><u>In 2024, Personalize the Save Spot of Mac Images</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ying-monthly-for-youtubes-unlimited-access-a-good-deal-for-2024/"><u>Is Paying Monthly for YouTube's Unlimited Access a Good Deal for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/llama-local-ization-guide-how-to-install-and-use-it-yourself/"><u>Llama ˈLocal-Ization' Guide: How to Install and Use It Yourself</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-8-methods-for-cracking-drm-on-your-dvds-discover-free-solutions/"><u>Top 8 Methods for Cracking DRM on Your DVDs: Discover Free Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-occasional-glitches-why-does-my-apps-update-feature-fail-at-times/"><u>Understanding Occasional Glitches: Why Does My App's Update Feature Fail at Times?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/web-windows-10-voice-recorder/"><u>Webミーティングの録音手引: Windows 10 Voice Recorder使用法</u></a></li>
 </ul></div>
 

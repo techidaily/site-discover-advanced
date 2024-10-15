@@ -1,7 +1,7 @@
 ---
 title: "Top Picks: Abbyy at the Forefront of IDC Industry Analysis Reports"
-date: 2024-10-06T19:09:31.845Z
-updated: 2024-10-08T16:15:53.715Z
+date: 2024-10-12T22:33:00.487Z
+updated: 2024-10-14T17:14:16.245Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5adbaedbc32c515398682e6a33ec3c2c1afff467021d3f18604d423ee17ce346.jpg
@@ -20,10 +20,10 @@ In diesem ersten Bericht von IDC werden KI-Technologien wie optische Zeichenerke
 Das IDC-MarketScape-Analysemodell wurde entwickelt, um einen Überblick über die Wettbewerbsfähigkeit von ICT-Anbietern auf einem bestimmten Markt zu geben. Die Bewertung erfolgt nach einem stringenten Punktesystem, das sowohl qualitative als auch quantitative Kriterien berücksichtigt und in einer grafischen Darstellung der Position jedes Anbieters innerhalb eines bestimmten Marktes resultiert. Die Punktzahl in der Kategorie Capabilities bewertet das Produkt, die Markteinführung und die kurzfristige Geschäftsabwicklung des Anbieters. Die Strategiebewertung misst die Ausrichtung der Anbieterstrategien an den Kundenanforderungen in einem Zeitrahmen von drei bis fünf Jahren. Der Marktanteil der Anbieter wird durch die Größe der Icons dargestellt. 
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY. 
@@ -107,15 +107,24 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-comprehensive-screen-capture-manual-by-zd-software/"><u>[Updated] Comprehensive Screen Capture Manual by ZD Software</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-polishing-zoom-picture-quality-simple-solutions/"><u>2024 Approved Polishing Zoom Picture Quality Simple Solutions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boosting-your-job-hunt-with-these-6-smart-tactics-using-chatgpt/"><u>Boosting Your Job Hunt with These 6 Smart Tactics Using ChatGPT</u></a></li>
-<li><a href="https://windows11.techidaily.com/elevating-virtual-battles-why-windows-reigns-supreme/"><u>Elevating Virtual Battles: Why Windows Reigns Supreme</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-latest-cookiebot-technology/"><u>Enhanced Personalization with the Latest Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-automated-tracking-powered-by-cookiebot-technology/"><u>Enhanced User Experience with Automated Tracking: Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/experience-tailored-browsing-optimized-using-advanced-cookiebot-solutions/"><u>Experience Tailored Browsing - Optimized Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-abbyy-achieved-a-remarkable-25-increase-in-revenue-for-the-year-2n-2017/"><u>How ABBYY Achieved a Remarkable 25% Increase in Revenue for the Year 2N 2017</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-buzzing-beats-leading-music-distortion-apps/"><u>In 2024, Buzzing Beats Leading Music Distortion Apps</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-free-online-video-smoothers-our-top-picks-for-2024/"><u>Updated Free Online Video Smoothers Our Top Picks for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-quick-tips-efficiently-post-videos-on-igtv/"><u>[New] In 2024, Quick Tips Efficiently Post Videos on IGTV</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-oppo-reno-11f-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/bereinigen-sie-das-chaos-geheimtipps-zum-wiederauffinden-verlorener-dokumente-unter-windows-tdesktophilter/"><u>Bereinigen Sie Das Chaos! Geheimtipps Zum Wiederauffinden Verlorener Dokumente Unter Windows tDesktophilter</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-optimization-with-cookiebot-technology/"><u>Enhanced Traffic Optimization with Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-traffic-tracking-through-cutting-edge-technology-powered-by-cookiebot/"><u>Enhanced Traffic Tracking Through Cutting-Edge Technology - Powered by Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-smart-cookiebot-technology/"><u>Enhanced User Experience with Smart Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-website-performance-through-advanced-analytics-and-cookiebot-technology/"><u>Enhancing Website Performance Through Advanced Analytics and Cookiebot Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-enhanced-conversion-rates-through-cutting-edge-cookiebot-based-technology-solutions/"><u>Experience Enhanced Conversion Rates Through Cutting-Edge, Cookiebot-Based Technology Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/experience-improved-behavioral-analytics-through-cookiebot-solutions/"><u>Experience Improved Behavioral Analytics Through Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/expert-subcontracting-solutions-for-enhancing-abbyy-software-offerings/"><u>Expert Subcontracting Solutions for Enhancing ABBYY Software Offerings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/gartner-magic-quadrant-2024abbyy/"><u>Gartner® Magic Quadrant™ 2024でABBYY: 先駆的なプロセスマイニングソリューションのトップ選</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-enhances-your-digital-marketing-efforts-through-smart-bidding-and-automation/"><u>How Cookiebot Enhances Your Digital Marketing Efforts Through Smart Bidding and Automation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-poco-m6-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oneplus-12r-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass OnePlus 12R FRP</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/upcoming-tesla-robotaxi-insight-into-potential-costs-release-plans-features-and-circulating-speculations/"><u>Upcoming Tesla Robotaxi: Insight Into Potential Costs, Release Plans, Features and Circulating Speculations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/why-isnt-my-vudu-movie-converting-from-disc-to-digital-learn-how-to-resolve-the-problem-now/"><u>Why Isn't My Vudu Movie Converting From Disc to Digital? Learn How to Resolve the Problem Now!</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/your-complete-macootd-filmmaking-handbook-for-2024/"><u>Your Complete MacOOTD Filmmaking Handbook for 2024</u></a></li>
 </ul></div>
 

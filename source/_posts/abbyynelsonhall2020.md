@@ -1,7 +1,7 @@
 ---
 title: ABBYYとNelsonHallが2020年度プロセス発掘・マイニング評価でトップアワード受賞
-date: 2024-10-01T17:51:32.438Z
-updated: 2024-10-08T19:14:18.415Z
+date: 2024-10-13T18:38:14.379Z
+updated: 2024-10-15T01:16:00.728Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fd60f16bf20dda981eb260766dc085349ba6360b3659bdf5766d705fbc85be65.jpg
@@ -69,31 +69,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-essential-tips-for-capturing-high-quality-audio-in-filmmaking/"><u>[Updated] Essential Tips for Capturing High-Quality Audio in Filmmaking</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-convert-youtube-videos-to-gifs/"><u>[Updated] How to Convert YouTube Videos to GIFs</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-13-ultra-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Xiaomi 13 Ultra to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy M54 5G</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oneplus-ace-3-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from OnePlus Ace 3 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-pop-8frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Pop 8FRP Lock</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-reach-without-money-youtube-video-advancement-strategies-for-2024/"><u>Mastering Reach Without Money YouTube Video Advancement Strategies for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-and-effortless-techniques-for-amplifying-sound-in-audacity/"><u>Quick and Effortless Techniques for Amplifying Sound in Audacity</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revamped-and-updated-blamo-add-on-now-live-for-kodi-users-leia-and-krypton-versions/"><u>Revamped and Updated Blamo Add-On Now Live for Kodi Users: Leia & Krypton Versions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ess-conversion-of-video-content-to-dynamic-gif-formats-for-2024/"><u>Seamless Conversion of Video Content to Dynamic GIF Formats for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/simple-methods-for-extracting-audio-files-in-facebook-messenger-conversations/"><u>Simple Methods for Extracting Audio Files in Facebook Messenger Conversations</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/solving-the-silent-issue-effective-solutions-for-windows-screen-recordings-with-no-audio/"><u>Solving the Silent Issue: Effective Solutions for Windows Screen Recordings with No Audio</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-combining-multiple-mp4-clips-on-your-windows-11-pc/"><u>Step-by-Step: Combining Multiple MP4 Clips on Your Windows 11 PC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-finest-5k-monitors-our-choice-8-edition/"><u>The Finest 5K Monitors Our Choice, #8 Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-recommended-settings-when-sharing-videos-on-twitter-what-you-need-to-know-for-successful-engagement/"><u>Top Recommended Settings When Sharing Videos on Twitter: What You Need To Know For Successful Engagement</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
-<li><a href="https://os-tips.techidaily.com/usb-type-c-port-on-iphone-15-features-enhanced-connectivity/"><u>USB Type-C Port on iPhone 15 Features Enhanced Connectivity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-the-fine-art-of-instagram-photo-borders/"><u>[New] 2024 Approved Mastering the Fine Art of Instagram Photo Borders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-sneak-peeks-into-slow-motion-mastery-on-instagram/"><u>[New] In 2024, Sneak Peeks Into Slow-Motion Mastery on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leveraging-zoom-features-for-immersive-fb-live-views/"><u>[Updated] In 2024, Leveraging Zoom Features for Immersive FB Live Views</u></a></li>
+<li><a href="https://location-fake.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/1728484474929-asus/"><u>ASUSトレーナーバックアップ計画とその代替オプション:詳細なガイド</u></a></li>
+<li><a href="https://fox-that.techidaily.com/combat-slow-instagram-six-strategies-to-enhance-app-speed-on-ios-and-android-platforms/"><u>Combat Slow Instagram: Six Strategies to Enhance App Speed on iOS and Android Platforms</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-distribution-network-through-cutting-edge-rpa-and-intelligent-scanning-technology/"><u>Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-performance-using-the-latest-cookiebot-solutions/"><u>Enhanced Performance Using the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-ai-driven-technology-of-cookiebot/"><u>Enhanced Personalization with the AI-Driven Technology of Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-site-personalization-with-advanced-analytics-by-cookiebot/"><u>Enhanced Site Personalization with Advanced Analytics by Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-advanced-web-tracking-the-cookiebot-solution/"><u>Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-performance-in-claims-management-strategies-from-abbyy-ebook-expertise/"><u>Enhancing Performance in Claims Management: Strategies From ABBYY eBook Expertise</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionary-design-meets-raw-performance-a-closer-look-at-xbox-series-s/"><u>Revolutionary Design Meets Raw Performance: A Closer Look at Xbox Series S</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723011668390-solve-your-battlefield-2042-game-crashes-caused-by-directx-errors-today/"><u>Solve Your Battlefield 2042 Game Crashes Caused by DirectX Errors Today!</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

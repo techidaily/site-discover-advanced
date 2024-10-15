@@ -1,7 +1,7 @@
 ---
 title: Automatische Erfassung Von Rechnungen Mit ABBYY Bei Der Deurag-Hotel Holding GmbH
-date: 2024-10-01T18:26:06.165Z
-updated: 2024-10-08T18:26:09.091Z
+date: 2024-10-07T20:11:58.761Z
+updated: 2024-10-14T23:27:59.233Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a055c6f3927bcc9e40cc66cb.jpg
@@ -19,29 +19,22 @@ Insurance | Accounts Payable Automation
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## So ist’s Recht! ABBYY FlexiCapture ermöglicht die automatisierte Erfassung von Rechnungen der DEURAG
 
 Versicherungen | Kreditorenbuchhaltung 
 
 ![](https://static1.abbyy.com/abbyycommedia/15532/malaysia-insurarnce1-pic1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Über den Kunden
 
 ![Deutsche Rechtsschutz-Versicherung AG](https://static2.abbyy.com/abbyycommedia/5314/deurag-logo_155.gif) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name        | Deutsche Rechtsschutz-Versicherung AG |
 | ----------- | ------------------------------------- |
@@ -101,10 +94,10 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
@@ -112,15 +105,22 @@ Der Vorteil hierbei liegt ganz klar in der schnellen und effizienten Bearbeitung
 [![9-Insurance](https://static2.abbyy.com/abbyycommedia/14359/9-insurance.jpg)](https://tools.techidaily.com/abbyy/products/) [Versicherungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-norton-360x162](https://static5.abbyy.com/abbyycommedia/14890/cs-norton-360x162.jpg)](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/7988/fallstudie-deurag-versicherungen-de.pdf "PDF-Version") 
 
@@ -153,17 +153,22 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-enhancing-youtube-content-with-free-music-sources-for-2024/"><u>[New] Enhancing YouTube Content with Free Music Sources for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>[New] In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweet-trailblazers-the-trending-threads-showdown-for-2024/"><u>[New] Tweet Trailblazers The Trending Threads Showdown for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-premier-music-broadcasts-online/"><u>2024 Approved Premier Music Broadcasts Online</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-cyberpunk-2077-dark-display-issue-a-comprehensive-guide/"><u>Fixing the Cyberpunk 2077 Dark Display Issue: A Comprehensive Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-wsreset-troubleshooting-in-windows-environments/"><u>Mastering WSReset Troubleshooting in Windows Environments</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/spread-the-word-about-our-favorite-no-cost-av-converter-software-for-easy-sharing/"><u>Spread the Word About Our Favorite No-Cost AV Converter Software for Easy Sharing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-adjusting-your-videos-color-tone/"><u>Step-by-Step Guide: Adjusting Your Video's Color Tone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-best-voice-changer-apps-for-iphone-and-android/"><u>Updated In 2024, Best Voice Changer Apps for iPhone and Android</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-immersion-in-the-most-realistic-water-games/"><u>[New] In 2024, Immersion in the Most Realistic Water Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beating-the-blues-of-overly-green-a-mac-video-editors-handbook/"><u>[Updated] 2024 Approved Beating the Blues of Overly Green A Mac Video Editor's Handbook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-gain-unlimited-stock-videos-through-essential-4-youtube-sources/"><u>[Updated] Gain Unlimited Stock Videos Through Essential 4 YouTube Sources</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-comprehensive-list-of-non-udemy-e-learning-success-stories/"><u>2024 Approved Comprehensive List of Non-Udemy E-Learning Success Stories</u></a></li>
+<li><a href="https://win-bits.techidaily.com/windows-1187discord/"><u>两种方法：怎样在Windows 11、8或7系统中找回删除的Discord图片</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-fueled-solutions-enhancing-your-digital-experience/"><u>Cookiebot-Fueled Solutions: Enhancing Your Digital Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/customized-personalization-with-automated-marketing-bot/"><u>Customized Personalization with Automated Marketing Bot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-engagement-and-sales-using-smart-visitor-tracking-technology/"><u>Drive Engagement and Sales Using Smart Visitor Tracking Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/drive-more-traffic-enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Drive More Traffic: Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/driving-targeted-traffic-through-advanced-personalization-techniques-using-our-unique-algorithm/"><u>Driving Targeted Traffic Through Advanced Personalization Techniques Using Our Unique Algorithm</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-marketing-automation-through-advanced-cookiebot-solutions/"><u>Enhanced Marketing Automation Through Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-through-advanced-cookiebot-integration/"><u>Enhanced User Experience Through Advanced Cookiebot Integration</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhancing-customer-onboarding-with-mobile-ocr-technology/"><u>Enhancing Customer Onboarding with Mobile OCR Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevating-your-gameplay-on-youtube-with-these-essential-tags/"><u>In 2024, Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-xiaomi-redmi-note-12r-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Xiaomi Redmi Note 12R</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/mp4-videos-wiederfinden-lerne-verlorene-mp4-dateien-leicht-wiederherzustellen/"><u>MP4 Videos Wiederfinden? Lerne, Verlorene MP4-Dateien Leicht Wiederherzustellen</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-constructor-suite/"><u>Video Constructor Suite</u></a></li>
 </ul></div>
 

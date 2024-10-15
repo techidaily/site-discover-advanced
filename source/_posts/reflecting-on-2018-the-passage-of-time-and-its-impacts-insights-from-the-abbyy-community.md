@@ -1,7 +1,7 @@
 ---
 title: Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community
-date: 2024-10-03T18:42:09.827Z
-updated: 2024-10-08T17:49:38.764Z
+date: 2024-10-12T19:50:04.468Z
+updated: 2024-10-14T20:38:08.240Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb81dcbc464d7190885cdca32.jpg
@@ -105,29 +105,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-infusing-personality-with-custom-fonts-in-ae-workflows/"><u>[New] Infusing Personality with Custom Fonts in AE Workflows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-tools-simplifying-the-task-of-feedback-erasure-for-2024/"><u>[Updated] Efficient Tools Simplifying the Task of Feedback Erasure for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-nokia-g310-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Nokia G310 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/advanced-ai-powered-robots-tackle-unstructured-data-insights-from-the-abbyy-experience/"><u>Advanced AI-Powered Robots Tackle Unstructured Data: Insights From the ABBYY Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ai-ocr/"><u>AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebook-video-extravaganza-the-most-advanced-fire-browser-tools-updated-for-2024/"><u>Facebook Video Extravaganza The Most Advanced Fire-Browser Tools, Updated for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/from-windows-to-mac-your-ultimate-guide-for-taking-perfect-screenshots/"><u>From Windows to Mac: Your Ultimate Guide for Taking Perfect Screenshots</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratitude-archive-complete-collection-freepaid-for-2024/"><u>Gratitude Archive Complete Collection (Free/Paid) for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-dissecting-youtube-revenue-how-much-do-you-earning-from-adsense-per-kv/"><u>In 2024, Dissecting YouTube Revenue How Much Do You Earning From AdSense per KV?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-reno-8t-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Reno 8T 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/partnership-announcement-abbyy-secures-trademark-license-collaboration-with-xerox-for-enhanced-scanning-technologies/"><u>Partnership Announcement: ABBYY Secures Trademark License Collaboration with Xerox for Enhanced Scanning Technologies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-solutions-for-tomorrows-trade-financing-obstacles/"><u>Pioneering Solutions for Tomorrow's Trade Financing Obstacles</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/real-time-monitoring-of-abbyy-announcements-using-timelinepi/"><u>Real-Time Monitoring of ABBYY Announcements Using TimelinePI</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/streamline-your-gdpr-compliance-using-cookiebot-technology/"><u>Streamline Your GDPR Compliance Using Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-innovations-in-technology-chat-with-ulf-persson-leader-of-abbyy/"><u>Unlocking Innovations in Technology: Chat with Ulf Persson, Leader of ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-site-success-with-cookiebots-advanced-tracking-solutions/"><u>Unlocking Site Success with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-checklist-for-logitech-webcam-setup/"><u>[Updated] The Ultimate Checklist for Logitech Webcam Setup</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-spectrum-visionary-eizos-cg318-4k-reviewed-and-revealed/"><u>2024 Approved Full Spectrum Visionary EIZO's CG318-4K Reviewed and Revealed</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-groups-leadership-addresses-covid-1eb-concerns-with-a-formal-declaration-by-ulf-persson-ceo/"><u>ABBYY Group's Leadership Addresses COVID-1eb Concerns with a Formal Declaration by Ulf Persson, CEO</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-recognized-as-top-contender-in-the-2024-gartner-magic-quadrant-excellence-in-process-mining-solutions/"><u>ABBYY Recognized as Top Contender in the 2024 Gartner Magic Quadrant - Excellence in Process Mining Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/abbyy-welcomes-weronika-niemczyk-to-lead-human-resources-as-new-c-level-executive/"><u>ABBYY Welcomes Weronika Niemczyk to Lead Human Resources as New C-Level Executive</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/accelerate-digital-marketing-success-with-our-cookiebot-solution/"><u>Accelerate Digital Marketing Success with Our Cookiebot Solution!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/advanced-analytics-driven-by-the-latest-web-pixel-innovation/"><u>Advanced Analytics Driven by the Latest Web Pixel Innovation</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automate-with-cookiebot-enhance-your-sites-user-experience/"><u>Automate with Cookiebot: Enhance Your Site's User Experience</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-lead-generation-with-cookiebot-elevate-your-marketing-success/"><u>Automated Lead Generation with Cookiebot: Elevate Your Marketing Success</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-tecno-pop-8-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Tecno Pop 8 Phones with/without a PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-honor-play-7t-by-fonelab-android-recover-music/"><u>How to recover old music from your Honor Play 7T</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-find-x7-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo Find X7 to PC? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/nintendo-switchs-ultimate-hd-gameplay-for-2024/"><u>Nintendo Switch's Ultimate HD Gameplay for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-solution-addressing-driver-errors-on-hp-displays-under-windows-1087/"><u>Step-by-Step Solution: Addressing Driver Errors on HP Displays Under Windows 10/8/7</u></a></li>
+<li><a href="https://common-error.techidaily.com/successful-fix-for-video-player-error-message-error-code-224003/"><u>Successful Fix for Video Player Error Message - Error Code 224003</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-when-your-corsair-hs35-microphone-wont-work-on-windows-systems/"><u>Troubleshooting Tips When Your Corsair HS35 Microphone Won't Work on Windows Systems</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

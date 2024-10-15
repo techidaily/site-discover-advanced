@@ -1,7 +1,7 @@
 ---
 title: "AI OCR自動化で失敗を乗り越える上位３コツ:成功への道筋"
-date: 2024-10-07T16:11:18.361Z
-updated: 2024-10-08T18:27:44.501Z
+date: 2024-10-12T21:45:23.602Z
+updated: 2024-10-14T20:41:48.340Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f8cac83a0e7062f472435b7f.jpg
@@ -23,13 +23,6 @@ thumbnail: https://thmb.techidaily.com/80e9505289538424f43d5ba12eaf938497fe9485f
 
 OCRの検討段階では気づきにくい、OCRによる働き方改革や業務自動化を実現する上で注意すべきポイントについてご紹介いたします。
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## OCR導入に失敗する要因その１：文書レイアウトに起因する問題
 
 OCR導入の失敗には、3つの系統的な要因が見られます。その一つとして挙げられるのは、文書レイアウトに起因する問題です。
@@ -50,6 +43,13 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 繋がりを考慮しない処理しかできないケースがあります。先ほどの例で申しますと、本来であれば異なる種類の申請書に記載のある氏名と本人確認書類の氏名が一致しているか、など書類間で確認すべき事項があっても、繋がりを意識できないOCR製品の場合は目視での確認のみに留まります。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## OCR導入に失敗する要因その2：業務利用に起因する問題
 
 二つ目に挙げられるのは、業務利用を検討する際に発生する問題です。
@@ -68,16 +68,16 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35677/3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3つ目は、「セキュリティと接続性」です。OCR処理を行う帳票には、個人情報や会社の機密情報が含まれることが多々あります。OCR製品の選択では、充分なセキュリティを保てない、あるいは社内のセキュリティ基準を満たせない場合が無いか検討が必要です。
 
 また、社内の認証手続きに合致しない、社内ネットワーク基準に干渉するためアクセスできない、といったことが無いように、シングルサインオンや多段階認証への対応であるとか様々なシステムとの接続性にも事前に目を向ける必要があります。
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## OCR導入に失敗する要因その3：ワークフローに起因する問題
 
@@ -100,10 +100,10 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 ![AIOCR自動化を成功させる方法](https://static1.abbyy.com/abbyycommedia/35678/4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## AI OCRの自動化で失敗しないためには
@@ -119,10 +119,10 @@ OCR導入の失敗には、3つの系統的な要因が見られます。その�
 [AI OCR](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -188,24 +188,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unlocking-the-seo-puzzle-strategies-that-elevate-your-podcasts/"><u>[Updated] In 2024, Unlocking the SEO Puzzle Strategies That Elevate Your Podcasts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-prime-psd-visual-enhancements/"><u>[Updated] Prime PSD Visual Enhancements</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-sprint-towards-subscriber-goal-reach-1000/"><u>2024 Approved Sprint Towards Subscriber Goal Reach 1,000</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-14-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 14 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/best-hd-action-recorders-under-100-for-2024/"><u>Best HD Action Recorders Under $100 for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-boost-your-sites-analytics-and-personalization/"><u>Cookiebot-Enhanced: Boost Your Site's Analytics & Personalization</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enhanced-enriching-web-experiences-with-smart-analytics/"><u>Cookiebot-Enhanced: Enriching Web Experiences with Smart Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-your-ultimate-marketing-automation-solution/"><u>Cookiebot: Your Ultimate Marketing Automation Solution</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebots-dynamic-lead-generation-and-attribution-solutions/"><u>Cookiebot's Dynamic Lead Generation & Attribution Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/customized-user-experience-with-cookiebot-technology/"><u>Customized User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/digitalisierung-viele-milliarden-von-seiten-mit-abbyy-eine-revolutionare-losung-fur-die-rasterkatalogisierung/"><u>Digitalisierung Viele Milliarden Von Seiten Mit ABBYY: Eine Revolutionäre Lösung Für Die Rasterkatalogisierung</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/drive-traffic-with-automated-personalization-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated Personalization: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/elevating-data-protection-with-advanced-pet-solutions-the-abbyy-approach-to-privacy/"><u>Elevating Data Protection with Advanced PET Solutions | The ABBYY Approach to Privacy</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-swiftly-upgrade-your-videos-with-professional-level-fb-subtitle-making/"><u>In 2024, Swiftly Upgrade Your Videos with Professional-Level FB Subtitle Making</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/maximize-your-pcs-potential-with-the-latest-nvidia-geforce-210-driver-upgrade-on-windows-10/"><u>Maximize Your PC's Potential with the Latest NVIDIA GeForce 210 Driver Upgrade on Windows 10</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-updating-asus-vg24qe-display-driver-on-windows-pcs-what-you-need-to-know/"><u>Quick & Easy Guide to Updating Asus VG24#qe Display Driver on Windows PCs - What You Need to Know!</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshoot-missing-camera-in-device-manager/"><u>Troubleshoot Missing Camera In Device Manager</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-the-spike-in-gpt-hacks/"><u>Understanding the Spike in GPT Hacks</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-background-blur-101-boosting-video-clarity-on-youtube/"><u>[Updated] 2024 Approved Background Blur 101 Boosting Video Clarity on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-bringing-bytes-home-4-ways-to-transfer-data-pc/"><u>[Updated] 2024 Approved Bringing Bytes Home 4 Ways to Transfer Data PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagrams-power-in-motion-crafting-a-comprehensive-video-plan/"><u>[Updated] 2024 Approved Instagram's Power in Motion Crafting a Comprehensive Video Plan</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-essential-videography-the-leading-screen-recorder-apps/"><u>[Updated] In 2024, Essential Videography The Leading Screen Recorder Apps</u></a></li>
+<li><a href="https://fox-making.techidaily.com/comment-activer-et-synchroniser-les-fichiers-en-mode-sans-fil-offline-sur-windows-11/"><u>Comment Activer Et Synchroniser Les Fichiers en Mode Sans-Fil (Offline) Sur Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/easy-tutorial-how-to-capture-sound-using-windows-7/"><u>Easy Tutorial: How to Capture Sound Using Windows 7</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-techniques-to-halt-powerpoint-recordings/"><u>Effective Techniques to Halt PowerPoint Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/efficient-and-reliable-technique-for-downloading-charlie-puth-music-tracks/"><u>Efficient and Reliable Technique for Downloading Charlie Puth Music Tracks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://games-able.techidaily.com/elite-gaming-pad-essentials/"><u>Elite Gaming Pad Essentials</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-issue-how-to-stop-snowrunner-from-continuously-crashing-on-your-computer/"><u>Fixing the Issue: How to Stop SnowRunner From Continuously Crashing on Your Computer</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/free-guide-how-to-download-videos-from-flickr-without-hacking/"><u>FREE GUIDE: How to Download Videos From Flickr without Hacking</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-vivo-s17-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Vivo S17 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/perfectly-preserve-the-butler-film-a-comprehensive-guide-to-hd-dvd-cloning/"><u>Perfectly Preserve The Butler Film: A Comprehensive Guide to HD DVD Cloning</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/quick-fixes-for-vlc-when-it-cant-play-mkv-videos/"><u>Quick Fixes for VLC When It Can't Play MKV Videos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-troubleshooting-techniques-for-iphone-blackout-crisis/"><u>Step-by-Step Troubleshooting Techniques for iPhone Blackout Crisis</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-your-lens-skills-with-snapseed-essentials/"><u>Unlock Your Lens Skills with Snapseed Essentials</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iuobquobnooajowtlpluswkvuocqoocrplusocueodneodvoodiooajeobpplusobruwlleeuuplusobrpluswtlplusw5lewpluwpluslpluss4jeidveobiz865lia57es44gr5o6i5rgcig/"><u>なぜ「字夾エクスポート」での動画は字幕取得不能か?:一緒に探求</u></a></li>
 </ul></div>
 

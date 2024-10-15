@@ -1,7 +1,7 @@
 ---
 title: ABBYY Von Soft GmbH & Co. KG - Marktführer Bei Der Intelligenten Textanalyse Und Datenextraktion, Preisgekrönt 2021
-date: 2024-10-06T16:20:01.785Z
-updated: 2024-10-08T17:06:05.676Z
+date: 2024-10-12T20:58:00.599Z
+updated: 2024-10-14T16:40:42.423Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/774f6de9274f7609c4875885dabb331e04426fc4c3d70000050b8b0185ba7a27.jpg
@@ -42,16 +42,10 @@ Den vollständigen Bericht über ISG Provider Lens™ Intelligent Automation - S
 Den vollständigen Bericht zur Quadrant Knowledge Solutions SPARK Matrix for IDP 2021 finden Sie unter: <https://www.abbyy.com/resources/report/intelligent-document-processing-quadrant-knowledge-solutions/>.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -61,10 +55,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -72,10 +66,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -101,19 +95,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-asmr-explained-why-it-might-be-good-for-you/"><u>[New] ASMR Explained Why It Might Be Good For You</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-moviegenius-for-windows-8/"><u>[New] MovieGenius for Windows 8</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-revolutionizing-gift-reveal-innovative-ideas-for-2024/"><u>[New] Revolutionizing Gift Reveal Innovative Ideas for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-anonymizing-videos-tips-for-keeping-personal-data-hidden/"><u>[Updated] Anonymizing Videos Tips for Keeping Personal Data Hidden</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-discover-the-top-free-platforms-for-youtube-ops/"><u>2024 Approved Discover the Top Free Platforms for YouTube Ops</u></a></li>
-<li><a href="https://win11.techidaily.com/curing-file-writing-restrictions-in-windows-1011/"><u>Curing File Writing Restrictions in Windows 10/11</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/deploying-ai-agents-with-agentgpt-a-step-by-step-guide-from-your-web-browser/"><u>Deploying AI Agents with AgentGPT: A Step-by-Step Guide From Your Web Browser</u></a></li>
-<li><a href="https://video-capture.techidaily.com/join-the-journey-to-a-calmer-mind-games-for-2024/"><u>Join the Journey to a Calmer Mind (Games) for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-advanced-tracker-technology-the-secret-behind-our-success/"><u>Optimized with Advanced Tracker Technology: The Secret Behind Our Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/optimized-with-cookiebot-revolutionizing-digital-strategies-in-seo-and-analytics/"><u>Optimized with Cookiebot: Revolutionizing Digital Strategies in SEO and Analytics</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/pioneering-the-path-forward-with-abbyys-no-code-smart-document-technology-revolutionizes-business-efficiency/"><u>Pioneering the Path Forward with ABBYY's No-Code Smart Document Technology Revolutionizes Business Efficiency</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/press-announcement-paul-nizov-steps-into-role-of-leading-cisos-at-abbyy/"><u>Press Announcement: Paul Nizov Steps Into Role of Leading CISOs at ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reflecting-on-2018-the-passage-of-time-and-its-impacts-insights-from-the-abbyy-community/"><u>Reflecting on 2018 - The Passage of Time and Its Impacts | Insights From the ABBYY Community</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-custom-visitor-engagement-with-our-cookiebot-technology-integration/"><u>Unlocking Custom Visitor Engagement with Our Cookiebot Technology Integration</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-outrageous-odyssey-your-roadmap-to-the-funniest-tiktok-challenges/"><u>[New] 2024 Approved Outrageous Odyssey Your Roadmap to the Funniest TikTok Challenges</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-step-by-step-instructions-on-chromes-pip-across-all-platforms/"><u>[New] In 2024, Step-by-Step Instructions on Chrome’s PIP Across All Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-vs-video-edition-which-editor-wins-for-filmmaking-for-2024/"><u>[Updated] Vs. Video Edition Which Editor Wins for Filmmaking for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2-winx-platine-dvd-ripper-conversion-ultra-rapide-de-dvd-en-fichiers-videos-compatibles-mp4-et-hevc-en-moins-dune-demi-heure/"><u>2. WinX Platine DVD Ripper - Conversion Ultra Rapide De DVD en Fichiers Vidéos Compatibles MP4 Et HEVC en Moins D'une Demi-Heure.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discover-8-premium-filters-to-upgrade-your-cam-feeds/"><u>Discover 8 Premium Filters to Upgrade Your Cam Feeds</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-guide-to-the-best-gaming-tech/"><u>In 2024, YouTube's Guide to the Best Gaming Tech</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/insider-tips-on-finding-and-designing-standout-instagram-ringtone-alerts-for-2024/"><u>Insider Tips on Finding & Designing Standout Instagram Ringtone Alerts for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/streamline-your-workflow-automating-the-conversion-of-numerous-soundtracks-at-once/"><u>Streamline Your Workflow: Automating the Conversion of Numerous Soundtracks at Once</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-recommended-settings-when-sharing-videos-on-twitter-what-you-need-to-know-for-successful-engagement/"><u>Top Recommended Settings When Sharing Videos on Twitter: What You Need To Know For Successful Engagement</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/transforming-camproj-into-mp4-with-flawless-quality-no-need-for-camtasia-software/"><u>Transforming CAMPROJ Into MP4 with Flawless Quality - No Need for Camtasia Software!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/trimming-the-final-five-minute-segment-in-video-playback-a-step-by-step-guide-for-windows-11-users/"><u>Trimming the Final Five-Minute Segment in Video Playback: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ttamp3/"><u>TTAをMP3に変換する -高解像度オーディオ維持方法 : 入門編</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-transferring-and-converting-your-itunes-music-library-onto-a-compact-disc-using-windows/"><u>Ultimate Guide: Transferring and Converting Your iTunes Music Library Onto a Compact Disc Using Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-tutorial-streaming-mkv-videos-flawlessly-with-windows-media-player/"><u>Ultimate Tutorial: Streaming MKV Videos Flawlessly with Windows Media Player</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/understanding-occasional-glitches-why-does-my-apps-update-feature-fail-at-times/"><u>Understanding Occasional Glitches: Why Does My App's Update Feature Fail at Times?</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-ma/"><u>Updated In 2024, Ma</u></a></li>
 </ul></div>
 

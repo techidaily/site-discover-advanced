@@ -1,7 +1,7 @@
 ---
 title: Meet Anthony Macciola, The Recently Appointed Chief Innovation Leader at ABBYY!
-date: 2024-10-06T16:05:54.669Z
-updated: 2024-10-08T19:13:29.857Z
+date: 2024-10-11T02:02:35.680Z
+updated: 2024-10-14T22:30:36.598Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b18bf953373ef1ee065acd190.jpg
@@ -61,29 +61,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-using-siri-in-tiktok-videos-enhance-your-filming-experience/"><u>[Updated] In 2024, The Ultimate Guide to Using Siri in TikTok Videos - Enhance Your Filming Experience</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44cm44ow44op44km44k244ky44o844og44gu44oq44ki44or44k44kk44og5ypluso6yyy44gm5yplusv6io944gq5pya5paw44k944ov44oi44go44gd44gu5l244ge5pa544cn/"><u>「ブラウザゲームのリアルタイム収録が可能な最新ソフトとその使い方」</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-economical-pc-screen-grab-utilities/"><u>2024 Approved Economical PC Screen Grab Utilities</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-taking-twitters-short-form-stories-and-making-them-come-alive-as-gifs/"><u>2024 Approved Taking Twitter's Short Form Stories and Making Them Come Alive as GIFS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/24-bit-32-bit48khz-wav-audio-conversion-to-16-bit441khz-easy-guide/"><u>24-Bit, 32-Bit/48kHz WAV Audio Conversion to 16-Bit/44.1kHz - Easy Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/55s76z2i5pku5b2x5pmc44gr44kq44o844oh44kj44kq44oi44op44od44kv6lplus95yqg44gu57ch5y2y44ks44kk44oj/"><u>画面撮影時にオーディオトラック追加の簡単ガイド</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/57im5pku44kk5yuv55s744ks5qiq5pku44kk44gr5asj5oplusb44gz44kl5bcc6zaa44ks44kk44oj/"><u>縦撮り動画を横撮りに変換する専門ガイド</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/artful-animation-of-adventures-exploring-the-top-8-narrative-universities-top-8/"><u>Artful Animation of Adventures Exploring the Top 8 Narrative Universities (Top 8)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comprehensive-tutorial-on-how-to-save-youtubed-opus-audio-files-successfully/"><u>Comprehensive Tutorial on How to Save YouTubed OPUS Audio Files Successfully</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/creating-the-ultimate-movie-experience-by-merging-individual-dvd-segments-expert-tips-and-techniques/"><u>Creating the Ultimate Movie Experience by Merging Individual DVD Segments - Expert Tips & Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortless-ogg-file-fusion-techniques-for-enhanced-audio-management/"><u>Effortless OGG File Fusion Techniques for Enhanced Audio Management</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/effortlessly-amassing-house-beats-the-ultimate-trilogy-of-methods-for-downloading-and-storing-tunes-on-any-gadget/"><u>Effortlessly Amassing House Beats: The Ultimate Trilogy of Methods for Downloading and Storing Tunes on Any Gadget</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-remove-apple-iphone-xs-sim-lock-by-drfone-ios/"><u>How to Remove Apple iPhone XS SIM Lock?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-oppo-a59-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo A59 5G Unlock Without Password</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-apple-iphone-7-plus-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From Apple iPhone 7 Plus? 5 Tips You Must Know</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Vivo Y100 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-a-non-functional-usb-port-on-your-dell-device-solutions-revealed/"><u>Troubleshooting a Non-Functional USB Port on Your Dell Device - Solutions Revealed!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-mastering-webcam-recording-for-slideshows/"><u>[Updated] 2024 Approved Mastering Webcam Recording for Slideshows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-join-an-existing-zoom-call-effortlessly-android-style/"><u>[Updated] How to Join an Existing Zoom Call Effortlessly (Android Style)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/detailed-guide-to-add-transitions-in-kinemaster/"><u>Detailed Guide to Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-website-engagement-using-advanced-cookiebot-seo-techniques/"><u>Enhance Website Engagement Using Advanced Cookiebot SEO Techniques</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-your-distribution-network-through-cutting-edge-rpa-and-intelligent-scanning-technology/"><u>Enhance Your Distribution Network Through Cutting-Edge RPA and Intelligent Scanning Technology</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-performance-using-the-latest-cookiebot-solutions/"><u>Enhanced Performance Using the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-personalization-with-the-ai-driven-technology-of-cookiebot/"><u>Enhanced Personalization with the AI-Driven Technology of Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-site-personalization-with-advanced-analytics-by-cookiebot/"><u>Enhanced Site Personalization with Advanced Analytics by Cookiebot</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-user-experience-with-advanced-web-tracking-the-cookiebot-solution/"><u>Enhanced User Experience with Advanced Web Tracking: The Cookiebot Solution</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-best-printing-results-fresh-drivers-for-epson-xp-420/"><u>Get the Best Printing Results: Fresh Drivers for Epson XP-420</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-oppo-a78-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Oppo A78 5G Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovate-meme-designs-in-adobe-tools/"><u>Innovate Meme Designs in Adobe Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/pushing-boundaries-exploring-iphone-xs-unique-lens-tech/"><u>Pushing Boundaries Exploring iPhone X's Unique Lens Tech</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-10-astonishing-secrets-of-emojis-surprising-insights-you-never-heard/"><u>Unveiling 10 Astonishing Secrets of Emojis: Surprising Insights You Never Heard</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
