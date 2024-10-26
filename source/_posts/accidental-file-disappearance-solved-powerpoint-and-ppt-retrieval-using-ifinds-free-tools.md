@@ -1,7 +1,7 @@
 ---
 title: "Accidental File Disappearance Solved: PowerPoint and PPT Retrieval Using iFind's Free Tools"
-date: 2024-10-14T16:20:00.128Z
-updated: 2024-10-20T16:10:05.371Z
+date: 2024-10-24T23:04:49.568Z
+updated: 2024-10-26T07:40:06.069Z
 tags:
   - product
 categories:
@@ -35,13 +35,6 @@ Are you trying to ****retrieve lost PowerPoint files**? Look no further! Read on
 [3: Step-by-Step Guide to Recovering PowerPoint Files](https://tools.techidaily.com/ifind-recovery/products/)  
 [4: FAQs](https://tools.techidaily.com/ifind-recovery/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Introduction
 
 We’ve all been there: you spend hours of creativity and effort into creating a flawless PowerPoint presentation, and then it vanishes. The stress and anxiety that follow can be crushing.
@@ -74,6 +67,13 @@ Okay, let’s give it some thought. PowerPoint presentations are designed to con
 
 What makes PowerPoint recovery important, then? It’s about taking back command of your job, protecting your investments, and maintaining a steady pace of productivity. Nevertheless, you can save these files and spare yourself the trouble of having to start over using the correct recovery tools.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ****iFinD** ****Data Recovery** **to Recover Powerpoint Presentation** **Freely**
 
 First off, even those who are not tech-savvy may easily utilise iFinD Data Recovery’s user-friendly interface. Say farewell to complicated recovery procedures that demand a Ph.D. in software engineering to understand. It only takes a few clicks to [retrieve lost files](https://tools.techidaily.com/ifind-recovery/products/) with this free data recovery software.
@@ -83,19 +83,6 @@ But don’t be fooled by its apparent simplicity. With the use of sophisticated 
 Therefore, iFinD Data Recovery has you covered whether you’re trying to recover files from a desktop computer, laptop, external hard drive, or smartphone. The fastest feature of iFinD Data Recovery, though, is how quick it is. Thanks to this file recovery tool, you’ll get your PowerPoint presentation back in your hands before you can even finish your morning cappuccino. The days of waiting hours for your files to return are long gone.
 
 So, how does it work? It’s simple. We’ll discuss it through a step-by-step guide.
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ****Step-by-Step Guide to Recovering PowerPoint Files:**
 
@@ -115,27 +102,42 @@ Visit the official website to get iFinD Data Recovery, then follow the installat
 
 ![free powerpoint recovery solution](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/website1.png?resize=1100%2C472&ssl=1 "website1")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. **Select the Drive or Location:**
 
 You’ll see a list of the drives and storage devices linked to your computer after you open iFinD Data Recovery. Select the drive or location that contained your PowerPoint files prior to their disappearance. If in doubt, choose to scan every accessible drive for optimal coverage.
 
 ![Selection of Recovery Mode](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/Deleted_Files_and_Folders3.png?resize=780%2C439&ssl=1 "Deleted_Files_and_Folders3")
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. **Initiate a Deep Scan:**
 
 It’s time to start a deep scan after you’ve chosen the correct drive or location. This extensive scan will review every area of the selected drive, looking for evidence of your deleted PowerPoint files. Remain calm and allow the recovery tool to do its magic; the amount of time it takes to complete this task will depend on the size of the drive and the degree of data loss.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. **Preview and Select Recoverable Files:**
@@ -145,10 +147,10 @@ iFinD Data Recovery will show you a list of recoverable files, including any Pow
 ![select the powerpoint file you want to recover](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/select-the-powerpoint-file-you-want-to-recover.png?resize=1100%2C619&ssl=1 "select-the-powerpoint-file-you-want-to-recover")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. **Choose a Secure Location to Save Recovered Files:**
@@ -160,10 +162,10 @@ You must choose a secure location to save your PowerPoint files after you have c
 After deciding on a safe spot, start the recovery procedure and let iFinD Data Recovery do its magic. Remain calm and observe as your misplaced PowerPoint files materialize into something magnificent that can be viewed and used once more.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. **Verify Recovered Files:**
@@ -175,13 +177,6 @@ Take a moment to confirm that your PowerPoint files have been completely restore
 iFinD Data Recovery’s Resume function lets you save wanted recovery results or in other words, your recovery history. Also, it’s crucial to regularly backup your restored PowerPoint files if you want to avoid losing any more data. For safe and convenient file storage that you can access from anywhere, think about utilizing external hard drives or cloud storage services.
 
 ![resume the powerpoint recovery history](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/resume-the-powerpoint-recovery-history.png?resize=1100%2C619&ssl=1 "resume-the-powerpoint-recovery-history")
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ****FAQs**
 
@@ -197,6 +192,19 @@ The size of the disc and the degree of data loss affect how long the scan takes.
 
 Indeed, iFinD Data Recovery works with both Mac and Windows operating systems, so a variety of users can utilise it.
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ****Conclusion**
 
 Although losing PowerPoint files can be annoying, you can easily recover your priceless presentations by using iFinD Data Recovery. You can make sure that your presentations stay intact and ready to wow by using iFinD Data Recovery and the easy steps described in this guide.
@@ -208,13 +216,6 @@ With the free ppt recovery program, wave goodbye to data loss and hello to a smo
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -235,19 +236,6 @@ March 31, 2024
 In "Knowledge Base"
 
 [![how to recover repair corrupted word file](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/how-to-recover-repair-corrupted-word-file.jpg?fit=1200%2C781&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### [A Comprehensive New Guide on How to Recover Unsaved Word Documents](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -280,24 +268,20 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2024-03-26T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-broadcasting-facebook-videos-whats-the-future-like/"><u>[New] Broadcasting Facebook Videos What's the Future Like?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-discarding-virtual-gatherings-on-fb-pcsmartphones-for-2024/"><u>[New] Discarding Virtual Gatherings on FB, PC/Smartphones for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-ultimate-blueprint-adopting-mobizen-screen-recording-skills/"><u>[Updated] In 2024, The Ultimate Blueprint Adopting Mobizen Screen Recording Skills</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-solving-downloads-folder-unresponsive-issues-proven-strategies/"><u>1. Solving 'Downloads Folder Unresponsive' Issues: Proven Strategies</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-innovative-strategies-for-sport-streams-on-the-fly/"><u>2024 Approved Innovative Strategies for Sport Streams on the Fly</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/comment-gravez-votre-cd-pour-pas-un-sou-avec-notre-guide-facile/"><u>Comment Gravez-Votre CD Pour Pas Un Sou Avec Notre Guide Facile</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/data-resurrection-mastery-restoring-lost-files-from-a-damaged-or-formatted-hard-drive-with-windows-and-ifind-solutions/"><u>Data Resurrection Mastery: Restoring Lost Files From a Damaged or Formatted Hard Drive with Windows and iFinD Solutions</u></a></li>
-<li><a href="https://games-able.techidaily.com/debunking-the-myth-is-faster-always-better/"><u>Debunking the Myth: Is Faster Always Better?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ifind-data-rescue-navigating-the-price-of-data-retrieval-and-tips-to-minimize-future-costs/"><u>IFind Data Rescue: Navigating the Price of Data Retrieval and Tips to Minimize Future Costs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-extensive-physical-action-audit/"><u>In 2024, Extensive Physical Action Audit</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1728500371145-outlook/"><u>Outlookのメールが忽然と消滅!?原因と解決法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/probleme-bei-der-intel-datenmigrierung-beheben-sie-die-fehlfunktion-effektiv/"><u>Probleme Bei Der Intel Datenmigrierung - Beheben Sie Die Fehlfunktion Effektiv</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-lava-blaze-curve-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Lava Blaze Curve 5G Black and White | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/restore-your-memories-faster-ifinds-data-recovery-solutions-for-video-restoration-step-by-step-tutorial/"><u>Restore Your Memories Faster: IFinD's Data Recovery Solutions for Video Restoration - Step-by-Step Tutorial</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/schnelle-behebung-fur-fehlercode-0xc000021a-in-windows-10-expertenrat/"><u>Schnelle Behebung Für Fehlercode 0xC000021A in Windows 10 - Expertenrat</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/troubleshooting-guide-hidden-windows-server-201n2-r2-backups-revealed/"><u>Troubleshooting Guide: Hidden Windows Server 201N2 (R2) Backups Revealed!</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-boost-your-pubg-performance-with-these-top-7-optimization-strategies/"><u>Ultimate Guide: Boost Your PUBG Performance with These Top 7 Optimization Strategies</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/windows-10-startup-issues-solutions-and-fixes/"><u>Windows 10 Startup Issues: Solutions & Fixes</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-tactical-approach-for-finalizing-a-dormant-linkedin-profile/"><u>[Updated] In 2024, Tactical Approach for Finalizing a Dormant LinkedIn Profile</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unlocking-lenovos-full-potential-with-screen-recordings/"><u>[Updated] Unlocking Lenovo's Full Potential with Screen Recordings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-bright-potential-in-your-android-videos/"><u>2024 Approved Unleash Bright Potential in Your Android Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/5-windows/"><u>5 个有效的技巧：克服 'Windows无法查看指定设备或文件' 挑战</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/5-khtoat-hsasa-lgaal-alkrs-almstnskh-kabla-liklaaa-windows-11-dlyl-shaml/"><u>5 خطوات حساسة لجعل القرص المستنسخ قابلا لإقلاع Windows 11: دليل شامل</u></a></li>
+<li><a href="https://video-capture.techidaily.com/audiovisual-archive-system-and-voice-recordings/"><u>Audiovisual Archive System & Voice Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/expert-assistance-with-data-backup-recovery-and-duplication-processes/"><u>Expert Assistance with Data Backup, Recovery, and Duplication Processes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722969671969-get-installed-gigabyte-audio-drivers-for-free-today/"><u>Get Installed Gigabyte AUDIO Drivers for Free Today!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-to-efficiently-move-files-from-pst-to-gmail-including-methods-with-or-without-outlook/"><u>How to Efficiently Move Files From PST to Gmail, Including Methods with or without Outlook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-enhancing-visual-storytelling-with-impeccable-voice-over/"><u>In 2024, Enhancing Visual Storytelling with Impeccable Voice Over</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/methoden-zur-reparatur-und-wiedergewinnung-von-dateien-auf-einem-kaputten-usb-stick-ein-praktischer-leitfaden/"><u>Methoden Zur Reparatur Und Wiedergewinnung Von Dateien Auf Einem Kaputten USB-Stick - Ein Praktischer Leitfaden</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/raw-drive-and-partition-restoration-with-ifind-data-rescue-by-ifind-tech/"><u>Raw Drive & Partition Restoration with IFind Data Rescue by iFinD Tech</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/undeleting-files-on-your-usb-drive-a-step-by-step-guide-for-windows-11-users/"><u>Undeleting Files on Your USB Drive: A Step-by-Step Guide for Windows 11 Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/werkwijze-voor-de-migratie-van-samsung-data-naar-windows-10-herunterladen-en-instructies/"><u>Werkwijze Voor De Migratie Van Samsung-Data Naar Windows 10 - Herunterladen en Instructies</u></a></li>
 </ul></div>
 
