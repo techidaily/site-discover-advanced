@@ -1,7 +1,7 @@
 ---
 title: "Data Defense Guide by iFind: Comprehensive Techniques and Insights for Secure Deletion From the Recycle Bin & Preventing Unintended Data Loss"
-date: 2024-10-21T02:02:40.731Z
-updated: 2024-10-26T04:30:39.956Z
+date: 2024-10-30T05:19:58.704Z
+updated: 2024-10-31T17:55:33.547Z
 tags:
   - product
 categories:
@@ -31,27 +31,20 @@ Recycle Bin is the place your deleted files go in windows 10/7/8, and I know tha
 
 ![Recycle Bin Corrupted](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Recycle-Bin-Corrupted.jpg?resize=525%2C125&ssl=1)
 
-**Step 1:** click start and input “cmd,” then right-click on the Command Prompt, click Run as Administrator(To make sure you have the Permission)
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Step 1:** click start and input “cmd,” then right-click on the Command Prompt, click Run as Administrator(To make sure you have the Permission)
 
 ## Notice:
 
 Windows has separate Recycle Bin for each partition. If you get a warning message says The recycle bin on F: is corrupted, you should use F to replace C in the command.
 
 ![Command Prompt as administrator](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Command-Prompt-2.jpg?resize=393%2C588&ssl=1)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2:** Input the following command and click Enter.  
 `rd /s /q C:\$Recycle.bin`
@@ -66,6 +59,13 @@ After the fix, you need to doublecheck the previously deleted files in your Recy
 
 Sometimes you can’t find the Recycle Bin or the files you deleted for no reason! Here are the tips for getting them back!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How to Recover or Restore Missing Recycle Bin Icon in Windows 10/7/8
 
 **Step 1**: Click Start and select the **Settings** button.
@@ -78,6 +78,13 @@ Sometimes you can’t find the Recycle Bin or the files you deleted for no reaso
 
 ![Recycle Bin icon option](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/Recycle-Bin-icon.jpg?resize=397%2C452&ssl=1)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Notice: If you didn’t get the icon back after step 3, there is another way to create it manual
 
 **Step 1**: open File Explorer, click the View tab and then click Options on the right side.
@@ -88,29 +95,9 @@ Notice: If you didn’t get the icon back after step 3, there is another way to 
 
 ![Show hidden files](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/Show-hidden-files.jpg?resize=383%2C473&ssl=1)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3**: Go to C: in File Explorer and you will find a folder named “$Recycle.Bin” which is exactly the recycle bin location for windows 10 and win7, right-click on it, move to “sent to” and select “Desktop (create shortcut).” You should get the icon back!
 
 ![Recycle-Bin-folder](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/Recycle-Bin-folder.jpg?resize=570%2C250&ssl=1)![Recycle Bin icon create shortcut](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/Recycle-Bin-icon-create-shortcut.jpg?resize=574%2C148&ssl=1)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### _Deleted files still not in Recycle Bin?_
 
@@ -128,46 +115,45 @@ You should doublecheck the **Move Files to Recycle Bin Option** at this time.
 
 If you fix all the recycle bin problems, but the deleted files are still missing, with our free ifind data recovery software, you can restore all the accidentally deleted files and lost files quickly. you can find the guide of [How To Recover Deleted Files Windows 10](https://tools.techidaily.com/ifind-recovery/products/) here
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best Practices with Recycle Bin to Protect Your Data
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Forget about Shortcut Shift+Del when you are deleting anything.
 
 There are many folks(including me) love to del files with the Shift key. Yes, it’s easy and fast, but you may take the risk of losing your important data without any safety precautions!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Don’t Delete Files on Flash Drives
 
 You should know that any of USB device is not included in your recycle bin. The best solution is to copy all the data in your flash drive to your hard drive before you need to edit or delete. Plus, if you are using SDD, the speed will much faster!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Don’t use CMD to delete your files
 
 I know lots of geeks and Coders like to type command in CMD or Powershell. However, when you do the deleting this style, the recycling bin will always ignore it, and you will lose the data forever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. set up a larger Custom Size for Recycle Bin
@@ -184,6 +170,13 @@ Data is priceless! Following our tips and guide, we hope all your data are safe,
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Show Us some Love:
 
 * [Click to share on Facebook (Opens in new window)](https://www.ifind-recovery.com/how-to/recycle-bin-recovery/?share=facebook&nb=1 "Click to share on Facebook")
@@ -195,6 +188,13 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 * [Click to share on Tumblr (Opens in new window)](https://www.ifind-recovery.com/how-to/recycle-bin-recovery/?share=tumblr&nb=1 "Click to share on Tumblr")
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -235,21 +235,24 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-01-24T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unlocking-success-in-the-world-of-digital-marketing/"><u>[Updated] 2024 Approved Unlocking Success in the World of Digital Marketing</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-guide-elevating-gameplay-recordings-via-obs/"><u>[Updated] How-To Guide Elevating Gameplay Recordings via OBS</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-zoom-chat-how-to-chat-in-zoom-meeting-in-2024/"><u>[Updated] Zoom Chat How to Chat in Zoom Meeting, In 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-tres-formas-eficaces-para-evitar-el-sincronizado-de-backup-de-correos-electronicos-desde-gmail-a-google-drive/"><u>1. Tres Formas Eficaces Para Evitar El Sincronizado De Backup De Correos Electrónicos Desde Gmail a Google Drive</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/windows-111087-m2-pcie-nvme-ssd/"><u>最新マウント方式：Windows 11・10・8・7における M.2 PCIe (NVMe) SSDのクローニング手順</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-vivo-x90s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-to-recover-permanently-deleted-data-from-your-usb-drive-in-windows-10-and-windows-11-tips-and-tricks-for-easy-file-restoration/"><u>How to Recover Permanently Deleted Data From Your USB Drive in Windows 10 and Windows 11: Tips & Tricks for Easy File Restoration</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-the-singers-guide-to-cinematic-vocal-projection-using-filmora/"><u>In 2024, The Singers Guide to Cinematic Vocal Projection Using Filmora</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/losung-fur-iphone-update-stuck-ziehen-sie-die-heimtaste-nicht-fest/"><u>Lösung Für iPhone Update-Stuck - Ziehen Sie Die Heimtaste Nicht Fest</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-realme-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Realme Phone? Unlock It Now</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-s-most-popular-video-animation-tools-for-iphone-ipad-and-android/"><u>New 2024 Approved S Most Popular Video Animation Tools for iPhone, iPad, and Android</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/online-oasis-secure-re-entry-to-social-networks/"><u>Online Oasis Secure Re-Entry to Social Networks</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reset-all-configurations-and-clear-all-data-on-your-device-schnell-und-einfach/"><u>Reset All Configurations & Clear All Data On Your Device - Schnell Und Einfach</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/side-by-side-showdown-evaluating-the-differences-between-apple-watch-series-9-and-fitbit-charge-6/"><u>Side by Side Showdown: Evaluating the Differences Between Apple Watch Series 9 and Fitbit Charge 6</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/top-rangige-datensicherung-fur-mobile-anwendungen-wd-mypassport-ultra-bestes-backupsoftware/"><u>Top-Rangige Datensicherung Für Mobile Anwendungen: WD MyPassport Ultra - Bestes Backupsoftware</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/windows-11synology-nas/"><u>Windows 11資料同步到Synology NAS: 三種最簡單的备份方式</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-capturing-moments-right-ideal-perspectives-on-iphone/"><u>[New] 2024 Approved Capturing Moments Right Ideal Perspectives on iPhone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-in-the-ring-of-creatives-evaluating-own-and-adversary-arts/"><u>[New] 2024 Approved In the Ring of Creatives Evaluating Own and Adversary Arts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-identifying-hidden-account-activities/"><u>[Updated] In 2024, Identifying Hidden Account Activities</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-complete-beginners-guide-to-creating-impressive-macro-videos/"><u>2024 Approved The Complete Beginner's Guide to Creating Impressive Macro Videos</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1728477535625-windows/"><u>如何完成 Windows 电脑清理，移除桌面资源符号</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/5aac5l2v6lplusf6ycf5omplus5zue5rai5asx55qe5pu457gk4ocu5pya5l2z562w55wl5yig5lqr/"><u>如何迅速找回消失的書籤—最佳策略分享</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/banishing-static-like-motion-in-aerial-videos/"><u>Banishing Static-Like Motion in Aerial Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-transfer-of-music-from-soundcloud-pc-and-smartphone-solutions/"><u>Effortless Transfer of Music From SoundCloud: PC & Smartphone Solutions</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guia-paso-a-paso-para-generar-una-imagen-iso-de-windows-1110-desde-una-configuracion-actual/"><u>Guía Paso a Paso Para Generar Una Imagen ISO De Windows 11/10 Desde Una Configuración Actual</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/hacer-respaldos-ilimitados-gratuitamente-archivos-y-directorios-con-la-herramienta-aomei-backupper/"><u>Hacer Respaldos Ilimitados Gratuitamente: Archivos Y Directorios Con La Herramienta AOMEI Backupper</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-nokia-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Nokia Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ifinds-step-by-step-solution-for-retrieving-deleted-drives-in-windows-1011-using-ifind-data-recovery-software/"><u>IFinD's Step-by-Step Solution for Retrieving Deleted Drives in Windows 10/11 Using IFind Data Recovery Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/live-streaming-mastery-enhance-your-broadcasts-with-manycam-top-virtual-camera-software/"><u>Live Streaming Mastery: Enhance Your Broadcasts with ManyCam - Top Virtual Camera Software</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/online-tool-for-seamless-transformation-of-aac-audio-to-mp3-at-no-cost-using-movavis-solutions/"><u>Online Tool for Seamless Transformation of AAC Audio to MP3 at No Cost - Using Movavi's Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/restore-your-settings-fix-for-the-vanished-enhancement-tab-in-windows-11/"><u>Restore Your Settings: Fix for the Vanished Enhancement Tab in Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/schnelle-wiederherstellung-ihrer-gopro-sd-karten-losungen-fur-fehlerszenarien/"><u>Schnelle Wiederherstellung Ihrer GoPro SD-Karten - Lösungen Für Fehlerszenarien</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/schritt-fur-schritt-anleitung-zur-reparatur-einer-externen-rohfestplatte-ohne-dateisystem/"><u>Schritt-Für-Schritt-Anleitung Zur Reparatur Einer Externen Rohfestplatte Ohne Dateisystem</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-securely-preserving-files-before-hard-drive-formatting-in-windows-versions-10-8-7/"><u>Step-by-Step Guide: Securely Preserving Files Before Hard Drive Formatting in Windows Versions (10, 8, 7)</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/the-best-4-strategies-to-activate-your-dell-emc-backup-system/"><u>The Best 4 Strategies to Activate Your Dell EMC Backup System</u></a></li>
 </ul></div>
 

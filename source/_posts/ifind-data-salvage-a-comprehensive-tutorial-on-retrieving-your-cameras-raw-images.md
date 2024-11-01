@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2024-10-23T00:33:13.553Z
-updated: 2024-10-25T20:37:38.147Z
+date: 2024-10-27T02:54:30.461Z
+updated: 2024-10-31T23:51:43.846Z
 tags:
   - product
 categories:
@@ -30,15 +30,22 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: The concept and classification of hard drive:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
@@ -51,6 +58,13 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 Perhaps the biggest advantage of raw is that it can be converted into a 16-bit image. That is, there are 65,536 levels that can be adjusted, which is a big advantage for JPG files. In fact, this is very important when editing an image, especially if you need to make important adjustments to the shadow or highlight areas.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Raw Photo’s Disadvantages
 
 1：Compared to JPG, the same photo, the size of the photo is often 5-10 times that of JPG, which is not conducive to network transmission.
@@ -58,13 +72,6 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 2：Reading and editing require the special software.
 
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
 
@@ -125,22 +132,15 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost-File-Recovery.png?resize=640%2C486&ssl=1 "Lost File Recovery")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3: Select the partition which you want to recover the RAW Photos.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/select-partition.png?resize=640%2C486&ssl=1 "select partition")
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4: Scanning.
 
@@ -150,18 +150,18 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw_recover1.jpg?resize=640%2C486&ssl=1 "raw_recover1")
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Through the above article, we know what is raw photo and how to restore the lost raw photo. however, the most important thing is to develop good usage habits before losing. Above all, you can minimize the risk of losing data.
 
 [Download now](https://tools.techidaily.com/ifind-recovery/products/)
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -218,19 +218,16 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-in-depth-look-at-macs-top-screen-capture-apps/"><u>[Updated] 2024 Approved In-Depth Look at Mac's Top Screen Capture Apps</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-perfecting-video-conferencing-with-snap-functionality/"><u>[Updated] In 2024, Perfecting Video Conferencing with Snap Functionality</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/budget-friendly-ais-on-par-with-soras-capabilities/"><u>Budget-Friendly AIs on Par with Sora's Capabilities</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/create-unforgettable-home-videos-top-dvd-authoring-software/"><u>Create Unforgettable Home Videos Top DVD Authoring Software</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-guide-installing-sony-vaio-drivers-on-your-pc-with-windows-os/"><u>Easy Guide: Installing Sony Vaio Drivers on Your PC with Windows OS</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-apple-iphone-6s-plus-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From Apple iPhone 6s Plus in the Best Ways</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/how-to-resurrect-vanished-windows-documents-ultimate-techniques-for-effective-file-recovery/"><u>How To Resurrect Vanished Windows Documents: Ultimate Techniques for Effective File Recovery</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/revolutionize-your-data-exchange-achieving-seamless-synchronization-on-superior-file-sharing-platforms/"><u>Revolutionize Your Data Exchange: Achieving Seamless Synchronization on Superior File Sharing Platforms</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/solucionando-el-problema-de-la-particion-efi-desaparecida-con-estas-6-estrategias-eficaces/"><u>Solucionando El Problema De La Partición EFI Desaparecida Con Estas 6 Estrategias Eficaces</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/streamlining-post-processing-with-effective-use-of-luts-in-pscc/"><u>Streamlining Post-Processing with Effective Use of LUTs in PSCC</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/surmontez-les-problemes-dinstallation-des-fichiers-iso-sur-windows-11-3-solutions-efficaces/"><u>Surmontez Les Problèmes D'installation Des Fichiers .ISO Sur Windows 11 : 3 Solutions Efficaces</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-ultimate-guide-to-eliminating-repetitive-photographs-for-android-users-with-2-premium-yet-cost-free-solutions/"><u>The Ultimate Guide to Eliminating Repetitive Photographs for Android Users with 2 Premium Yet Cost-Free Solutions</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/transfert-et-agrandissement-de-limage-carte-sd-du-raspberry-pi-sous-windows-11-guide-simple/"><u>Transfert Et Agrandissement De L'Image Carte SD Du Raspberry Pi Sous Windows 11 - Guide Simple</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/1728489990409-windows-11/"><u>完成 Windows 11 資源回收籃中檔案的拯救方法 - 一步一步指南</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/comprendre-et-mettre-a-jour-les-parametres-robocopy-un-tutoriel-facile-pour-les-navigateurs-windows/"><u>Comprendre Et Mettre À Jour Les Paramètres Robocopy: Un Tutoriel Facile Pour Les Navigateurs Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-x50-gt-by-fonelab-android-recover-photos/"><u>How to get back lost photos from X50 GT.</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-to-restore-deleted-files-in-your-recycle-bin-using-ifind-data-recovery-for-windows-11-and-10-step-by-step-instructions-for-successful-retrieval-in-five-3/"><u>How to Restore Deleted Files in Your Recycle Bin Using iFind Data Recovery for Windows 11 and 10 - Step-by-Step Instructions for Successful Retrieval in Five Ways</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/kloniere-lenovo-harddisks-auf-ssds-mit-top-software-effizient/"><u>Kloniere Lenovo-Harddisks Auf SSDs Mit Top-Software Effizient</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/e-mastery-establishing-your-brands-youtube-outlet/"><u>Mobile Mastery Establishing Your Brand's YouTube Outlet</u></a></li>
+<li><a href="https://games-able.techidaily.com/quick-fixes-for-steam-installation-issues-on-windows-11/"><u>Quick Fixes for Steam Installation Issues on Windows 11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/story-for-answer-d-80000-psi-551-mpa/"><u>Story for Answer D: 80,000 Psi (551 MPa)</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/suchen-sie-ihre-google-bilder-schritt-fur-schritt-anleitung-zum-auffinden/"><u>Suchen Sie Ihre Google Bilder: Schritt-Für-Schritt-Anleitung Zum Auffinden</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
 </ul></div>
 
