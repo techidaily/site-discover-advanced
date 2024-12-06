@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2024-11-20T16:29:32.161Z
-updated: 2024-11-26T18:25:12.073Z
+date: 2024-12-05T00:41:16.866Z
+updated: 2024-12-06T00:56:54.435Z
 tags:
   - product
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 
 With the proliferation of digital cameras, especially professional ones, the Raw photos are becoming more common. **The RAW photo** has unparalleled advantages over other photos. If a lot of raw images are taken but lost. In fact, it will be a very frustrating thing. I’ll introduce to you what is the RAW photos, and then, guide you to use iFinD Data Recovery to restore the lost RAW photos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Summary
 
 [1: Advantages and Disadvantages of Raw Photos](https://tools.techidaily.com/ifind-recovery/products/)
@@ -34,12 +30,16 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: The concept and classification of hard drive:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
@@ -59,10 +59,6 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 2：Reading and editing require the special software.
 
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
 
@@ -123,7 +119,7 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost-File-Recovery.png?resize=640%2C486&ssl=1 "Lost File Recovery")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3: Select the partition which you want to recover the RAW Photos.
@@ -131,7 +127,7 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/select-partition.png?resize=640%2C486&ssl=1 "select partition")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4: Scanning.
@@ -148,13 +144,13 @@ Through the above article, we know what is raw photo and how to restore the lost
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -167,6 +163,10 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 * [Click to share on Tumblr (Opens in new window)](https://www.ifind-recovery.com/how-to/how-to-recover-the-cameras-raw-image-files/?share=tumblr&nb=1 "Click to share on Tumblr")
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -207,19 +207,22 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-chuckle-trail-your-guide-to-hilarious-online-stars/"><u>[New] 2024 Approved Chuckle Trail Your Guide to Hilarious Online Stars</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-convenient-methods-for-video-recording-on-youtube/"><u>2024 Approved Convenient Methods for Video Recording on YouTube</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/action-camera-showdown-sj-cam-s6-takes-the-spotlight/"><u>Action Camera Showdown SJ-CAM S6 Takes the Spotlight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/balancing-budget-and-performance-an-in-depth-look-into-the-fitbit-versa-lites-tracking-capabilities/"><u>Balancing Budget and Performance: An In-Depth Look Into the Fitbit Versa Lite's Tracking Capabilities</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/behebung-von-bitlocker-wiederherstellungspasswortproblemen-auf-windows-11-zwei-effiziente-methoden-erklart/"><u>Behebung Von BitLocker Wiederherstellungspasswortproblemen Auf Windows 11: Zwei Effiziente Methoden Erklärt</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/demystifying-hp-bios-settings-essential-tips-for-recognizing-and-utilizing-bootable-usb-drives-successfully/"><u>Demystifying HP BIOS Settings: Essential Tips for Recognizing and Utilizing Bootable USB Drives Successfully</u></a></li>
-<li><a href="https://review-topics.techidaily.com/does-vivo-y100t-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Vivo Y100t Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/essential-cloud-saving-apps-for-android-users-2024-rankings/"><u>Essential Cloud Saving Apps for Android Users (2024 Rankings)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-15-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off Apple iPhone 15 without Password</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-motorola-moto-g14-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Motorola Moto G14 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/seamless-cloning-guide-for-migrating-from-hard-drive-to-msata-solid-state-drive-on-pcs-with-windows-os/"><u>Seamless Cloning Guide for Migrating From Hard Drive to mSATA Solid State Drive on PCs with Windows OS</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/solution-found-insufficient-ram-on-your-pc-here-are-7-effective-fixes/"><u>Solution Found - Insufficient RAM on Your PC? Here Are 7 Effective Fixes!</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-reverting-to-past-documents-via-microsofts-cloud-storage-service-onedrive/"><u>Step-by-Step Guide: Reverting to Past Documents via Microsoft's Cloud Storage Service (OneDrive)</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/verhitteerde-herstelbestandsuitvoering-met-max-3-stappen-prullenbak-ontsporingskracht-versterken/"><u>Verhitteerde Herstelbestandsuitvoering Met Max. 3 Stappen: Prullenbak-Ontsporingskracht Versterken</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-laptop-and-mobile-guide-for-initiating-google-meet-for-2024/"><u>[New] Laptop & Mobile Guide for Initiating Google Meet for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-comparative-analysis-of-youtubes-ownership-vs-cc-licenses/"><u>[Updated] In 2024, A Comparative Analysis of Youtube's Ownership Vs. CC Licenses</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-download-your-favorite-shows-anytime-everywhere-with-these-apps/"><u>[Updated] In 2024, Download Your Favorite Shows Anytime, Everywhere with These Apps</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/download-premium-scarface-photo-collections-and-wraps-for-pcmac-from-yl-software/"><u>Download Premium Scarface Photo Collections and Wraps for PC/Mac From YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effective-strategies-by-yl-software-ensuring-your-computers-optimal-performance/"><u>Effective Strategies by YL Software: Ensuring Your Computer's Optimal Performance</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/effortless-techniques-for-iphone-screen-recordings/"><u>Effortless Techniques for Iphone Screen Recordings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/historic-figures-of-the-red-cliff-skirmish-identifying-key-combatants/"><u>Historic Figures of the Red Cliff Skirmish: Identifying Key Combatants</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-to-fix-common-scanner-issues-and-stop-receiving-errors-expert-advice-from-yl-software-team/"><u>How to Fix Common Scanner Issues and Stop Receiving Errors - Expert Advice From YL Software Team</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-g2-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo G2 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/installing-razer-peripherals-in-windows/"><u>Installing Razer Peripherals in Windows</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/manual-control-over-windows-11-updates-steps-and-guidelines-by-expert-software-house-yl/"><u>Manual Control Over Windows 11 Updates: Steps and Guidelines by Expert Software House YL</u></a></li>
+<li><a href="https://win-able.techidaily.com/outriders-optimization-how-we-overcame-slow-motion-gameplay-woes/"><u>Outriders Optimization - How We Overcame Slow Motion Gameplay Woes</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/premium-water-drop-scene-imagery-high-quality-backgrounds-and-wallpapers-by-yl-computing/"><u>Premium Water Drop Scene Imagery: High-Quality Backgrounds & Wallpapers by YL Computing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-vivo-x100-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Vivo X100</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/revamp-your-windows-11-start-experience-with-expert-customization-tips-from-yl-software/"><u>Revamp Your Windows 11 Start Experience with Expert Customization Tips From YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/uncovering-the-reasons-behind-your-gpus-operational-sounds-an-in-depth-guide-by-yl-computing/"><u>Uncovering the Reasons Behind Your GPU's Operational Sounds: An In-Depth Guide by YL Computing</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unlocking-computer-secrets-with-toms-hardware/"><u>Unlocking Computer Secrets with Tom's Hardware</u></a></li>
 </ul></div>
 
