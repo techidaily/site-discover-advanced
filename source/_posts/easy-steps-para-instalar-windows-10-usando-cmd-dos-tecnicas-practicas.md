@@ -1,7 +1,7 @@
 ---
 title: "Easy Steps Para Instalar Windows 10 Usando CMD: Dos Técnicas Prácticas"
-date: 2024-12-11T19:40:55.040Z
-updated: 2024-12-18T20:35:49.133Z
+date: 2024-12-22T02:56:45.201Z
+updated: 2024-12-26T21:31:37.431Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
@@ -42,6 +42,10 @@ Share this: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-arti
 4. [Suggestion: backup your crucial loading files in advance](https://tools.techidaily.com/ubackup/products/)
 5. [Conclusion](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## User case: Windows 11 winload.efi missing, F8 button not working
 
 My HP is not starting up. I’ve received the ‘winload efi is missing or corrupt’. All the troubleshooting steps require me to go into startup settings but in order for me to do that, I have to press F8 however when I do press it my screen flashes and it doesn’t take me there (this is on the blue ‘recovery’ screen with the error message). Can anyone help me please. I need to get back into my laptop. I can’t afford to reinstall the OS. Too much important files and data that I didn’t back up unfortunately.
@@ -79,7 +83,7 @@ Furthermore, AOMEI Backupper proves invaluable in tackling various problems such
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Best free bootable media creation tool
@@ -90,10 +94,6 @@ Step 1\. Download this software and open it. Click **Tools** and then choose **C
 
 [![Create Bootable Meida](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/create-bootable-media/create-bootable-meida.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Select a type of bootable media you want to create and click **Next** to continue. For better performance, the **Windows PE bootable disc** is recommended.
 
 [![Winpe](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/create-bootable-media/winpe.png)
@@ -103,20 +103,12 @@ Step 3\. Select the CD, DVD, USB drive or ISO file as bootable media. Then click
 [![Choose Bootable Media](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/create-bootable-media/choose-bootable-media.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After creating bootable media (just a few minutes), boot your computer from this media, then AOMEI Backupper will run automatically, then go to **Tools** \-> **Windows Shell Command**. And you can restore system image or disk image created by AOMEI Backupper. 
 
 [![Windows Shell Command](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/windows-shell-command.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Option 2\. Disable Secure Boot
 
@@ -148,10 +140,6 @@ Step 3\. Select **Troubleshoot** and then **Command Prompt**.
 
 [![Command Prompt](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/windows-10-startup-repair/advanced-options.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4\. Type or paste the following command and press **Enter**:
 
 **chkdsk c: /f** (This command checks and fixes errors on the system drive.)
@@ -159,10 +147,6 @@ Step 4\. Type or paste the following command and press **Enter**:
 Step 5\. Once the process is complete, unplug the USB and restart the computer.
 
 Check if the system boots normally after performing these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Option 4\. Run SFC to Check System File Integrity
 
@@ -186,7 +170,15 @@ If the "sfc /scannow" command fails to repair the Winload.efi missing file, proc
 
 [![SFC Scannow](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/winload-efi-after-clone/sfc-scannow.png "SFC Scannow")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Exercise caution to avoid potential system errors when using this command.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Option 5\. Repair EFI Boot Loader
 
@@ -223,7 +215,7 @@ Step 4\. Assign the partition a drive letter. Enter each of the following comman
 Step 5\. Restart your computer after successfully repairing the EFI loader.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Suggestion: backup your crucial loading files in advance
@@ -242,10 +234,18 @@ You just need to download this software and install it. Open it and navigate to 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-20.svg) 100% Secure
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![System Backup](https://www.ubackup.com/windows-11/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/system-backup/system-backup.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -263,10 +263,6 @@ Was the provided information useful? Your vote is important to us!
 [Maggie](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Maggie is a technical editor from AOMEI and troubleshoots technical problems against data protection. She has received professional and systematic technical training. With a focus on user experience, security, and problem-solving, she always puts herself in the readers' shoes and provides them with valuable technical insights.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Related Articles
 
@@ -287,6 +283,10 @@ Help Us Improve This Article
 Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Free Get AOMEI Backupper Now
 
@@ -313,17 +313,22 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/avigating-the-seo-landscape-top-keyword-research-instruments-for-2024/"><u>[New] Navigating the SEO Landscape Top Keyword Research Instruments for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-unleash-creativity-in-snaps-15-innovative-posting-techniques/"><u>[Updated] In 2024, Unleash Creativity in Snaps 15 Innovative Posting Techniques</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/a-comprehensive-guide-to-repairing-sound-card-problems-with-tips-from-yl-software/"><u>A Comprehensive Guide to Repairing Sound Card Problems with Tips From YL Software</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exclusive-hats-review-best-action-cameras-on-two-wheels-for-2024/"><u>Exclusive Hats Review Best Action Cameras on Two Wheels for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721268159693-groundbreaking-announcement-stellar-unveils-the-premier-photo-restoration-and-repair-tool/"><u>Groundbreaking Announcement: Stellar Unveils the Premier Photo Restoration and Repair Tool</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/high-definition-sport-car-wallpaper-hds-and-images-ultimate-collection-by-yl-computing/"><u>High-Definition Sport Car Wallpaper HDs & Images: Ultimate Collection by YL Computing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-realme-narzo-60x-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Realme Narzo 60x 5G to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/master-the-art-of-iphone-vocal-memos-a-step-by-step-tutorial/"><u>Master the Art of iPhone Vocal Memos: A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/maximizing-your-hard-drives-efficiency-expert-tips-from-yl-computing/"><u>Maximizing Your Hard Drive's Efficiency: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ready-to-upgrade-download-enhanced-sound-blaster-audigy-fx-driver-suite/"><u>Ready to Upgrade? Download Enhanced Sound Blaster Audigy Fx Driver Suite</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/secure-your-windows-system-comprehensive-virus-scan-tutorial-by-yl-software-experts/"><u>Secure Your Windows System: Comprehensive Virus Scan Tutorial by YL Software Experts</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/silent-system-solution-expert-tips-for-fixing-lack-of-sound-on-your-computer-advice-by-yl-computing-and-yl-software/"><u>Silent System Solution: Expert Tips for Fixing Lack of Sound on Your Computer - Advice by YL Computing & YL Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gopros-greatest-hits-max-360-vs-hero-11-comparison/"><u>[New] GoPro's Greatest Hits Max 360 vs Hero 11 Comparison</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-the-visual-virtuoso-enhancing-photos-with-text-os-based-techniques/"><u>[New] In 2024, The Visual Virtuoso Enhancing Photos with Text, OS-Based Techniques</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/10-scenarios-where-using-chatgpt-could-lead-to-job-loss/"><u>10 Scenarios Where Using ChatGPT Could Lead to Job Loss</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/expert-tips-for-overcoming-mp4-format-issues-with-powerdirector-software/"><u>Expert Tips for Overcoming MP4 Format Issues with PowerDirector Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/flacapple-losslesswindowsmac/"><u>FLACからApple Losslessへの変換手法：WindowsとMacで使える方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/h264-format-not-working-on-vlc-media-player-uncover-successful-troubleshooting-tips-here/"><u>H264 Format Not Working on VLC Media Player? Uncover Successful Troubleshooting Tips Here!</u></a></li>
+<li><a href="https://win11.techidaily.com/harness-powertoys-for-rapid-file-naming-tasks/"><u>Harness PowerToys for Rapid File Naming Tasks</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-temporary-ban-on-trump-upholds-principles/"><u>Online Authority: Temporary Ban on Trump Upholds Principles</u></a></li>
+<li><a href="https://win-superb.techidaily.com/optimal-disk-storage-requirements-ensuring-efficient-system-security/"><u>Optimal Disk Storage Requirements: Ensuring Efficient System Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-connectivity-from-facebook-to-meta-horizon/"><u>Redefining Connectivity: From Facebook to Meta Horizon</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713965669511-updated-want-to-learn-how-to-make-gaming-montage-videos-you-have-come-to-the-right-place-this-guide-will-teach-you-all-you-need-to-know-to-create-montages-o/"><u>Updated Want to Learn How to Make Gaming Montage Videos? You Have Come to the Right Place. This Guide Will Teach You All You Need to Know to Create Montages of Video Games and Share Them with Other Players for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/windows-users-rejoice-quick-and-easy-rndis-driver-downloads-and-upgrades-fixed/"><u>Windows Users Rejoice: Quick and Easy RNDIS Driver Downloads and Upgrades [FIXED]</u></a></li>
 </ul></div>
 

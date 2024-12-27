@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2024-12-12T18:22:57.234Z
-updated: 2024-12-18T17:30:13.969Z
+date: 2024-12-20T08:26:01.803Z
+updated: 2024-12-26T20:08:54.291Z
 tags:
   - product
 categories:
@@ -21,10 +21,14 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 * ![](https://www.ifind-recovery.com/wp-content/uploads/2018/11/camera-RAW-image-e1541555447983.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With the proliferation of digital cameras, especially professional ones, the Raw photos are becoming more common. **The RAW photo** has unparalleled advantages over other photos. If a lot of raw images are taken but lost. In fact, it will be a very frustrating thing. I’ll introduce to you what is the RAW photos, and then, guide you to use iFinD Data Recovery to restore the lost RAW photos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -34,17 +38,9 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: The concept and classification of hard drive:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
 
@@ -56,6 +52,10 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 Perhaps the biggest advantage of raw is that it can be converted into a 16-bit image. That is, there are 65,536 levels that can be adjusted, which is a big advantage for JPG files. In fact, this is very important when editing an image, especially if you need to make important adjustments to the shadow or highlight areas.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Raw Photo’s Disadvantages
 
 1：Compared to JPG, the same photo, the size of the photo is often 5-10 times that of JPG, which is not conducive to network transmission.
@@ -63,6 +63,10 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 2：Reading and editing require the special software.
 
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
 
@@ -130,17 +134,9 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/scanning.png?resize=640%2C486&ssl=1 "scanning")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5: End the scan. you can find the RAW Photos which you want to recover. Please click the “Recover” button.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw_recover1.jpg?resize=640%2C486&ssl=1 "raw_recover1")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Through the above article, we know what is raw photo and how to restore the lost raw photo. however, the most important thing is to develop good usage habits before losing. Above all, you can minimize the risk of losing data.
 
@@ -149,7 +145,7 @@ Through the above article, we know what is raw photo and how to restore the lost
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
@@ -167,6 +163,10 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 * [Click to share on Tumblr (Opens in new window)](https://www.ifind-recovery.com/how-to/how-to-recover-the-cameras-raw-image-files/?share=tumblr&nb=1 "Click to share on Tumblr")
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -207,17 +207,15 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-bridging-the-gap-between-human-perception-and-photographic-capture/"><u>[New] 2024 Approved Bridging the Gap Between Human Perception and Photographic Capture</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-streamlined-sound-conversion-for-tweeted-content/"><u>[New] In 2024, Streamlined Sound Conversion for Tweeted Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-skyrocket-views-with-smartly-chosen-video-release-times/"><u>[Updated] In 2024, Skyrocket Views with Smartly Chosen Video Release Times</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-tying-iphone-videos-in-seamless-bundles-for-2024/"><u>[Updated] Tying IPhone Videos in Seamless Bundles for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/expert-guide-performing-complete-hardware-check-up-on-your-pc-yl-computings-ultimate-walkthrough/"><u>Expert Guide: Performing Complete Hardware Check-Up on Your PC - YL Computing's Ultimate Walkthrough</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-se-2020-with-or-without-password-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone SE (2020) With or Without Password</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-g84-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto G84 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-embracing-constructive-feedback-ignoring-the-rest/"><u>In 2024, Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/mastering-cryptocurrency-investments-a-beginners-guide-by-yl-computing/"><u>Mastering Cryptocurrency Investments: A Beginner's Guide by YL Computing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/navigating-operating-system-limitations-with-yls-comprehensive-computing-solutions/"><u>Navigating Operating System Limitations with YL's Comprehensive Computing Solutions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-y200-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo Y200? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/the-future-of-money-how-digital-currencies-are-revolutionizing-our-economy-insights-by-yl-software/"><u>The Future of Money: How Digital Currencies Are Revolutionizing Our Economy, Insights by YL Software</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-best-buys-for-extreme-weather-shooting-top-7-edition/"><u>[Updated] In 2024, Best Buys for Extreme Weather Shooting, Top 7 Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-apk-journey-to-gaming-bliss-funimate-pro-guide/"><u>In 2024, APK Journey to Gaming Bliss Funimate Pro Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/modernizing-your-windows-group-policy-settings/"><u>Modernizing Your Windows Group Policy Settings</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
+<li><a href="https://win-answers.techidaily.com/valorant-quality-of-play-upgrade-how-to-overcome-stuttering-and-elevate-frame-per-seconds-fps/"><u>Valorant Quality of Play Upgrade: How to Overcome Stuttering & Elevate Frame Per Seconds (FPS)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/dvd-iphone/"><u>ジャニーズ DVD ダウンロード: IPhoneへ導くステップバイステップガイド</u></a></li>
 </ul></div>
 
