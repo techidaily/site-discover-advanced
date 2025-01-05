@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Reverting to Past Documents via Microsoft's Cloud Storage Service (OneDrive)"
-date: 2024-12-22T09:35:11.764Z
-updated: 2024-12-26T23:02:42.365Z
+date: 2024-12-31T21:05:53.575Z
+updated: 2025-01-05T17:12:13.414Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/1950983d0af24cf7ccce7d0d9b553dd604417e3bd4a6dbac12c3df842a2a8fe2.jpg
@@ -24,13 +24,13 @@ Vous obtiendrez le logiciel de sauvegarde NAS Buffalo le plus simple pour Window
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Table des matières** 
 
@@ -38,10 +38,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 2. [Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/)
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
@@ -70,12 +66,16 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
@@ -84,10 +84,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 **Étape 1.** Lancez AOMEI Backuppper Standard, cliquez sur **Sauvegarder**, puis sur **Sauvegarde de fichiers**.
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
@@ -100,6 +96,10 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
@@ -122,11 +122,11 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -177,11 +177,11 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
-![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,22 +198,19 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-how-to-make-animation-with-windows-movie-maker/"><u>[New] 2024 Approved How to Make Animation with Windows Movie Maker</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-rally-your-crowd-engaging-audiences-on-telegram/"><u>[New] Rally Your Crowd Engaging Audiences on Telegram</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-streamlined-approach-for-customizing-snapchat-video-rate-for-2024/"><u>[New] Streamlined Approach for Customizing Snapchat Video Rate for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-shift-photo-realism-to-a-more-distinctive-outer-glow-psx-for-2024/"><u>[Updated] Shift Photo Realism to a More Distinctive Outer Glow PSX for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-conundrums-decoding-the-paperclip-maximizer-problems-role-and-impact-on-ai-development/"><u>AI Conundrums: Decoding The Paperclip Maximizer Problem's Role and Impact on AI Development</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/exploring-real-time-artificial-intelligence-abbyy-showcases-latest-innovations-at-mwc-2019-barcelona-official-news-release/"><u>Exploring Real-Time Artificial Intelligence: ABBYY Showcases Latest Innovations at MWC 2019 Barcelona - Official News Release</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/global-licensing-leader-at-abbyy-elevated-to-aiim-fellow-status/"><u>Global Licensing Leader at ABBYY Elevated to AIIM Fellow Status</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/harness-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-success/"><u>Harness the Power of Cookiebot Technology for Advanced Website Tracking and SEO Success</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/hassle-free-mobile-checks-abbyys-ocr-sdk-transforms-portable-loan-verifications/"><u>Hassle-Free Mobile Checks: ABBYY's OCR SDK Transforms Portable Loan Verifications</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/integrating-abyby-flexicapture-with-laserfiche-enhanced-document-processing-by-abbyy/"><u>Integrating ABYBY FlexiCapture with Laserfiche: Enhanced Document Processing by ABBYY</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/iphone-app-enables-doc-and-book-scanning-with-ocr-technology-convert-pdfsjpgs-using-finereader/"><u>IPhone App Enables Doc & Book Scanning with OCR Technology - Convert PDFs/JPGs Using FineReader</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leading-japanese-enterprise-tomohito-shimizu-joins-abbyy-in-key-management-role/"><u>Leading Japanese Enterprise: Tomohito Shimizu Joins ABBYY in Key Management Role</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/leverage-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-marketing-insights/"><u>Leverage the Power of Cookiebot Technology for Advanced Website Tracking & Marketing Insights</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-the-art-of-loudness-advanced-techniques-to-increase-volume-on-windows-10/"><u>Mastering the Art of Loudness: Advanced Techniques to Increase Volume on Windows 10</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-through-toms-electronic-equipment-breakdown/"><u>Navigating Through Tom’s Electronic Equipment Breakdown</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-unregistered-class-errors-in-windows-10-a-step-by-step-guide/"><u>Resolving Unregistered Class Errors in Windows 10 - A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/simplified-systems-for-saving-screen-calls/"><u>Simplified Systems for Saving Screen Calls</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>[New] Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-selective-mp4-editing-made-simple-on-mac/"><u>[Updated] In 2024, Selective MP4 Editing Made Simple on Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pros-secret-windows-11-gems-uncovered/"><u>2024 Approved Pro's Secret Windows 11 Gems Uncovered</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/advanced-gadget-analysis-by-toms-electronics-review/"><u>Advanced Gadget Analysis by Tom's Electronics Review</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/harness-the-potential-of-your-campaigns-with-cookiebots-advanced-analytics-tools/"><u>Harness the Potential of Your Campaigns with Cookiebot's Advanced Analytics Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/how-cookiebot-empowers-websites-with-advanced-tracking-and-personalization-technologies/"><u>How Cookiebot Empowers Websites with Advanced Tracking and Personalization Technologies</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-itel-s23plus-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-chronicles-of-charms-a-compreentic-toolkit-for-twitters-visual-treasures/"><u>In 2024, Chronicles of Charms A Compreentic Toolkit for Twitter's Visual Treasures</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-xiaomi-14-ultra-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Xiaomi 14 Ultra Device</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-itel-a60s-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Itel A60s Device</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/incorporating-ai-strategies-for-better-team-participation-mastery-of-insights-from-corporate-records/"><u>Incorporating AI Strategies for Better Team Participation: Mastery of Insights From Corporate Records</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/integrating-with-salesforce-made-easy-abbyy-updates-android-business-card-reader-with-new-functionality/"><u>Integrating with Salesforce Made Easy: ABBYY Updates Android Business Card Reader with New Functionality</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-app-mastery-transform-images-to-searchable-text-via-scan-ocr-and-pdf-creation/"><u>IPhone App Mastery: Transform Images to Searchable Text via Scan, OCR, and PDF Creation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-stability-issues-a-guide-to-preventing-house-flipper-2-crashes-on-your-computer/"><u>Resolving Stability Issues: A Guide to Preventing House Flipper 2 Crashes on Your Computer</u></a></li>
 </ul></div>
 

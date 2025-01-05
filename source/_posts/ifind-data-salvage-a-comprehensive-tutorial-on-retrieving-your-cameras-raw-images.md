@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2024-12-20T08:26:01.803Z
-updated: 2024-12-26T20:08:54.291Z
+date: 2024-12-30T19:34:58.833Z
+updated: 2025-01-05T18:56:31.801Z
 tags:
   - product
 categories:
@@ -20,14 +20,10 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 
 * ![](https://www.ifind-recovery.com/wp-content/uploads/2018/11/camera-RAW-image-e1541555447983.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 With the proliferation of digital cameras, especially professional ones, the Raw photos are becoming more common. **The RAW photo** has unparalleled advantages over other photos. If a lot of raw images are taken but lost. In fact, it will be a very frustrating thing. I’ll introduce to you what is the RAW photos, and then, guide you to use iFinD Data Recovery to restore the lost RAW photos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -38,9 +34,17 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: The concept and classification of hard drive:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
 
@@ -52,10 +56,6 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 Perhaps the biggest advantage of raw is that it can be converted into a 16-bit image. That is, there are 65,536 levels that can be adjusted, which is a big advantage for JPG files. In fact, this is very important when editing an image, especially if you need to make important adjustments to the shadow or highlight areas.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Raw Photo’s Disadvantages
 
 1：Compared to JPG, the same photo, the size of the photo is often 5-10 times that of JPG, which is not conducive to network transmission.
@@ -65,7 +65,7 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
@@ -126,6 +126,10 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost-File-Recovery.png?resize=640%2C486&ssl=1 "Lost File Recovery")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3: Select the partition which you want to recover the RAW Photos.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/select-partition.png?resize=640%2C486&ssl=1 "select partition")
@@ -144,13 +148,13 @@ Through the above article, we know what is raw photo and how to restore the lost
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -163,10 +167,6 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 * [Click to share on Tumblr (Opens in new window)](https://www.ifind-recovery.com/how-to/how-to-recover-the-cameras-raw-image-files/?share=tumblr&nb=1 "Click to share on Tumblr")
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -207,15 +207,16 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-best-buys-for-extreme-weather-shooting-top-7-edition/"><u>[Updated] In 2024, Best Buys for Extreme Weather Shooting, Top 7 Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-convert-wma-audio-free-of-charge-step-by-step-guide/"><u>1. [Convert WMA Audio Free of Charge]: Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028667123-windows/"><u>完全なデスクトップ動画撮影 - Windows環境での実践ガイド</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-apk-journey-to-gaming-bliss-funimate-pro-guide/"><u>In 2024, APK Journey to Gaming Bliss Funimate Pro Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726028648343-iphone/"><u>IPhoneでのボイスメモ編集手順：連結と切り取り</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/modernizing-your-windows-group-policy-settings/"><u>Modernizing Your Windows Group Policy Settings</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1726027066898-mp4/"><u>MP4マナーブレンド：ハンズオンな分割と結合技術</u></a></li>
-<li><a href="https://win-answers.techidaily.com/valorant-quality-of-play-upgrade-how-to-overcome-stuttering-and-elevate-frame-per-seconds-fps/"><u>Valorant Quality of Play Upgrade: How to Overcome Stuttering & Elevate Frame Per Seconds (FPS)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/dvd-iphone/"><u>ジャニーズ DVD ダウンロード: IPhoneへ導くステップバイステップガイド</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-uncovering-niche-experts-on-instagram-a-guide-to-impactful-collaborators/"><u>[New] Uncovering Niche Experts on Instagram A Guide to Impactful Collaborators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-finding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style-for-2024/"><u>[Updated] Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-maximize-your-reach-snapchat-advertising-101/"><u>[Updated] Maximize Your Reach Snapchat Advertising 101</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-metrics-top-10-instagram-tags-right-now/"><u>In 2024, Mastering Metrics Top 10 Instagram Tags Right Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-close-up-views-on-web-conferencing-for-2024/"><u>Mastering Close-Up Views on Web Conferencing for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/unlocking-potential-with-cookiebot-technology-boost-user-interaction-on-your-website/"><u>Unlocking Potential with Cookiebot Technology - Boost User Interaction on Your Website</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
 </ul></div>
 

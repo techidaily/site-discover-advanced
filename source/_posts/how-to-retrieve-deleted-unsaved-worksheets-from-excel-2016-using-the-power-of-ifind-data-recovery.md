@@ -1,7 +1,7 @@
 ---
 title: How to Retrieve Deleted Unsaved Worksheets From Excel 2016 Using the Power of IFind Data Recovery
-date: 2024-12-05T10:54:05.547Z
-updated: 2024-12-12T09:57:03.209Z
+date: 2025-01-02T17:22:47.290Z
+updated: 2025-01-05T20:48:39.001Z
 tags:
   - product
 categories:
@@ -20,28 +20,24 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
 
 * ![how to recover unsaved excel files](https://www.ifind-recovery.com/wp-content/uploads/2019/03/how-to-recover-unsaved-excel-file.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 We expand our office recovery series to Excel recovery this week, and with the most asked question: how to recover excel file?
 
 Unlike the office word, Excel is all about tables and calculations. You may face more problems when dealing with excel files. As always, we give you some tips for how to get them back and how to Not lose them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## how to recover unsaved excel file 2016/2013/2007?
 
 As a part of Microsoft office, the recovery of excel is very similar with office word. In case you read this before our office word tips, here is the detailed step by step methods to help you to recover excel file not saved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Recover Unsaved excel Documents From Office Autosave
 
 ![excel autosave](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autosave.jpg?resize=680%2C269&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Autosave is a new function for Office 365 which allows the Microsoft Excel to save your Xls/Xlsx files automatically on your cloud drives like OneDrive or SharePoint.
@@ -51,10 +47,6 @@ With this feature, Recover Autosave Excel is easy and self-acting, The Excel wil
 ### Method 2: Recover Unsaved excel Documents From Excel Autorecover
 
 ![excel autorecover](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autorecover-e1553241342364.jpg?resize=680%2C238&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Excel Autorecover is a building-in function of Microsoft office(2003-2016) for saving your file copy at a custom setup period automatically. You can use these copies to recover your unsaved Excel documents when you forgot to save the excel document, your excel crashed, or your Computer suddenly shut down.
 
@@ -87,7 +79,7 @@ If not, you can still go to “Manage Workbook” to open the unsaved files.
 ![recover unsaved workbooks](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/recover-unsaved-workbooks.jpg?resize=800%2C299&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 3: Recover Unsaved excel Documents From Excel backup files
@@ -98,23 +90,19 @@ First, you need to select the “Always create backup” option in File – Save
 
 ![excel-backup-options](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options.jpg?resize=800%2C267&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options2.jpg?resize=800%2C194&ssl=1)
 
 Then, the Excel will store a \*.xlk backup file for you. So you have a chance to recover the unsaved files by using these backup files.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-xlk.jpg?resize=800%2C131&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 4: Recover Unsaved excel Documents From windows previous versions
 
 **Related Tip: [Restore Deleted Files With Previous Versions Tabs In Windows](https://tools.techidaily.com/ifind-recovery/products/)**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 5: Recover Unsaved excel Documents From iFinD data recovery
 
@@ -122,9 +110,17 @@ If you get no luck with the tips above, or all or part of your computer data was
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -145,6 +141,10 @@ October 31, 2018
 In "Knowledge Base"
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -177,14 +177,20 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-03-29T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-instagram-influencer-blueprint-from-few-to-a-thousand-fans-for-2024/"><u>[Updated] The Instagram Influencer Blueprint From Few to a Thousand Fans for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/bitcoin-nears-35k-milestone-as-ethereum-aptos-qtum-and-rune-surge-expert-analysis-by-yl-computing/"><u>Bitcoin Nears $35K Milestone as Ethereum, Aptos, Qtum & Rune Surge - Expert Analysis by YL Computing</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/easily-adjust-your-screen-preferences-a-step-by-step-guide-to-control-panel-display-settings-tips-from-yl-computing/"><u>Easily Adjust Your Screen Preferences: A Step-by-Step Guide to Control Panel Display Settings - Tips From YL Computing</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-easy-to-follow-obs-setup-on-thriftier-tech/"><u>In 2024, Easy-to-Follow OBS Setup on Thriftier Tech</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovating-temporal-displacement-effects-for-2024/"><u>Innovating Temporal Displacement Effects for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/solutions-dechec-de-lecture-sur-les-dvd-rom-udf-avec-winx-dvd-ripper/"><u>Solutions D'échec De Lecture Sur Les DVD-Rom UDF Avec WinX DVD Ripper</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-accessing-and-editing-microsoft-word-files-tips-by-yl-tech-solutions/"><u>Step-by-Step Guide: Accessing and Editing Microsoft Word Files - Tips by YL Tech Solutions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/tp-link-adapter-driver-updates-compatible-with-windows-10-8-and-7-latest-downloads-now-available/"><u>TP-Link Adapter Driver Updates: Compatible with Windows 10, 8 & 7 – Latest Downloads Now Available</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/troubleshooting-your-screen-what-to-do-when-no-image-appears-expert-tips-by-yl-computing/"><u>Troubleshooting Your Screen: What To Do When No Image Appears - Expert Tips by YL Computing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-discover-the-most-reliable-android-apps-to-replay-your-favorite-ps2-games/"><u>[New] 2024 Approved Discover the Most Reliable Android Apps to Replay Your Favorite PS2 Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-declutter-your-tiktok-drafters-efficient-edit-strategies-for-2024/"><u>[New] Declutter Your TikTok Drafters Efficient Edit Strategies for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-discovering-the-leading-speech-to-text-apps-for-ipads-3/"><u>[Updated] In 2024, Discovering the Leading Speech-to-Text Apps for iPads #3</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/behebung-von-bitlocker-wiederherstellungspasswortproblemen-auf-windows-11-zwei-effiziente-methoden-erklart/"><u>Behebung Von BitLocker Wiederherstellungspasswortproblemen Auf Windows 11: Zwei Effiziente Methoden Erklärt</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/boosting-engagement-joint-video-strategies-for-growth-for-2024/"><u>Boosting Engagement Joint Video Strategies for Growth for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/defeating-pubgs-launch-error-a-step-by-step-tutorial/"><u>Defeating PUBG's Launch Error : A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/demystifying-hp-bios-settings-essential-tips-for-recognizing-and-utilizing-bootable-usb-drives-successfully/"><u>Demystifying HP BIOS Settings: Essential Tips for Recognizing and Utilizing Bootable USB Drives Successfully</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-vivo-v30-lite-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-se-2020-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock Apple iPhone SE (2020) Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/seamless-cloning-guide-for-migrating-from-hard-drive-to-msata-solid-state-drive-on-pcs-with-windows-os/"><u>Seamless Cloning Guide for Migrating From Hard Drive to mSATA Solid State Drive on PCs with Windows OS</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/solution-found-insufficient-ram-on-your-pc-here-are-7-effective-fixes/"><u>Solution Found - Insufficient RAM on Your PC? Here Are 7 Effective Fixes!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-reverting-to-past-documents-via-microsofts-cloud-storage-service-onedrive/"><u>Step-by-Step Guide: Reverting to Past Documents via Microsoft's Cloud Storage Service (OneDrive)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-to-rejuvenate-stuck-hibernate-mode-on-pcs/"><u>Tips to Rejuvenate Stuck Hibernate Mode on PCs</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-easy-path-to-pure-audio-advanced-noise-reduction-tactics-for-audacity-and-filmorapro-users/"><u>Updated The Easy Path to Pure Audio Advanced Noise Reduction Tactics for Audacity and FilmoraPro Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/verhitteerde-herstelbestandsuitvoering-met-max-3-stappen-prullenbak-ontsporingskracht-versterken/"><u>Verhitteerde Herstelbestandsuitvoering Met Max. 3 Stappen: Prullenbak-Ontsporingskracht Versterken</u></a></li>
 </ul></div>
 
