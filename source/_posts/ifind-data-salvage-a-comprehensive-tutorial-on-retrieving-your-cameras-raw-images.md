@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2024-12-30T19:34:58.833Z
-updated: 2025-01-05T18:56:31.801Z
+date: 2025-01-07T02:17:33.805Z
+updated: 2025-01-12T04:22:05.141Z
 tags:
   - product
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/8f13b229b4309cc607ca12c22275ed95f06f33bc5
 
 With the proliferation of digital cameras, especially professional ones, the Raw photos are becoming more common. **The RAW photo** has unparalleled advantages over other photos. If a lot of raw images are taken but lost. In fact, it will be a very frustrating thing. I’ll introduce to you what is the RAW photos, and then, guide you to use iFinD Data Recovery to restore the lost RAW photos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Summary
 
 [1: Advantages and Disadvantages of Raw Photos](https://tools.techidaily.com/ifind-recovery/products/)
@@ -35,7 +31,7 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: The concept and classification of hard drive:
@@ -43,7 +39,7 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
@@ -65,7 +61,7 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
@@ -126,10 +122,6 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost-File-Recovery.png?resize=640%2C486&ssl=1 "Lost File Recovery")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3: Select the partition which you want to recover the RAW Photos.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/select-partition.png?resize=640%2C486&ssl=1 "select partition")
@@ -142,18 +134,26 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw_recover1.jpg?resize=640%2C486&ssl=1 "raw_recover1")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Through the above article, we know what is raw photo and how to restore the lost raw photo. however, the most important thing is to develop good usage habits before losing. Above all, you can minimize the risk of losing data.
 
 [Download now](https://tools.techidaily.com/ifind-recovery/products/)
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Show Us some Love:
@@ -207,16 +207,20 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-uncovering-niche-experts-on-instagram-a-guide-to-impactful-collaborators/"><u>[New] Uncovering Niche Experts on Instagram A Guide to Impactful Collaborators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-finding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style-for-2024/"><u>[Updated] Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-maximize-your-reach-snapchat-advertising-101/"><u>[Updated] Maximize Your Reach Snapchat Advertising 101</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/best-platforms-to-view-youtube-with-others-a-list-of-6-options/"><u>Best Platforms to View YouTube with Others: A List of 6 Options</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/buy-wonderfoxs-professional-mac-app-superior-apple-video-converter-factory-pro-edition/"><u>Buy WonderFox's Professional Mac App: Superior Apple Video Converter - Factory Pro Edition</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/convert-your-whatsapp-voice-messages-top-4-free-ways-to-download-as-mp3/"><u>Convert Your WhatsApp Voice Messages: Top 4 Free Ways to Download as MP3</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-metrics-top-10-instagram-tags-right-now/"><u>In 2024, Mastering Metrics Top 10 Instagram Tags Right Now</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-close-up-views-on-web-conferencing-for-2024/"><u>Mastering Close-Up Views on Web Conferencing for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/unlocking-potential-with-cookiebot-technology-boost-user-interaction-on-your-website/"><u>Unlocking Potential with Cookiebot Technology - Boost User Interaction on Your Website</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44kk44oz44k44o844on44od44oi44gn44ki44kv44k744k544gv44km44kl44gt44go44ks6kab5rgc44gv44km44kl44oa44km44oz44ot44o844oj5qmf6io944gu5lin5yw35zciic0g6ki65pat5pa5580/"><u>インターネットでアクセスされることを要求されるダウンロード機能の不具合 - 診断方法</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-tips-for-smooth-win11-meetings-via-zoom/"><u>[New] In 2024, Expert Tips for Smooth Win11 Meetings via Zoom</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-navigating-screencastifys-screen-capture-feature/"><u>[New] Navigating Screencastify's Screen Capture Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-dialing-up-engagement-youtube-thumbnails-that-convert/"><u>[Updated] 2024 Approved Dialing Up Engagement YouTube Thumbnails That Convert</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-directly-stream-google-meet-youtube-edition-steps-for-2024/"><u>[Updated] Directly Stream Google Meet - YouTube Edition Steps for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1-how-to-fix-mounting-issues-with-windows-11-iso-files-a-step-by-step-guide/"><u>1. How to Fix Mounting Issues with Windows 11 ISO Files: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transforming-audio-to-text-on-slides-for-ppt/"><u>2024 Approved Transforming Audio to Text on Slides for PPT</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/1728473795750-win11/"><u>處理 Win11 互操作性挑戰: 使不起動的應用程序重新啟動</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guide-complet-pour-configurer-la-synchro-mirror-avec-aomei-backupper-sur-les-macs/"><u>Guide Complet Pour Configurer La Synchro Mirror Avec AOMEI Backupper Sur Les Macs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-samsung-galaxy-m34-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Samsung Galaxy M34 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-a34-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy A34 5G Phone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-apple-iphone-xs-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From Apple iPhone XS Smoothly</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/resetting-windows-11-essential-procedures-following-the-latest-system-upgrade/"><u>Resetting Windows 11: Essential Procedures Following the Latest System Upgrade</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/reviving-your-files-with-ifind-data-recovery-expert-tips-on-restoring-a-corrupted-sd-memory-card/"><u>Reviving Your Files with iFinD Data Recovery - Expert Tips on Restoring a Corrupted SD Memory Card</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/scopri-il-migliore-strumento-di-riproduzione-del-sistema-windows-nativo-7-per-i-tuoi-nuovi-dispositivi-hardware/"><u>Scopri Il Migliore Strumento Di Riproduzione Del Sistema Windows Nativo 7 per I Tuoi Nuovi Dispositivi Hardware</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-creating-a-full-backup-of-your-windows-server-2008-r2/"><u>Step-by-Step Guide: Creating a Full Backup of Your Windows Server 2008 (R2)</u></a></li>
 </ul></div>
 
