@@ -1,7 +1,7 @@
 ---
 title: "IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images"
-date: 2025-01-07T02:17:33.805Z
-updated: 2025-01-12T04:22:05.141Z
+date: 2025-01-14T01:32:15.409Z
+updated: 2025-01-18T03:28:19.491Z
 tags:
   - product
 categories:
@@ -30,17 +30,9 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 [3: Step to Recover RAW Files](https://tools.techidaily.com/ifind-recovery/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: The concept and classification of hard drive:
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw.jpg?resize=300%2C213&ssl=1 "raw")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### RAW Photo’s Advantages
 
@@ -52,6 +44,10 @@ With the proliferation of digital cameras, especially professional ones, the Raw
 
 Perhaps the biggest advantage of raw is that it can be converted into a 16-bit image. That is, there are 65,536 levels that can be adjusted, which is a big advantage for JPG files. In fact, this is very important when editing an image, especially if you need to make important adjustments to the shadow or highlight areas.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Raw Photo’s Disadvantages
 
 1：Compared to JPG, the same photo, the size of the photo is often 5-10 times that of JPG, which is not conducive to network transmission.
@@ -59,10 +55,6 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 2：Reading and editing require the special software.
 
 3：Because of its huge size, the camera’s continuous shooting speed, photo saving speed, and preview speed are slower than JPG.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2：RAW Filename Extensions and Respective Camera Manufacturers
 
@@ -114,6 +106,10 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 .x3f（[Sigma](https://en.wikipedia.org/wiki/Sigma%5FCorporation)）
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3：Step to Recover RAW Files
 
 1: Download the [iFinD data recovery software](https://tools.techidaily.com/ifind-recovery/products/) and installed.
@@ -121,6 +117,10 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 2: Run the software and select the first button, “Lost File Recovery”
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost-File-Recovery.png?resize=640%2C486&ssl=1 "Lost File Recovery")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3: Select the partition which you want to recover the RAW Photos.
 
@@ -130,12 +130,16 @@ Perhaps the biggest advantage of raw is that it can be converted into a 16-bit i
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/scanning.png?resize=640%2C486&ssl=1 "scanning")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5: End the scan. you can find the RAW Photos which you want to recover. Please click the “Recover” button.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/raw_recover1.jpg?resize=640%2C486&ssl=1 "raw_recover1")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Through the above article, we know what is raw photo and how to restore the lost raw photo. however, the most important thing is to develop good usage habits before losing. Above all, you can minimize the risk of losing data.
@@ -144,16 +148,12 @@ Through the above article, we know what is raw photo and how to restore the lost
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Show Us some Love:
@@ -207,20 +207,21 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2018-11-20T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-expert-tips-for-smooth-win11-meetings-via-zoom/"><u>[New] In 2024, Expert Tips for Smooth Win11 Meetings via Zoom</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-navigating-screencastifys-screen-capture-feature/"><u>[New] Navigating Screencastify's Screen Capture Feature</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-dialing-up-engagement-youtube-thumbnails-that-convert/"><u>[Updated] 2024 Approved Dialing Up Engagement YouTube Thumbnails That Convert</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-directly-stream-google-meet-youtube-edition-steps-for-2024/"><u>[Updated] Directly Stream Google Meet - YouTube Edition Steps for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-how-to-fix-mounting-issues-with-windows-11-iso-files-a-step-by-step-guide/"><u>1. How to Fix Mounting Issues with Windows 11 ISO Files: A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-transforming-audio-to-text-on-slides-for-ppt/"><u>2024 Approved Transforming Audio to Text on Slides for PPT</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1728473795750-win11/"><u>處理 Win11 互操作性挑戰: 使不起動的應用程序重新啟動</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/guide-complet-pour-configurer-la-synchro-mirror-avec-aomei-backupper-sur-les-macs/"><u>Guide Complet Pour Configurer La Synchro Mirror Avec AOMEI Backupper Sur Les Macs</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-samsung-galaxy-m34-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Samsung Galaxy M34 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-a34-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy A34 5G Phone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-apple-iphone-xs-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From Apple iPhone XS Smoothly</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/resetting-windows-11-essential-procedures-following-the-latest-system-upgrade/"><u>Resetting Windows 11: Essential Procedures Following the Latest System Upgrade</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/reviving-your-files-with-ifind-data-recovery-expert-tips-on-restoring-a-corrupted-sd-memory-card/"><u>Reviving Your Files with iFinD Data Recovery - Expert Tips on Restoring a Corrupted SD Memory Card</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/scopri-il-migliore-strumento-di-riproduzione-del-sistema-windows-nativo-7-per-i-tuoi-nuovi-dispositivi-hardware/"><u>Scopri Il Migliore Strumento Di Riproduzione Del Sistema Windows Nativo 7 per I Tuoi Nuovi Dispositivi Hardware</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-creating-a-full-backup-of-your-windows-server-2008-r2/"><u>Step-by-Step Guide: Creating a Full Backup of Your Windows Server 2008 (R2)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-study-aids-top-10-educational-history-channels/"><u>[New] 2024 Approved Study Aids Top 10 Educational History Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-stories-ultimate-guide-for-2024/"><u>[New] Instagram Stories Ultimate Guide for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snappy-adjustments-the-art-of-perfecting-photos-on-snapchat/"><u>[New] Snappy Adjustments The Art of Perfecting Photos on Snapchat</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-iphone-cinematic-techniques-top-8-strategies-for-ultimate-video-quality/"><u>[Updated] IPhone Cinematic Techniques Top 8 Strategies for Ultimate Video Quality</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-innovators-playbook-for-premiere-pro-fullscreen-edits-for-2024/"><u>[Updated] The Innovator's Playbook for Premiere Pro Fullscreen Edits for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-ultimate-guide-to-affordable-cloud-space-best-of-the-20/"><u>2024 Approved The Ultimate Guide to Affordable Cloud Space Best of the 20</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/mpeg-mp3/"><u>簡単な手順でMPEG-#からMP3への音声変換方法</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ogg-and/"><u>音楽データをOGGと他の形式に切り替える方法 - 変換 & 逆変�</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/distinct-keyboard-shortcuts-analyzing-brazilian-and-european-pt/"><u>Distinct Keyboard Shortcuts: Analyzing Brazilian & European PT</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elite-mac-audio-enhanced-screen-recorder/"><u>Elite Mac Audio-Enhanced Screen Recorder</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-error-code-1-ensuring-proper-configuration-of-your-device/"><u>Fixing Error Code 1: Ensuring Proper Configuration of Your Device</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/has-the-ipad-lost-its-style-appeal-in-todays-market/"><u>Has the iPad Lost Its Style Appeal in Today's Market?</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/m4awindows10-and-windows11/"><u>M4Aファイルの劣化なしに統合手順：Windows10 & Windows11向けガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/makemkiand/"><u>MakeMKIの基本使い方&期限切れ公認コード後始末ガイド</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/master-the-art-of-converting-mp4-video-files-to-audio-in-mp3-quality-comprehensive-tutorials-and-tools/"><u>Master the Art of Converting MP4 Video Files to Audio in MP3 Quality: Comprehensive Tutorials and Tools</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/obsmkvmp4/"><u>OBSで録画したMKVビデオをMP4に直してください | 変換手順詳しく解説</u></a></li>
 </ul></div>
 
