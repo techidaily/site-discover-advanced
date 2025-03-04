@@ -1,7 +1,7 @@
 ---
 title: Windows PC上重建 Word 古旧文档的五种手段：全新解决方法
-date: 2025-02-09T20:14:52.502Z
-updated: 2025-02-13T10:38:47.817Z
+date: 2025-02-27T17:15:00.299Z
+updated: 2025-03-03T22:27:07.782Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/5d2a2664a22a9ce0adee406a11257a41dccd9059883156b786595c2defcdb7b3.jpg
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/5d2a2664a22a9ce0adee406a11257a41dccd90598
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Norton Ghost in Windows 11, 10, 8, 7
 
 Want to create an image, restore image, or clone hard drive via Norton Ghost? This guide will tell you how to use Norton Ghost step by step. It also provides you with an easy alternative.
@@ -31,10 +27,6 @@ Want to create an image, restore image, or clone hard drive via Norton Ghost? Th
 By[Lena](https://tools.techidaily.com/ubackup/products/)Updated on June 5, 2024
 
 Share this: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Table of Contents** 
 
@@ -64,17 +56,9 @@ Norton Ghost is one **disk imaging and cloning tool** that firstly developed in 
 
 In a word, if you want to make an image back for your computer or want to clone to the new hard drive, Norton Ghost is not a bad choice. However, now Norton Ghost is **no longer available for the Home user**. It was **discontinued by Symantec in 2013**. Indeed you can still download the latest version - Norton Ghost 15, but it only offers a 30-day free trial and then you need to pay for it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Norton Ghost 15 Step by Step
 
 Here in this guide, you will get the detailed steps about how to use Symantec Ghost in Windows 11/10/8/7\. You can simply search “**Norton Ghost 15 download**” via your browser to get the tool. As we have mentioned above, it only offers a 30-day free trial. If you prefer a free tool to help you backup, restore or clone your hard drive, you can refer to the [next part](https://tools.techidaily.com/ubackup/products/) to get the best free alternative to Norton Ghost.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Image Your Computer with Norton Ghost
 
@@ -83,10 +67,6 @@ Here in this guide, you will get the detailed steps about how to use Symantec Gh
 2\. On the Home screen, you can create a backup task by clicking **Define Backup Wizard** or **Run or Manage Backups**. Here we choose the latter one.
 
 [![Create Backup](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/create-backup.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3\. The **Easy Setup** screen will appear.
 
@@ -108,10 +88,6 @@ Click **Recover My Files** if you want to recover files or folder, or **Recover 
 2\. Whichever you choose, you can type the file name you need in the box under **Find files to recover** and click **Search** to find it.
 
 [![Recover My Files](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/find-files-to-recover.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3\. After the scanning, select the file you need and click **Recover Files...**
 
@@ -152,10 +128,6 @@ Download it to have a try! If you are using a server system, such as, server 200
 
 Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Create Image Backup
 
 Take disk backup as an example. Follow the step below to backup your computer disk.
@@ -170,10 +142,6 @@ Select the corresponding backup methods if you want to backup system, partition 
 
 [![Add Disk](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/add-disk.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3\. Choose a destination path to save the disk image. You can save the backup image on a local hard drive, external hard drive, USB flash drive, or network drive, etc. Click **Start Backup** when you are ready.
 
 [![Select Backup Destination](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/select-backup-destination.png)
@@ -182,10 +150,6 @@ Select the corresponding backup methods if you want to backup system, partition 
 
 * In case your computer cannot start normally, you can **[create a bootable media](https://tools.techidaily.com/ubackup/products/)** using CD/DVD or USB flash drive in advance to help boot your computer. When your computer goes wrong, you can boot the computer using the bootable media and perform a system restore to get everything back to normal.
 * If you want to [upgrade Windows 10 to Windows 11](https://tools.techidaily.com/ubackup/products/) without losing files, this software is very useful. It backs up everything you want, either in the system partition or entire disk, and you can use it to restore files or system as needed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Restore Disk & Files
 
@@ -269,10 +233,6 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Free Get AOMEI Backupper Now
 
 Safeguard any data of your computer with backup, sync and clone.
@@ -298,18 +258,24 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-streamlined-sounds-iphones-efficient-podcasting-for-2024/"><u>[New] Streamlined Sounds IPhone's Efficient Podcasting for 2024</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/1-steps-to-remove-specific-registry-keysvalues-a-guide-by-yl-computing/"><u>1. Steps to Remove Specific Registry Keys/Values - A Guide by YL Computing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/bid-goodbye-to-buffering-blunders-a-comprehensive-guide-to-stable-4k-streams-with-plex-and-xbox-one/"><u>Bid Goodbye to Buffering Blunders: A Comprehensive Guide to Stable 4K Streams with Plex & Xbox One</u></a></li>
-<li><a href="https://extra-information.techidaily.com/control-screen-size-with-swift-iphone-adjustments/"><u>Control Screen Size with Swift iPhone Adjustments</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-computer-efficiency-with-key-hardware-upgrades-tips-by-yl-computing-experts/"><u>Enhance Computer Efficiency with Key Hardware Upgrades - Tips by YL Computing Experts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/essential-skills-for-youtube-success-8-free-online-courses-for-2024/"><u>Essential Skills for YouTube Success 8 Free Online Courses for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/export-troubleshooting-saving-your-premieres-srt-data-for-2024/"><u>Export Troubleshooting Saving Your Premiere's SRT Data for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-blur-it-out-free-iphones-tips-for-crisp-image-edits/"><u>In 2024, Blur It Out Free iPhones Tips for Crisp Image Edits</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-magix-video-pro-x-a-deep-dive/"><u>In 2024, Magix Video Pro X - A Deep Dive</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-the-top-10-apple-iphone-11-pro-emualtors-for-windows-mac-and-android-drfone-by-drfone-ios/"><u>In 2024, The Top 10 Apple iPhone 11 Pro Emualtors for Windows, Mac and Android | Dr.fone</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/repair-guide-how-to-reconnect-or-secure-an-unstable-internal-component-tips-from-yl-software/"><u>Repair Guide: How to Reconnect or Secure an Unstable Internal Component - Tips From YL Software</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unlocking-the-reasons-behind-your-computers-failure-to-start-expert-insights-by-yl-computing/"><u>Unlocking the Reasons Behind Your Computer's Failure to Start: Expert Insights by YL Computing</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/winxvideo-artificial-intelligence-masterclass-the-ultimate-step-by-step-guide-to-advanced-video-processing-techniques/"><u>Winxvideo Artificial Intelligence Masterclass: The Ultimate Step-by-Step Guide to Advanced Video Processing Techniques</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-exclusive-screenflow-examination-for-mac-users/"><u>[New] 2024 Approved Exclusive ScreenFlow Examination for Mac Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elite-assortment-advanced-webcam-mounts/"><u>[Updated] 2024 Approved Elite Assortment Advanced Webcam Mounts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-top-10-places-for-accessing-gratis-graphics/"><u>[Updated] 2024 Approved Top 10 Places for Accessing Gratis Graphics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-ffmpeg-and-its-role-in-preserving-natural-auditory-formats/"><u>2024 Approved FFmpeg and Its Role in Preserving Natural Auditory Formats</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/discover-easy-steps-to-access-windows-pc-details-via-control-panel-expert-guide-by-yl-tech/"><u>Discover Easy Steps to Access Windows PC Details via Control Panel - Expert Guide by YL Tech</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/epic-call-of-duty-visual-content-high-res-photos-images-and-more-from-yl-software/"><u>Epic Call of Duty Visual Content: High-Res Photos, Images & More From YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/explore-the-wild-side-of-tech-with-yl-softwares-gorilla-themed-background-images/"><u>Explore the Wild Side of Tech with YL Software's Gorilla-Themed Background Images</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/grand-city-adventures-without-a-gta-tie/"><u>Grand City Adventures Without a GTA Tie</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/high-definition-hd-wallpapers-of-italys-heart-rome-captivating-backdrops-by-yl-computing-your-gateway-to-stunning-desktops/"><u>High-Definition HD Wallpapers of Italy's Heart: Rome - Captivating Backdrops by YL Computing | Your Gateway to Stunning Desktops</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782569-9781620551394-inner-alchemy-astrology/"><u>Inner Alchemy Astrology | Free Book</u></a></li>
+<li><a href="https://win-top.techidaily.com/metodos-faciles-para-exportar-el-historial-del-chat-de-wechat-en-dispositivos-moviles/"><u>Métodos Fáciles Para Exportar El Historial Del Chat De WeChat en Dispositivos Móviles</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/navigating-your-way-to-windows-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Navigating Your Way to Windows' Control Panel: A Step-by-Step Guide - by YL Computing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/outriders-resolution-update-say-goodbye-to-fuzzy-visuals/"><u>Outriders Resolution Update: Say Goodbye to Fuzzy Visuals!</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/premium-bmw-e30-m3-hd-image-collections-and-backgrounds-ultimate-visual-upgrades-from-yl-computing/"><u>Premium BMW E30 M3 HD Image Collections & Backgrounds – Ultimate Visual Upgrades From YL Computing</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/step-by-step-guide-preserving-your-system-configurations-with-yl-software/"><u>Step-by-Step Guide: Preserving Your System Configurations with YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/top-strategies-for-enhancing-your-pcs-speed-and-efficiency-insights-from-yl-software/"><u>Top Strategies for Enhancing Your PC's Speed & Efficiency - Insights From YL Software</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-car-enthusiasts-hd-image-pack-bentley-continental-supersports-series-curated-by-yl-software-experts/"><u>Ultimate Car Enthusiast's HD Image Pack: Bentley Continental Supersports Series – Curated by YL Software Experts</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-unveiling-the-6-top-rated-digital-libraries-for-haunting-audio-effects-2e-update-for-2024/"><u>Updated Unveiling the 6 Top-Rated Digital Libraries for Haunting Audio Effects (2E Update) for 2024</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/yl-computing-reveals-essential-tips-for-robust-protection-of-systems-from-malicious-software-threats/"><u>YL Computing Reveals Essential Tips for Robust Protection of Systems From Malicious Software Threats</u></a></li>
 </ul></div>
 
